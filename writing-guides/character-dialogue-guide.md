@@ -1,7 +1,18 @@
 # Character-Specific Dialogue Guide
+## Authentic Voice Creation & Testing Framework
 
 ## Overview
 Each character must have a completely distinctive voice that reveals their background, education, emotional state, and relationship to language itself. Dialogue should carry subtext, advance character development, and feel authentically rooted in each person's psychology and culture.
+
+## Voice Authenticity Testing Method
+**THE BLIND DIALOGUE TEST**: Strip names from dialogue. Reader should identify speaker by voice alone 80% of the time.
+
+### Voice Fingerprint Elements:
+1. **Vocabulary Choice** - Education, background, profession
+2. **Sentence Structure** - Rhythm, length, complexity
+3. **Emotional Expression** - How feelings are revealed or hidden
+4. **Cultural Markers** - Language mixing, cultural references
+5. **Subtext Patterns** - What's said vs. what's meant
 
 ## EDEN ISRAEL STONE - The Seeking Protagonist
 
