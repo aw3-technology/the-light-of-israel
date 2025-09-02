@@ -45,28 +45,32 @@ Third person intimate, Eden's spiritual breakthrough
 - Approaching separately (mechitza)
 
 ### Scene 4: The Touch
-- Hand on stone - unexpectedly warm
-- Electric sensation up his arm
-- Vision of Temple standing
-- Tears immediate and unstoppable
+- Hand on stone - unexpectedly warm, exactly body temperature
+- Electric sensation up his arm, connecting to heart
+- Vision of Temple standing in full glory, priests in white
+- Hears voices of all who prayed here - Hebrew, Yiddish, Ladino
+- Tears immediate and unstoppable - releasing generations
 
 ### Scene 5: The Prayer
-- Writing note in English and broken Hebrew
-- "I am Eden Israel Stone, and I'm lost"
-- Placing it in crack
-- Paper immediately falls out
+- Hand writes Hebrew he doesn't recognize: "Hineni" (Here I am)
+- Adds in English: "I am Eden Israel Stone, and I was lost"
+- Placing it in crack with trembling hands
+- Stone seems to breathe, accepting then rejecting paper
 
 ### Scene 6: Three Returns
-- Wind blows paper to his feet
-- Places it again, falls again
-- Third time, different crack
-- Stays, glowing in morning light
+- Wind from nowhere blows paper to his feet
+- Places it again, falls again - stone testing his determination
+- Third time, different crack - Eden whispers full Hebrew name
+- Stays, absorbed into stone like living tissue
+- Crack glows golden for three heartbeats
 
 ### Scene 7: Mordechai's Recognition
-- Old man touches his shoulder
-- "You have Rivka's eyes"
-- Knew grandmother in Jerusalem, 1973
-- "She said her grandson would come"
+- Elderly man appears beside him - Eden didn't see him approach
+- "You have Rivka's eyes, and her stubbornness with prayers"
+- "I davened beside her here every morning in 1973"
+- "She prayed for you by name: 'Eden Israel'" 
+- "'My grandson will come home,' she said. 'The Wall will call him'"
+- Mordechai's prayer shawl shimmers with impossible light
 
 ### Scene 8: The Underground Tunnels
 - Sera takes him below

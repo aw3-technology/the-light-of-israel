@@ -64,7 +64,40 @@
 - **Childhood**: Grew up between worlds - religious grandparents, secular parents
 - **Education**: Psychology degree, specialized in trauma and healing
 - **Military Service**: Served as education corps instructor
-- **Major Life Events**: Lost friend in terror attack, found healing through art and mysticism
+- **Major Life Events**: 
+  - Lost best friend Michal at Nova Festival on October 7th (they were supposed to go together but Sera had to work)
+  - Survivor's guilt that she's still processing
+  - Found healing through art and mysticism but still carries the wound
+  - Parents divorced when she was 16 over religious differences
+
+## Her Own Trauma & Journey
+
+### October 7th Impact
+- Best friend Michal was dancing at Nova when the attack happened
+- Sera was supposed to be there but had to cover a shift at the hospital
+- Last text from Michal: "You're missing the sunrise!"
+- Body never recovered, only Michal's necklace found
+- Carries deep survivor's guilt Eden can't simply "fix"
+
+### What She's Wrestling With
+- Whether bringing children into this world is ethical
+- Anger at God she hasn't fully processed
+- Jealousy of Eden's "clean" spiritual journey without personal loss
+- Fear that loving Eden means losing him too
+- Struggle between her work helping others heal and her own unhealed wounds
+
+### Her Independent Growth Arc
+- Chapter 15: Masking her pain while helping Eden
+- Chapter 17: Breaks down at Nova site when visiting with Eden
+- Chapter 19: Reveals her loss to Eden at Dead Sea
+- Chapters 21-25: While Eden travels, she does her own work:
+  - Attends bereaved families group
+  - Creates memorial art piece for Michal
+  - Has crisis of faith Rabbi Levi helps with
+  - Decides to have children despite the fear
+- Chapter 26: When Eden returns, she's different too - scarred but choosing life
+- Chapter 28: Birth of twins is her victory over death
+- Chapter 33: Teaching her children joy despite knowing loss
 
 ## Her Role in Eden's Journey
 

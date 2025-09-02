@@ -18,7 +18,7 @@ Third person intimate, Eden's perspective
 
 ## Characters
 - **Eden Stone**: Performing social roles
-- **Aaron Gold**: Best friend, progressive activist, confident
+- **Aaron Gold**: Best friend, civil rights lawyer, brilliant but struggling with his own Jewish identity
 - **Sarah Chen**: UX designer, passionate about causes  
 - **Marcus Williams**: Journalist, cynical wit
 - **Other friends**: The usual progressive Brooklyn crowd
@@ -44,16 +44,18 @@ Third person intimate, Eden's perspective
 - Ordering overpriced Old Fashioned
 
 ### Scene 4: Political Discussion
-- Aaron ranting about housing crisis
+- Aaron building legal case about housing crisis
 - Sarah's climate anxiety
 - Marcus's media critique
-- Eden nodding, contributing talking points
+- Aaron's passionate but rehearsed arguments
+- Eden noticing Aaron's intensity masks something
 
 ### Scene 5: The Israel Moment
 - Someone mentions "situation in Middle East"
-- Quick "it's complicated" consensus
-- Aaron: "Netanyahu's basically Trump"
-- Eden's unnamed discomfort
+- Aaron immediately launches into anti-occupation argument
+- "Netanyahu's basically Trump, but worse because he's Jewish"
+- Aaron's family trauma unnamed but driving his passion
+- Eden's discomfort - recognizes Aaron's performance
 
 ### Scene 6: Personal Check-ins
 - "How was your date?" (about Rachel)
@@ -74,7 +76,8 @@ Third person intimate, Eden's perspective
 - No mention of Jewish identity
 
 ## Dialogue Highlights
-- Aaron: "We need to dismantle systemic oppression"
+- Aaron: "I spend my days defending people the system wants to disappear"
+- Aaron: "My grandmother survived the Holocaust so I could fight all genocides"
 - Sarah: "I'm so tired of living through historical events"
 - Marcus: "Everything's content now, even resistance"
 - Eden: "Yeah, totally" (automatic responses)
@@ -82,7 +85,8 @@ Third person intimate, Eden's perspective
 ## Internal Monologue
 - "We sound so smart and feel so nothing"
 - "When did caring become performance?"
-- "Aaron believes in something. What do I believe in?"
+- "Aaron believes in something. But why does he sound like he's trying to convince himself?"
+- "He never mentions being Jewish except to criticize Israel"
 - "We're all drowning in our own awareness"
 
 ## Symbolism

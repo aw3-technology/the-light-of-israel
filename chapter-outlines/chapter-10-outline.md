@@ -19,25 +19,33 @@ Third person intimate, Eden's perspective
 ## Key Scenes
 
 ### Scene 1: Arrival at Synagogue
-- Eden almost leaves three times
-- Old building, worn steps
-- Mezuzah he doesn't kiss
-- Secretary: "Rabbi Levi is expecting you"
+- Eden almost leaves three times - each time wind pushes him back
+- Old building, worn steps that seem familiar
+- Mezuzah he doesn't kiss - it grows warm as he passes
+- Secretary looks up before he speaks: "Rabbi Levi has been expecting you"
+- Door to study opens by itself
 
 ### Scene 2: The Study
-- Floor-to-ceiling books
-- Hebrew, Aramaic, English
-- Smell of old paper and tea
-- Rabbi rising to greet him
+- Floor-to-ceiling books that seem to breathe with wisdom
+- Hebrew, Aramaic, English texts arranged in mystical patterns
+- Smell of old paper, tea, and something like frankincense
+- Rabbi rising to greet him - his eyes reflecting light like deep water
+- Tea service already prepared for two though Eden didn't call ahead
 
 ### Scene 3: The Name
-- "Eden Israel Stone"
-- Eden shocked - "How did you...?"
-- "Your grandmother told me once"
-- "You carry paradise and struggle in your name"
+- "Shalom, Eden Israel Stone" - spoken before introductions
+- Eden's shock - "How did you know my middle name? I never tell anyone"
+- "Your grandmother Rivka spoke of you often. She davened here sometimes"
+- "She said: 'My grandson carries paradise, struggle, and foundation in his name'"
+- "'When he's ready, the names will call him home'"
+- Book falls open to exact page about name mysticism
 
 ### Scene 4: The Question
-- Rabbi: "What brings you here?"
+- Rabbi: "What brought you here tonight?"
+- Eden: "I don't know. I was just walking and..."
+- "No, what brought your soul here? Your neshamah has been calling for weeks"
+- As Eden speaks, candle flames flicker in response to his words
+- Rabbi nods at invisible presence in corner of room
 - Eden's rambling about October 7th
 - Rabbi: "No, what brings YOU here?"
 - Eden breaks: "I don't know who I am"

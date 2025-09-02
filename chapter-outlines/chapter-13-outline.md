@@ -19,7 +19,7 @@ Third person intimate, Eden caught between worlds
 
 ## Characters
 - **Eden Stone**: Observer trying to understand
-- **Aaron Goldberg**: College friend at pro-Palestinian rally
+- **Aaron Gold**: Best friend, civil rights lawyer at pro-Palestinian rally, wearing keffiyeh
 - **Rachel from synagogue**: At pro-Israel demonstration
 - **Police officers**: Creating human barrier
 - **Various protesters**: Both sides, all ages
@@ -42,14 +42,18 @@ Third person intimate, Eden caught between worlds
 ### Scene 3: Crossing to Other Side
 - Police barrier to navigate
 - Pro-Palestinian crowd larger, younger
-- Spots Aaron with keffiyeh
-- "Genocide" accusations on signs
+- Spots Aaron organizing legal observers
+- Aaron wearing keffiyeh over suit jacket
+- "From the River to the Sea" chants make Eden flinch
 
-### Scene 4: Aaron's Challenge
-- "Pick a side, Eden"
-- "It's not that simple"
-- "Silence is complicity"
-- Friendship straining
+### Scene 4: Aaron's Ultimatum
+- "Eden! Thank God you're here. We need witnesses."
+- Aaron assumes Eden's on his side
+- "This is genocide, just like what my grandparents faced"
+- Eden: "Aaron, it's more complex than—"
+- "Complex? They're murdering children!"
+- "So were Hamas"
+- Aaron's face changes: "You've been brainwashed"
 
 ### Scene 5: Violence Erupts
 - Someone throws bottle
@@ -90,6 +94,8 @@ Third person intimate, Eden caught between worlds
 
 ## Dialogue Highlights
 - Aaron: "How can you support apartheid?"
+- Aaron: "My grandmother survived Auschwitz so I could recognize genocide"
+- Aaron: "Choose: justice or tribalism"
 - Rachel: "They want us dead, Eden"
 - Activist: "No justice, no peace!"
 - Eden: "Everyone's so certain"
@@ -98,6 +104,8 @@ Third person intimate, Eden caught between worlds
 ## Internal Monologue
 - "When did nuance become betrayal?"
 - "Aaron's righteousness feels familiar—it was mine last month"
+- "He's using his grandmother's trauma to justify his position"
+- "But so am I"
 - "But Rachel's fear is my grandmother's fear"
 - "I'm supposed to have answers by 33"
 - "The center cannot hold—but I am the center"
@@ -113,7 +121,8 @@ Third person intimate, Eden caught between worlds
 - "You'll have to choose eventually"
 - Reference to "when you see it yourself"
 - "This is just the beginning"
-- Aaron: "We're done if you go there" (Israel)
+- Aaron: "If you go to Israel, we're done. You'll be complicit in apartheid"
+- "I can't be friends with someone who supports genocide"
 - Violence as preview of worse
 
 ## Chapter Arc

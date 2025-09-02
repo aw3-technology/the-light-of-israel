@@ -21,6 +21,7 @@ Third person intimate, fluid between past and present
 - **Eden at 33**: Processing, reframing memories
 - **Eden at 13**: Awkward, performing, secretly searching
 - **Parents (younger)**: Proud of achievement, missing the meaning
+- **Miriam Stone (present)**: Worried about Eden's "religious phase"
 - **Grandmother Rivka**: Crying during his Torah portion
 - **Hebrew school teacher**: Mrs. Goldstein, who tried
 - **Bar mitzvah party kids**: Barely remembered faces
@@ -75,6 +76,13 @@ Third person intimate, fluid between past and present
 - Hebrew and Yiddish notes
 - Understanding hitting hard
 
+### Scene 9: The Worried Phone Call
+- Mother calls during his reflection
+- "I heard you've been going to synagogue"
+- "Are you having some kind of breakdown?"
+- Eden: "Maybe I'm having a breakthrough"
+- First honest conversation about faith
+
 ## Themes
 - Ritual without meaning vs. meaning without ritual
 - Inherited tradition rejected and reclaimed
@@ -88,12 +96,14 @@ Third person intimate, fluid between past and present
 - Eden's Hebrew name called but not claimed
 - The prayer book has been waiting twenty years
 
-## Dialogue Highlights (Remembered)
+## Dialogue Highlights (Remembered & Present)
 - Rabbi: "Today you join the covenant"
 - 13-year-old Eden: "Today I'm done with Hebrew school"
 - Grandmother: "My father would be so proud"
-- Mom: "Smile for the photographer"
-- Dad: "Don't mess up the Hebrew"
+- Mom (past): "Smile for the photographer"
+- Mom (present): "Eden, I'm worried. Going to synagogue every week isn't like you"
+- Eden: "Maybe the me you knew wasn't really me"
+- Dad (background): "Let him figure it out, Miriam"
 
 ## Internal Monologue (Present)
 - "I was initiated into something I didn't understand"

@@ -63,10 +63,13 @@ Third person intimate, Eden's sensory overload
 - Eden admits he's searching
 
 ### Scene 8: After Dinner
-- Roof terrace, Jerusalem spread below
-- Sera and Eden in conversation
-- "Why did you really come?"
-- "I don't know. I had to."
+- Roof terrace overlooking Temple Mount, Jerusalem stone glowing silver
+- Sera and Eden alone, others inside singing zemirот (Shabbat songs)
+- "Why did you really come to Jerusalem?"
+- "I don't know. I had to. Like something was calling me."
+- "And now that you're here?"
+- "I'm terrified and relieved at the same time"
+- Her smile in moonlight: "That means you're listening"
 
 ## Themes
 - Sacred and secular collision

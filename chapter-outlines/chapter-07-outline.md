@@ -14,7 +14,7 @@ Third person intimate, Eden's visceral experience
 
 ## Characters
 - **Eden Stone**: Experiencing spiritual rupture
-- **Aaron Gold**: Progressive friend, texts about "both sides"
+- **Aaron Gold**: Progressive friend, civil rights lawyer applying legal framework to tragedy
 - **Miriam Stone**: Mother, calling repeatedly
 - **Slack colleagues**: Distant, analytical responses
 
@@ -33,22 +33,27 @@ Third person intimate, Eden's visceral experience
 - Parents calling - he doesn't answer
 
 ### Scene 3: Physical Response
-- Nausea that isn't hangover
-- Can't eat
-- Pacing apartment
-- Chest tightness
+- Nausea that isn't hangover - vomiting when seeing children's footage
+- Can't eat anything without gagging
+- Pacing apartment like caged animal, hyperventilating
+- Chest tightness - first time calling parents in months, desperate
+- Looking in mirror and not recognizing the face staring back
 
-### Scene 4: Aaron's Text
+### Scene 4: Aaron's Text Thread
 - "This is horrible but we need context"
-- "Colonial violence begets violence"
-- Eden's anger he can't articulate
-- Realizing his progressive framework is failing
+- "My clients face violence every day - institutional violence is still violence"
+- "Colonial violence begets violence" 
+- Aaron building case even now, hiding his own pain
+- Eden realizes Aaron's legalism is defense mechanism
+- "Why is he making arguments instead of mourning?"
 
 ### Scene 5: The Crying Child
-- One video that breaks through
-- A child calling for their parent
-- Eden sobbing unexpectedly
-- "Why does this feel personal?"
+- One video that breaks through all defenses
+- A child calling "Ima! Ima!" (Mommy in Hebrew)
+- Eden sobbing unexpectedly, choking on Hebrew word he understands
+- "Why does this feel personal? These aren't my people... are they?"
+- Hebrew words "Baruch Dayan HaEmet" escape his lips without permission
+- He doesn't know he just recited blessing said upon hearing of death
 
 ### Scene 6: Evening Darkness
 - Havdalah time (he doesn't know)
@@ -59,17 +64,23 @@ Third person intimate, Eden's visceral experience
 ## Themes
 - Collective trauma as personal awakening
 - Progressive ideology vs. tribal feeling
+- How trauma reveals authentic self vs. performed self
+- Friends as mirrors of who we used to be
 - Digital age tragedy consumption
 - The return of the repressed
 
 ## Important Details
-- Eden hasn't been to synagogue in years
-- Doesn't know anyone in Israel personally
-- His middle name "Israel" burns in his chest
-- Time distortion - hours passing in minutes
+- Eden hasn't been to synagogue since bar mitzvah
+- Doesn't know anyone in Israel personally, yet feels they're family
+- His middle name "Israel" burns in his chest like brand
+- Time distortion - hours passing in minutes, day becomes night without notice
+- Grandmother's yahrzeit (death anniversary) is today - October 7th
+- He suddenly remembers this, feels her presence in apartment
 
 ## Dialogue/Texts
 - Aaron: "We need to resist knee-jerk nationalism"
+- Aaron: "I represent oppressed people - I can't pick and choose"
+- Aaron (deleted draft): "I'm scared too but justice doesn't have exceptions"
 - Mother: "Your grandmother would be heartbroken"
 - Colleague: "Geopolitically complex situation"
 - Eden (not sent): "Why do I feel like I'm dying?"
@@ -87,12 +98,14 @@ Third person intimate, Eden's visceral experience
 - Doom-scrolling = modern lamentation
 
 ## Divine Elements (Intensifying)
-- Grandmother's yahrzeit is today (he finally remembers)
-- Phone cracks in pattern resembling Hebrew letter
-- Candles on counter seem to glow without being lit
-- 613 unread messages (number of commandments)
-- Birds silent all day (nature mourning)
-- Automatic "Baruch Dayan HaEmet" typed (he doesn't know Hebrew)
+- Grandmother's yahrzeit (October 7th) - realizes at exact moment of breakdown
+- Phone screen cracks in pattern resembling Hebrew letter Mem (מ) - water/transformation
+- Grandmother's Shabbat candlesticks glow without being lit
+- Email shows 613 unread messages (number of commandments)
+- Birds silent all day across Brooklyn (nature mourning with Jewish people)
+- Types "Baruch Dayan HaEmet" without knowing Hebrew, deletes in confusion
+- Wind rattles windows whenever he tries to scroll away from news
+- Grandmother's photo falls face-up on kitchen counter
 
 ## Foreshadowing
 - Googling synagogues
