@@ -125,8 +125,8 @@ Hesitation → Arrival → Immersion → Connection → Confrontation → Transf
 - Eden's change must feel earned
 - Balance political and spiritual
 
-## Ending
-Walking across the Brooklyn Bridge at midnight, Eden still smells candle smoke on his clothes. His phone shows seventeen missed calls from his mother, three texts from Aaron ("You okay? Saw you on the news"). He doesn't respond to any of them. Instead, he finds himself googling "synagogues Upper West Side." Then, impulsively, "How to say Kaddish." The city lights blur through tears he's not trying to stop. For the first time in his adult life, Eden Israel Stone knows exactly who his people are.
+## Ending + Micro-Tension Hook
+Walking across the Brooklyn Bridge at midnight, Eden still smells candle smoke on his clothes. His phone shows seventeen missed calls from his mother, three texts from Aaron ("You okay? Saw you on the news"). He doesn't respond to any of them. Instead, he finds himself googling "synagogues Upper West Side." Then, impulsively, "How to say Kaddish." The city lights blur through tears he's not trying to stop. For the first time in his adult life, Eden Israel Stone knows exactly who his people are. But as he reaches his apartment door, he notices something that stops him cold: a handwritten note taped to his door. In Hebrew letters he somehow recognizes but can't read. Who knows where he lives? Who knows he was at the vigil? **[HOOK: Who left the Hebrew note? What does it say? How do they know he's becoming awakened?]**
 
 ## Connection to Next Chapter
 Leads directly to Chapter 9 - attending his first Shabbat service

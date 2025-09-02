@@ -117,8 +117,8 @@ Hope → performance → recognition of emptiness → resignation
 - Daytime performance vs. nighttime performance
 - Both chapters establish exile
 
-## Ending
-They share an Uber, drop her off first. Perfunctory "I had a really nice time." Eden continues home alone, deletes her number, opens apps again, swipes without seeing.
+## Ending + Micro-Tension Hook
+They share an Uber, drop her off first. Perfunctory "I had a really nice time." Eden continues home alone, deletes her number, opens apps again. As he swipes without seeing faces, his phone buzzes with a text from his mother: "Haven't heard from you in weeks. Your grandmother would be disappointed." The words hit like ice water. He hasn't thought about his grandmother in months. Why now? He stares at the message, thumb hovering over the keyboard, unable to type a response. **[HOOK: Why is guilt hitting him now? What would grandmother be disappointed about?]**
 
 ## Connection to Next Chapter
 Leads to drinks with friends (Chapter 3) where he'll pretend the date went well

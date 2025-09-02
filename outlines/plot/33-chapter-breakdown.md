@@ -38,6 +38,7 @@
 - **Content**: October 6th - restless dreams of fire, stone walls, Hebrew letters. Foreshadowing
 - **Themes**: Unconscious calling, prophetic dreams
 - **Character State**: Anxious, sensing something coming
+- **BRIDGE TO PART II**: Chapter ends with Eden waking at exactly 5:41 AM (Israel gematria value), sensing the world has changed overnight. He checks his phone and sees the first breaking news alerts. **[TRANSITION: Personal emptiness about to become collective trauma]**
 
 ## Part II: Awakening (Chapters 7-13)
 *October 7 and Its Aftermath*
@@ -83,6 +84,7 @@
 - **Content**: Witnesses both pro-Israel and pro-Palestinian demonstrations, has tense conversations, realizes complexity
 - **Themes**: Political awakening, nuance vs. slogans
 - **Character State**: Torn, confused, needing direct truth
+- **BRIDGE TO PART III**: Chapter ends with Eden in Central Park after the protests, calling El Al airlines impulsively. "I need to go to Israel," he tells the agent. "When?" "Tomorrow." He hangs up, hands shaking. He's never made a decision this quickly in his life. **[TRANSITION: From American Jewish confusion to needing ground truth in Israel]**
 
 ## Part III: Pilgrimage (Chapters 14-20)
 *Israel, First Encounter*
@@ -128,8 +130,9 @@
 - **Content**: Realizes Israel is both miracle and wound, decides he must understand larger story
 - **Themes**: Paradox, need for broader perspective
 - **Character State**: Resolved to journey further
+- **BRIDGE TO PART IV**: Rabbi Levi appears beside Eden on Mount of Olives. "To understand Israel, you must understand the exile that created it. The civilizations that scattered us, shaped us, tested us." He hands Eden plane tickets—Athens, Rome, Berlin, Cairo. "The Jewish story isn't just in Jewish places. Go see how we survived what tried to destroy us." **[TRANSITION: From Israel-specific questions to civilizational context]**
 
-## Part IV: The Exile Journey (Chapters 21-23)
+## Part IV: The Exile Journey (Chapters 21-23)  
 *Beyond Israel - Confronting Civilizational Forces*
 
 ### Chapter 21: Athens - The Seduction of Reason
@@ -179,6 +182,7 @@
 - **Content**: Eden begins sharing what he learned. Small circle of seekers. Teaching as learning. Wisdom transmitted through story
 - **Themes**: Teacher as student, knowledge as responsibility, community building
 - **Character State**: Giving back, still growing
+- **BRIDGE TO PART V**: Chapter ends with Eden receiving unexpected call: "This is Aaron. I'm in Israel. We need to talk." Two years of silence, broken. Eden stares at Sera, who nods. "Some things require face-to-face," she says. The next morning, Aaron is at their door. **[TRANSITION: From private integration to testing through relationships]**
 
 ## Part V: Return and Teaching (Chapters 29-33)
 *Israel with New Eyes*

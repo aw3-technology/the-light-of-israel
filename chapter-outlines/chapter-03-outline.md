@@ -118,8 +118,8 @@ Work performance � social performance � political performance � recognitio
 - Progressive politics as spiritual substitute
 - Eden's alienation is internal
 
-## Ending
-Uber home alone. Group chat continues without him. Lies in bed, scrolling Twitter, feeling the weight of performed caring. Thinks: "We're all so good at analyzing why everything's broken."
+## Ending + Micro-Tension Hook
+Uber home alone. Group chat continues without him. Lies in bed, scrolling Twitter, feeling the weight of performed caring. Thinks: "We're all so good at analyzing why everything's broken." Then Aaron texts privately: "Hey man, can we grab coffee tomorrow? Just us. Need to talk about something real." The message timestamp shows **11:11 PM**. Eden stares at the double ones, remembering his grandmother used to make wishes on 11:11. Aaron never asks for "something real." **[HOOK: What does Aaron need to confess? Why is Eden thinking about grandmother again?]**
 
 ## Connection to Next Chapter
 Leads to phone call with parents (Chapter 4) - different generation's emptiness

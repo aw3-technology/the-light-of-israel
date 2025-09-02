@@ -123,8 +123,8 @@ Avoidance → Obligation → Surface connection → Deeper disconnect → Guilt 
 - Assimilation as its own exile
 - Eden complicit in distance
 
-## Ending
-Eden hangs up, unmutes Netflix. It's a show about nothing, perfect. His phone shows a text from his mom: "Forgot to mention, Grandma's yahrzeit is next month." He doesn't know what yahrzeit means. Doesn't Google it. Goes back to watching nothing.
+## Ending + Micro-Tension Hook
+Eden hangs up, unmutes Netflix. It's a show about nothing, perfect. His phone shows a text from his mom: "Forgot to mention, Grandma's yahrzeit is next month." He doesn't know what yahrzeit means. Doesn't Google it. But as he reaches for the remote, his neighbor's television through the thin walls suddenly gets louder - Hebrew singing, prayer-like. It's past 10 PM. Who plays Hebrew music this late? The melody is hauntingly familiar, like something from childhood, but he can't place it. The singing stops abruptly. Silence. **[HOOK: Why is Hebrew music playing next door? Why does it sound familiar? What memories are stirring?]**
 
 ## Connection to Next Chapter
 Leads into Chapter 5 (Flickers of Memory) - grandmother memories surfacing
