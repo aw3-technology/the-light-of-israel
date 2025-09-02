@@ -86,11 +86,20 @@ Third person intimate, Eden's visceral experience
 - Havdalah time = separation of sacred and profane
 - Doom-scrolling = modern lamentation
 
+## Divine Elements (Intensifying)
+- Grandmother's yahrzeit is today (he finally remembers)
+- Phone cracks in pattern resembling Hebrew letter
+- Candles on counter seem to glow without being lit
+- 613 unread messages (number of commandments)
+- Birds silent all day (nature mourning)
+- Automatic "Baruch Dayan HaEmet" typed (he doesn't know Hebrew)
+
 ## Foreshadowing
 - Googling synagogues
 - Feeling of being called
 - Dream imagery returning
 - Body knowing before mind
+- Searching "how to pray in Hebrew"
 
 ## Chapter Arc
 Normal Saturday → first news → escalating horror → ideological crisis → emotional break → spiritual opening

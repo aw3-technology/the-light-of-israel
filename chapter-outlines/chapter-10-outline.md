@@ -84,11 +84,20 @@ Third person intimate, Eden's perspective
 - Hidden name = hidden identity
 - Zohar = hidden light
 
+## Divine Orchestration (More Visible)
+- Rabbi was expecting him (never made appointment)
+- Book falls open to exact passage needed
+- Rabbi's study temperature perfect despite broken radiator
+- Clock stops during their conversation
+- Three other students leaving as he arrives (witnesses)
+- Rabbi mentions grandmother's exact words from dream
+
 ## Foreshadowing
 - Mention of Jerusalem
 - "You'll need Hebrew eventually"
 - "Your journey is just beginning"
 - Reference to Jewish mysticism
+- "When you're ready, the land will call you"
 
 ## Chapter Arc
 Anxiety → Recognition → Vulnerability → Teaching → Assignment → Hope

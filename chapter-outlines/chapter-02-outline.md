@@ -1,21 +1,28 @@
 # Chapter 2: The Dating App Carousel
 
+## Opening Line Options
+1. "Eden had been swiping for forty-five minutes and couldn't remember a single face."
+2. "The algorithm promised compatibility, but all Eden saw were variations of the same person, himself included."
+3. "Rachel Klein would be his thirty-seventh first date since moving to Brooklyn, not that he was counting."
+
 ## Chapter Summary
 Eden navigates the hollow world of app dating in NYC, going on a date with Rachel Klein that epitomizes his disconnection. The failure isn't dramatic - it's the slow realization that he's lost the ability to truly connect.
 
 ## Setting
-- **Primary Location**: Trendy Brooklyn wine bar
-- **Secondary Locations**: Eden's apartment (pre-date), texting locations
-- **Time**: Friday evening, late September 2023
-- **Atmosphere**: Artificial intimacy, performative connection
+- **Primary Location**: Trendy Brooklyn wine bar called "Terroir" in Park Slope
+- **Secondary Locations**: Eden's apartment (pre-date), Uber rides
+- **Time**: Friday evening, September 29, 2023, 7:30 PM
+- **Atmosphere**: Artificial intimacy, performative connection, Friday night as secular ritual
 
 ## POV
 Third person intimate, Eden's perspective
 
 ## Characters
-- **Eden Stone**: Trying to feel something
-- **Rachel Klein**: Early 30s, marketing manager, attractive, witty, secular
-- **Previous matches**: Mentioned in passing (Sarah, Jessica, Amanda)
+- **Eden Stone**: Trying to feel something, wearing his "dating uniform" (dark jeans, button-down)
+- **Rachel Klein**: 31, marketing manager at wellness startup, Northwestern grad, lives in Fort Greene
+- **Previous matches**: Mentioned in passing (Sarah the lawyer, Jessica the therapist, Amanda from JPMorgan)
+- **Bartender**: Tattooed, performatively friendly
+- **Other couples**: Mirror versions of Eden and Rachel
 
 ## Key Scenes
 
@@ -56,10 +63,14 @@ Third person intimate, Eden's perspective
 - Dating as commerce
 
 ## Important Details
-- Rachel doesn't know Eden's middle name
-- Both avoiding last names initially
-- Menu full of "artisanal" everything
+- Rachel doesn't know Eden's middle name "Israel"
+- Both avoiding last names initially (she thinks he's "just Eden")
+- Menu full of "artisanal" everything ($18 glasses of natural wine)
 - Other couples performing similar rituals
+- Rachel's profile said "Culturally Jewish"
+- Eden hasn't been on a second date in six months
+- His phone shows 47 unread Hinge messages
+- Rachel orders the orange wine (trending)
 
 ## Dialogue Highlights
 - Rachel: "I'm Jewish but not, like, Jewish Jewish, you know?"
@@ -79,10 +90,18 @@ Third person intimate, Eden's perspective
 - Rachel Klein = the assimilated path
 - Friday night = Shabbat ignored
 
+## Subtle Divine Elements
+- Wine bar's address is 613 (number of mitzvot) - unnoticed
+- Three couples leave as Eden arrives (divine clearing)
+- Rachel orders wine from Golan Heights vineyard - neither knows significance
+- Candles on table flicker when lies are told
+- Eden's Uber driver named Abraham - says "You'll find what you're looking for"
+
 ## Foreshadowing
 - Rachel mentions "crazy stuff happening in Israel" - both quickly change subject
 - Eden's grandmother's voice in his head: "A nice Jewish girl?"
 - Feeling of searching for something unnamed
+- Clock shows 9:11 when they kiss (emergency/awakening)
 
 ## Chapter Arc
 Hope → performance → recognition of emptiness → resignation
