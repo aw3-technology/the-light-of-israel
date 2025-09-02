@@ -27,10 +27,10 @@ Third person intimate, Eden's spiritual breakthrough
 ## Key Scenes
 
 ### Scene 1: Pre-Dawn Approach
-- Sera waking him at 4 AM
+- Sera waking him at **5:41 AM** (Israel gematria value)
 - "Trust me, dawn is when the wall listens"
-- Walking through empty streets
-- First birds singing (divine timing)
+- Walking through empty streets for exactly **18** minutes
+- First birds singing at **6:13** (mitzvot time - divine timing)
 
 ### Scene 2: First Glimpse
 - Wall emerging from darkness
@@ -52,10 +52,10 @@ Third person intimate, Eden's spiritual breakthrough
 - Tears immediate and unstoppable - releasing generations
 
 ### Scene 5: The Prayer
-- Hand writes Hebrew he doesn't recognize: "Hineni" (Here I am)
-- Adds in English: "I am Eden Israel Stone, and I was lost"
-- Placing it in crack with trembling hands
-- Stone seems to breathe, accepting then rejecting paper
+- Hand writes Hebrew he doesn't recognize: "Hineni" - **5 letters** (grace)
+- Prayer note contains exactly **18** Hebrew words (chai/life)
+- Adds: "I am Eden Israel Stone" - **70** letters total (universality)
+- Stone measures **36** Herodian blocks high at this section (hidden righteous)
 
 ### Scene 6: Three Returns
 - Wind from nowhere blows paper to his feet
@@ -67,10 +67,10 @@ Third person intimate, Eden's spiritual breakthrough
 ### Scene 7: Mordechai's Recognition
 - Elderly man appears beside him - Eden didn't see him approach
 - "You have Rivka's eyes, and her stubbornness with prayers"
-- "I davened beside her here every morning in 1973"
-- "She prayed for you by name: 'Eden Israel'" 
-- "'My grandson will come home,' she said. 'The Wall will call him'"
-- Mordechai's prayer shawl shimmers with impossible light
+- "I davened beside her here every morning for **18 years**" (chai/life devotion)
+- "She prayed for you **613** times by name: 'Eden Israel'" (mitzvot dedication)
+- "'The Wall will call him when he's **36**,'" she said (Eden's current age, hidden righteous)
+- Mordechai's tallit has **36** silver threads visible (tzadikim nistarim)
 
 ### Scene 8: The Underground Tunnels
 - Sera takes him below

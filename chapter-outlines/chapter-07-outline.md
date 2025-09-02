@@ -97,15 +97,16 @@ Third person intimate, Eden's visceral experience
 - Havdalah time = separation of sacred and profane
 - Doom-scrolling = modern lamentation
 
-## Divine Elements (Intensifying)
-- Grandmother's yahrzeit (October 7th) - realizes at exact moment of breakdown
-- Phone screen cracks in pattern resembling Hebrew letter Mem (מ) - water/transformation
-- Grandmother's Shabbat candlesticks glow without being lit
-- Email shows 613 unread messages (number of commandments)
-- Birds silent all day across Brooklyn (nature mourning with Jewish people)
-- Types "Baruch Dayan HaEmet" without knowing Hebrew, deletes in confusion
-- Wind rattles windows whenever he tries to scroll away from news
-- Grandmother's photo falls face-up on kitchen counter
+## Divine Elements (Intensifying) + Gematria Patterns
+- **October 7th** itself (7 = divine completion) on grandmother's yahrzeit
+- Breakdown lasts exactly **18 hours** (chai/life emerging from death)
+- Phone screen cracks in pattern resembling Hebrew letter **Mem (מ = 40)** - transformation number
+- **613 unread messages** (mitzvot calling him to purpose)
+- Grandmother's candlesticks glow at exactly **7:18 PM** (his name value)
+- News footage timestamp: **5:41 PM** when he breaks down (Israel = 541)
+- Types "Baruch Dayan HaEmet" - **18 letters total** (chai/life even in death blessing)
+- Grandmother's photo falls at **6:13 PM** (mitzvot without hundreds digit)
+- Wind rattles windows in sets of **7** (completion calling)
 
 ## Foreshadowing
 - Googling synagogues

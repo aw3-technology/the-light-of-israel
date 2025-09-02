@@ -28,11 +28,11 @@ Third person intimate, Eden between worlds
 ## Key Scenes
 
 ### Scene 1: Unexpected Access
-- Dawn walk, pulled toward Mount
-- Ahmad al-Rashid recognizes him at entrance
-- "You're the American from my dream"
-- "I was told you would come today"
-- Allowed entry, divine synchronicity
+- Dawn walk beginning at **6:13 AM** (mitzvot time)
+- Ahmad al-Rashid recognizes him at entrance - they are **36 steps** from Dome of Rock
+- "You're the American from my dream **18** nights ago" (chai/life prophecy)
+- "I was told you would come on the **7th** day" (completion)
+- Gate code requires **541** (Israel gematria value) - divine synchronicity
 
 ### Scene 2: The Ascent
 - Walking where Temple stood
@@ -61,13 +61,13 @@ Third person intimate, Eden between worlds
 - "This too is prayer"
 
 ### Scene 6: The Future Vision
-- Third Temple not of stone but of consciousness
-- All of Abraham's children ascending together in pilgrimage
-- Jewish and Arab children playing in courtyards of light
-- Palestinian and Israeli families praying side by side
-- Structure made of crystallized prayer, not stone
-- Light beings (angels) guiding worship from all traditions
-- Voice speaking in all languages simultaneously: "House of prayer for all nations"
+- Third Temple with **888 pillars** of light (Mashiach/Messianic consciousness)
+- **70 nations** represented in ascending pilgrimage (universality)
+- **36 Jewish and 36 Arab children** playing together (hidden righteous from both peoples)
+- **18 Palestinian and 18 Israeli families** praying side by side (chai/life for all)
+- Structure resonates at frequency of **613 Hz** (mitzvot made audible)
+- Light beings speaking **Hebrew gematria words** that equal peace in all languages
+- Vision lasts **7 minutes 18 seconds** (Eden's name value in time)
 
 ### Scene 7: The Understanding
 - Eden as bridge figure
@@ -117,16 +117,16 @@ Third person intimate, Eden between worlds
 - Birds = souls ascending
 - Dawn = new possibility
 
-## Divine Presence Elements
-- Access granted by divine intervention (locked gates open)
-- Ahmad receives identical vision simultaneously 
-- Perfect sunrise illuminates Dome of Rock in golden fire
-- Time stops - vision lasts hours but only minutes pass
-- Knowledge of all Jewish history downloaded instantly
-- Arabic prayers understood as if native speaker
-- YHWH's name written in light across entire Temple Mount
-- Prophetic sight: sees past, present, future as one eternal now
-- Physical sensation of divine wind (ruach) moving through space
+## Divine Presence Elements + Gematria Integration
+- Access granted when Eden speaks his full name (**718** gematria value opens spiritual lock)
+- Ahmad receives identical vision - both men **36 years old** (hidden righteous)
+- Sunrise illuminates Dome at **6:13 AM** exactly (mitzvot time)
+- Vision lasts **18 minutes** but feels eternal (chai/life expanded)
+- **613 Hebrew concepts** downloaded instantly (all mitzvot understood)
+- Arabic prayers total **541** words (Israel value in different language)
+- YHWH's name appears **72** times in light (72 names of God)
+- Both men speak **70** prophetic words simultaneously (universality)
+- Divine wind (ruach) moves in **7** distinct patterns (completion)
 
 ## The Vision's Content
 - Neither Jewish supremacy nor Muslim replacement
