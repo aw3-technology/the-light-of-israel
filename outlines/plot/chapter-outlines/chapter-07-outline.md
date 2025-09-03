@@ -74,7 +74,7 @@ Third person intimate, Eden's visceral experience
 - Doesn't know anyone in Israel personally, yet feels they're family
 - His middle name "Israel" burns in his chest like brand
 - Time distortion - hours passing in minutes, day becomes night without notice
-- Grandmother's yahrzeit (death anniversary) is today - October 7th
+- Grandmother's yahrzeit was exactly one week ago - September 30th
 - He suddenly remembers this, feels her presence in apartment
 
 ## Dialogue/Texts
@@ -98,7 +98,7 @@ Third person intimate, Eden's visceral experience
 - Doom-scrolling = modern lamentation
 
 ## Divine Elements (Intensifying) + Gematria Patterns
-- **October 7th** itself (7 = divine completion) on grandmother's yahrzeit
+- **October 7th** itself (7 = divine completion) exactly 7 days after grandmother's yahrzeit
 - Breakdown lasts exactly **18 hours** (chai/life emerging from death)
 - Phone screen cracks in pattern resembling Hebrew letter **Mem (מ = 40)** - transformation number
 - **613 unread messages** (mitzvot calling him to purpose)

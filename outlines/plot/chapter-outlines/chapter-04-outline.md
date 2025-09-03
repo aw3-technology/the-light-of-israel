@@ -112,7 +112,7 @@ Third person intimate, Eden's perspective
 - News playing silently on TV
 - Mother mentions "terrible things in the news"
 - Eden's chest tightness when "Israel" is said
-- "October is grandma's yahrzeit" (she died October 7, years ago)
+- "September is grandma's yahrzeit" (she died September 30, last year)
 
 ## Chapter Arc
 Avoidance → Obligation → Surface connection → Deeper disconnect → Guilt → Relief → Emptiness

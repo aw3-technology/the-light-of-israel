@@ -11,7 +11,7 @@ Eden experiences his first full Yom Kippur as an Israeli. The country stops, eve
 ## Setting
 - **Primary Location**: Jerusalem - empty streets, synagogue
 - **Secondary Location**: Their apartment, Western Wall
-- **Time**: Yom Kippur 2024 (September/October)
+- **Time**: Yom Kippur 2025 (October 1-2)
 - **Atmosphere**: National pause, collective introspection
 
 ## POV

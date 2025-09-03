@@ -104,7 +104,7 @@ Third person intimate, weaving between present and memory
 ## Subtle Divine Elements
 - Hasidic man finishes prayer exactly as Eden looks
 - Wind carries Hebrew song from somewhere
-- Grandmother's yahrzeit approaching (October 7)
+- Grandmother's yahrzeit today (September 30)
 - Seven memories surface (completion number)
 - Candlesticks found behind exactly 40 items (transformation)
 - Street lights flicker when he touches candlesticks

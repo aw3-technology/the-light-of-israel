@@ -82,7 +82,7 @@ Third person intimate, blurring between waking and dreaming
 ## Important Details
 - It's Shabbat (he doesn't know)
 - It's eve of Simchat Torah (celebration becomes mourning)
-- Grandmother died on October 7th, 14 years ago (he's forgotten)
+- Grandmother died on September 30th, one year ago (he's forgotten the exact date)
 - His Hebrew name means "wrestles with God"
 - Body knowing before mind
 
