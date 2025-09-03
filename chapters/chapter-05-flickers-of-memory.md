@@ -2,7 +2,7 @@
 
 The smell hit him first—brisket and rosemary and something else, something that had no translation from childhood to now.
 
-Friday morning, September 29th, the day before his grandmother's yahrzeit, though Ethan was trying not to think about that as he walked down Court Street toward the subway, trying not to think about his mother's call last night, about Amazon delivering memorial candles two days too late, about Hebrew music through walls and the word "Teshuvah" appearing in Netflix subtitles like a message from a universe he didn't believe was listening.
+Friday morning, September 29th. Court Street hummed with its usual contradictions—a woman in Lululemon arguing about oat milk specifications while a homeless veteran counted change against a Citibike rack. The day before his grandmother's yahrzeit, though Ethan was trying not to think about that as he walked toward the subway, trying not to think about his mother's call, about memorial candles arriving two days too late.
 
 But then the smell from Rosen's Bakery, unchanged since 1947 according to the sign, untouched by Brooklyn's transformation into artisanal everything—that smell reached through thirty-three years and grabbed him by the throat, by the memory, by the seven-year-old hand that had once held his grandmother's as she led him into this exact shop, though it couldn't be this exact shop, he'd grown up on Long Island, but the smell was exactly the same: challah and childhood and something sacred he'd learned to forget.
 
@@ -10,9 +10,9 @@ But then the smell from Rosen's Bakery, unchanged since 1947 according to the si
 
 Her voice in his mind so clear he turned, expecting to see her, but there was only a Hasidic man in the corner of the coffee shop next door, davening, prayer shawl moving like wings, like time, like the grandfather Ethan had never met but whose tallit this could have been, should have been, would have been if the family hadn't sold it with everything else after his grandmother died, after the shiva Ethan hadn't attended, after the forgetting began in earnest.
 
-His coffee tasted wrong. Burnt. Bitter. Like disappointment fermented into morning ritual.
+His coffee tasted wrong. Burnt. Bitter. The barista had drawn a Star of David in the foam—probably meant a leaf. He'd paid $7.50 for this accident.
 
-The Hasidic man finished his prayer exactly as Ethan looked at him, their eyes meeting for one second that felt like falling, and the man nodded—slight, knowing, the kind of nod that said *I see you, I know what you are, I know what you're running from*—before turning back to his prayer book, to his ancient conversation with God that Ethan had never learned to join.
+The Hasidic man finished his prayer, caught Ethan staring. A brief nod—acknowledgment or dismissal, Ethan couldn't tell—before turning back to his siddur.
 
 Memory One: Friday nights, age seven, his grandmother's apartment in Kew Gardens that smelled like chicken soup and furniture polish and Europe, always Europe, though she'd been in America for forty years. The candles on her dining table, two flames that seemed enormous to his child eyes, her hands circling them three times, covering her face, whispering Hebrew that sounded like singing, like crying, like love in a language he recognized but couldn't speak.
 
@@ -24,19 +24,19 @@ Memory One: Friday nights, age seven, his grandmother's apartment in Kew Gardens
 
 *"No, bubbeleh. When we light, it becomes more."*
 
-More. But more of what? His parents would pick him up an hour later, his mother checking her watch, his father jingling car keys, both of them smiling the tight smiles of adult children doing their duty, visiting the past they'd rather forget, and Friday would become just Friday again, the holy draining out of it like water from cupped hands.
+More. His parents would pick him up an hour later, his mother checking her watch, his father jingling car keys. Friday would become just Friday again.
 
-The subway platform at Borough Hall was crowded with the usual Friday morning rush, everyone pushing toward Manhattan, toward jobs that would consume them until evening when they'd reverse direction, the great breathing rhythm of the city that never asked what it was breathing for. Ethan found a spot near the edge, checking his phone—eighteen unread Slack messages, three texts from Aaron about coffee that he'd forgotten to answer, one notification from a dating app he'd deleted but somehow still haunted his phone like a digital dybbuk.
+Borough Hall platform, 8:47 AM. A busker played klezmer on a broken violin. Two teenagers filmed themselves dancing to it, adding trap beats through a Bluetooth speaker. Nobody else noticed the collision of centuries. Ethan found a spot near the edge, checking his phone—eighteen unread Slack messages, three texts from Aaron about coffee that he'd forgotten to answer, one notification from a dating app he'd deleted but somehow still haunted his phone like a digital dybbuk.
 
 The train arrived already full, bodies pressed against glass like specimens in formation. He squeezed in, found himself face to face with an elderly woman, her sleeve riding up as she gripped the pole, revealing numbers tattooed on her forearm—faded blue-black, six digits that had once meant death but now meant survival, meant witness, meant everything Ethan's family had chosen not to discuss.
 
-She looked up at him, this woman who could have been anyone's grandmother, everyone's grandmother, his grandmother if his grandmother had been caught in Poland instead of escaping to Shanghai, to America, to safety that let her grandsons grow up soft enough to forget what those numbers meant. Without thinking, Ethan stood, gestured to his seat. She looked at him for a long moment, studying his face like she was reading a familiar text in a failing light.
+The numbers. Faded but visible. She caught him looking. Neither spoke. He stood, gestured to his seat. She sat. Transaction complete.
 
 *"A dank,"* she said quietly. Thank you in Yiddish.
 
 He nodded, not trusting his voice, not sure why his throat was closing, why his eyes were burning on a Friday morning in a subway car that smelled like coffee and desperation and now, somehow, like his grandmother's apartment, like challah under a white cloth, like wine sweeter than anything sold in stores now.
 
-Memory Two: His bar mitzvah, thirteen years old, standing on the bimah at Temple Beth Shalom on Long Island, reading Torah portion he'd memorized phonetically, not understanding a word, just making sounds that pleased the adults, that fulfilled the requirement, that got him through the ritual toward the party, the checks, the transition to manhood that felt like nothing, meant nothing, except to his grandmother crying in the front row, crying like she was seeing ghosts, crying like she was seeing the future, crying like she knew he was already forgetting what he'd never really learned.
+The woman's perfume—violets and age—triggered it: his bar mitzvah. Temple Beth Shalom. Phonetic Hebrew tumbling from his mouth. His grandmother in the front row, crying. Not happy tears. Something else.
 
 *"You carry our names forward, Eiden Israel. All of them. The ones who couldn't be here."*
 
@@ -46,61 +46,75 @@ Memory Two: His bar mitzvah, thirteen years old, standing on the bimah at Temple
 
 But it wasn't enough. He could see that now, standing in the subway, holding the pole where the woman with numbers had held it, feeling the warmth of her hand still there like a blessing or a warning or both. It hadn't been enough—the phonetic Hebrew, the rented DJ, the chair they lifted him on while everyone sang songs they didn't understand. It had been a performance of Judaism, not Judaism itself. A skeleton dance, bones without flesh, tradition without transmission.
 
-At West 4th Street, half the car emptied out. Through the window, Ethan glimpsed someone who looked exactly like his grandmother—same gray coat, same way of walking with her hands clutched in front of her, same tilt of head that suggested she was listening to something only she could hear. But the woman turned and it was a stranger's face, of course it was, his grandmother had been dead for years, since he was nineteen, since that September when he'd been too busy with college to come home, too invested in becoming someone new to hold onto someone old.
+West 4th Street. Bodies shifting. Someone's elbow knocked his ribs—sharp, purposeful maybe. Through the window: gray coat, familiar walk. Not her. Never her. Dead fourteen years this September.
 
-Memory Three: The stories she'd started to tell when he was ten, eleven, old enough to understand but not old enough to bear them. Weekend visits when his parents would leave him with her while they did whatever adults did with their freedom—errands, probably, or just driving in silence, grateful for the break from performing family.
+Memory Three: The fight. He was eleven, had brought home a C in Hebrew school. His grandmother's face—not disappointed but furious, actually furious, something he'd never seen. Weekend visits when his parents would leave him with her while they did whatever adults did with their freedom—errands, probably, or just driving in silence, grateful for the break from performing family.
 
-*"In Warsaw, before, my father had a shop. Books. So many books you couldn't imagine. Hebrew, Polish, Russian, even English. The smell of paper and binding glue, I can still..."*
+*"You think this is a game? You think Hebrew is just another subject like geography?"*
 
-But then his mother would arrive, keys jangling like alarm bells.
+She'd slammed her palm on the kitchen table. The challah dough jumped.
 
-*"Mom, let's not fill his head with all that old stuff."*
+*"My father would have given anything—ANYTHING—for you to have this chance to learn. And you sit there with your video games, making mockery?"*
 
-*"It's not old stuff. It's his story."*
+*"Grandma, I—"*
 
-*"It's your story. We're Americans now."*
+*"No. You don't 'Grandma' me. You know what happened to boys who couldn't learn Hebrew where I come from? They learned it anyway. In cellars. In forests. While running. And you can't be bothered in a classroom with snacks?"*
 
-*"The soul doesn't have a passport, Sharon."*
+His mother had intervened then, keys jangling. *"Mom, he's just a kid."*
 
-*"Mom, please."*
+*"So were we all. Just kids."*
 
-And the stories would stop, would sink back into his grandmother like stones into water, leaving only ripples on her face, circles under her eyes that looked like the number zero repeated, like absence made visible, like everything that couldn't be said accumulating in her skin until she was more silence than speech, more past than present, more ghost than grandmother.
+The anger had drained from her then, leaving something worse—a terrible tiredness. She'd looked at him like she was seeing through him to some future where everything was forgotten.
 
-He got off at Spring Street, earlier than usual, needing air that wasn't recycled through underground tunnels, needing to walk even if it made him late for work, for the 10 AM standup where they'd discuss metrics that measured nothing while his grandmother's yahrzeit approached unmarked except by an Amazon delivery scheduled for Sunday, two days too late, always too late, the Stone family motto written in pixels and Prime shipping.
+Spring Street station smelled of piss and fresh bread from the bakery above. Strange combination. Everything in this city a contradiction. He climbed toward daylight. Behind him, conversation fragments:
 
-On Broome Street, a synagogue's doors stood open, two men in work clothes carrying out an old bench, renovation or removal, he couldn't tell. Through the doorway, he glimpsed the ark—dark wood, eternal light hanging above it, Torah scrolls hidden inside like secrets, like DNA, like everything he'd been taught to fear without knowing why he was afraid.
+*"She's sitting shiva for her mother."*
 
-Memory Four: Age nine, High Holidays at Temple Beth Shalom, the Torah scrolls being carried through the congregation, everyone reaching out to touch them with their prayer books, with their tallitot, with anything that could make contact with the sacred and bring it back to their lips in a kiss. His grandmother pushing him forward.
+*"What's shiva?"*
+
+*"Jewish thing. Seven days of mourning."*
+
+*"Seven days? My therapist says grief should be processed and released."*
+
+*"Yeah, well."*
+
+The 10 AM standup would start without him.
+
+Broome Street. Synagogue doors open. Men hauling out a bench—wood so old it looked soft, like you could push your thumb through it. The eternal light flickered. Bad wiring or divine commentary.
+
+The Torah scrolls passed through the congregation. Age nine, High Holidays. Everyone reaching out. His grandmother pushing him forward. Her grip too tight, leaving marks on his shoulder.
 
 *"Touch it, bubbeleh. This is yours too."*
 
-But he'd pulled back, afraid. Of what? The weight of it? The ancientness? The way the silver ornaments on top looked like crowns for a kingdom he'd never wanted to inherit? The rabbi had passed by, the moment lost, his grandmother's hand loosening on his shoulder like she was letting go of more than just his body, like she was releasing her hope that he would be the one to carry it forward, whatever it was—the tradition, the memory, the light that was always about to be extinguished but somehow never quite went out.
+He'd pulled back. The rabbi passed. Her hand loosened.
 
-*"It's okay,"* she'd said. *"Maybe next year."*
+*"It's okay. Maybe next year."*
 
-But next year he'd hidden in the bathroom during the Torah procession, and the year after that he'd stopped going altogether, and the year after that she was dead and the Torah scrolls processed without him, without her, without anyone to push children forward to touch what they didn't understand but might someday need.
+Next year: bathroom. Year after: stopped going. Year after: dead.
 
 Spring Street led to Bowery led to wandering without destination, his phone buzzing with work messages he didn't answer, with the world demanding his attention while his attention was somewhere else, somewhen else, in a past that was suddenly more present than the present, more real than the artisanal coffee shops and vintage clothing stores and all the carefully curated nothing that had replaced whatever used to be here.
 
-Memory Five: His grandmother's kitchen, age twelve, the last year before his bar mitzvah when everything changed. She was teaching him to make challah, her hands over his, showing him how to braid the dough.
+Memory Five: Disturbing. Age eight, finding her crying in the bathroom at Thanksgiving. Not gentle tears—ugly, body-shaking sobs. She was holding a photograph he'd never seen before: three children in matching sailor suits.
 
-*"Six strands, not three like some people do. Six for the days of work, braided together to make Shabbos. You see? Everything separate becomes one."*
+*"Grandma?"*
 
-*"Why don't we do this at home?"*
+She'd startled, tried to hide the photo. Too late. He'd seen the yellow stars on their coats.
 
-*"Your mother, she wants you should fit in. This is also important."*
+*"My brothers. My sister."*
 
-*"But you don't fit in."*
+*"Where are they?"*
 
-She'd looked at him then with such sadness, such love, such recognition of loss that he'd wanted to take it back, to unbraid the words like you could unbraid dough and start over.
+The look she gave him—not sad, not protective. Empty. Like looking into a room where all the furniture had been removed.
 
-*"No, bubbeleh. I don't fit. But you know what? The things that don't fit, sometimes they're the things worth keeping."*
+*"Gone. Go play, Eiden."*
 
-The dough had risen perfectly that day, golden and gleaming with egg wash, and they'd eaten it together that Friday night, just the two of them because his parents were at some function, some performance of success that required their presence more than presence required them. The challah had tasted like honey and home and something he'd never taste again because he'd never learned the recipe, never asked for it, never thought he'd need it until now, standing outside a Chase bank on Houston Street, thirty-three years old and starving for something no restaurant in Brooklyn could serve.
+He'd backed away, left her there. Never asked again. Never saw the photo again. But sometimes caught her looking at him with that same empty expression, like she was seeing through him to those other children, the ones in sailor suits, the ones who didn't get to grow up and forget.
 
-A wind picked up, carrying the sound of Hebrew singing from somewhere—a school? A synagogue? A memory? The melody was familiar but unplaceable, like hearing your name called in a crowd but not knowing who was calling or why. He followed the sound down one block, another, but it kept moving, kept shifting, always one corner away, always just out of reach, like his grandmother's stories, like the Yiddish words he'd once known, like everything that had been offered but not received, given but not taken, transmitted but not absorbed.
+Outside a Chase bank on Houston Street. A security guard was arguing with a man holding a cardboard sign: "Jewish. Hungry. Today is still today." The guard kept saying "Move along," but the man just stood there, davening slightly, sign swaying like he was at sea.
 
-Memory Six: The candlesticks. Silver, brought from Poland, hidden in a flour sack, carried through Shanghai, through ships, through customs, through decades, polished every Thursday for Friday, lit every Friday for Shabbat, except the last years when her hands shook too much, when she'd moved to the assisted living facility his parents had chosen for its proximity to doctors rather than to family, when the candlesticks had been wrapped in tissue paper and given to Ethan because he was the oldest grandchild, the bar mitzvahed one, the one who should have known what to do with them but didn't, doesn't, hasn't unwrapped them since the day she died.
+Hebrew singing from somewhere. A food truck, actually—"Moishe's Kosher Tacos"—the owner singing along to Israeli radio while assembling orders. Strange collision: *Hava Nagila* mixed with diesel exhaust and cilantro.
+
+Shanghai, 1941—no, he'd never been. But the candlesticks had. She'd told him once, just once, offhand while polishing them. Thursday night ritual. *"These saw more than silver should see."* Wouldn't elaborate. Changed the subject to his math homework. Now they sat in his closet. Tissue paper coffin.
 
 *"These were my mother's. And her mother's. And now..."*
 
@@ -110,50 +124,70 @@ Memory Six: The candlesticks. Silver, brought from Poland, hidden in a flour sac
 
 Someone will remember. But no one had. The candlesticks were in his closet, had been through three apartment moves, wrapped in the same yellowed tissue paper, behind shoes he never wore and jackets he'd forgotten he owned, buried under the sediment of a life lived on the surface while everything deep stayed dark.
 
-He checked his phone: 11:47 AM. He'd missed the standup meeting. There would be questions, concerns, a one-on-one with his manager about commitment, about presence, about being a team player. But what team was he on? What game were they playing? What was the point of optimizing user journeys when his own journey had been abandoned before it began?
+11:47 AM. Phone buzzing: Marcus from work. "Bro, where are you? Davidson's looking for blood."
 
-Memory Seven: The last time he'd seen her alive. September, fourteen years ago, his sophomore year of college. She was in the assisted living facility in Great Neck, the one with the Jewish name but no Jewish programming, the one where she was the only one who still remembered the prayers, where she lit electric candles on Friday nights because real flames were against regulations, where she'd become the memory keeper for people who'd already forgotten what they needed her to remember.
+Another text: "Coverage meeting at 2. They're talking about 'restructuring.'"
 
-*"Eiden Israel, is that you?"*
+Another: "Nevermind, I told them you had food poisoning."
 
-*"It's just Ethan, Grandma. I don't use Israel anymore."*
+Food poisoning. Not wrong, exactly. He'd been poisoned by something.
 
-*"You don't use it? It uses you, whether you want or not. A name is not a shirt you take off."*
+Great Neck Assisted Living, September 2009. Sophomore year. She'd shrunk—not just height but presence. Density. Like something essential had been extracted.
 
-*"It doesn't fit who I am anymore."*
+*"It's just Ethan, Grandma."*
 
-*"Then maybe you should become who it fits."*
+*"Names don't just disappear, Eiden."*
 
-Those were nearly her last words to him. Two weeks later, his mother had called to say she'd died in her sleep, peaceful, the yahrzeit candle she'd somehow smuggled into her room still burning beside her bed, against all regulations, against all rules, burning for twenty-four hours after her death until a nurse noticed and extinguished it, thinking it was a fire hazard, not knowing it was the last light of a world that had already been extinguished, continent by continent, family by family, memory by memory, until only these candles remained, these flames that said someone was here, someone remembered, someone refused to let the darkness win completely.
+*"I go by Ethan now."*
 
-He was on Delancey Street now, the Williamsburg Bridge visible in the distance, the East River flowing beneath it carrying the city's reflection broken into a million pieces that would never quite come back together. His phone showed thirty-seven missed Slack messages. Thirty-seven. Double chai plus one. Life doubled plus loneliness. The number had been following him—thirty-seven first dates, thirty-seven years since his grandmother had fled Poland, thirty-seven—
+*"You go. But where?"*
+
+Two weeks later: dead. Her yahrzeit candle burning illegal in the facility. Twenty-four hours before staff noticed. Small rebellion. Last light.
+
+Delancey Street. Two Orthodox boys, maybe ten years old, arguing about Pokemon cards.
+
+*"Charizard is obviously stronger."*
+
+*"Nu? But Mewtwo has psychic damage."*
+
+*"My zeyde says Pokemon is avodah zarah."*
+
+*"Your zeyde says everything is avodah zarah."*
+
+They noticed Ethan watching, went quiet, hurried past. Thirty-seven missed Slack messages now.
 
 No. That math was wrong. His grandmother had fled in 1939. It had been eighty-four years. But thirty-seven was still there, insisting on itself, demanding attention, meaning something he couldn't decode because he'd never learned the language of numbers that mattered, only the ones that measured engagement metrics and conversion rates and all the contemporary arithmetic of emptiness.
 
 The wind carried that Hebrew melody again, closer now, and he realized it was coming from his own throat—he was humming it, had been humming it for blocks without noticing, his body remembering what his mind had forgotten, his vocal cords carrying a tune his grandmother had sung while cooking, while cleaning, while dying, probably, though he hadn't been there to hear it.
 
-*"Shabbat shalom, Shabbat shalom..."*
+*"Shabbat shalom, Shabbat sha—"*
 
-The words came back incomplete, fragmented, like archaeologists finding pottery shards and trying to imagine the vessel. He knew there were more verses, more words, but they were gone, erased by years of not singing them, not hearing them, not being in places where they were sung. His grandmother had tried to teach him, Friday after Friday, but he'd been more interested in television, in video games, in anything but the ancient songs that embarrassed him with their foreign sounds, their minor keys, their insistence on memory when all he'd wanted was to forget he was different, to forget he was connected to something older than America, older than success, older than the careful assimilation his parents had worked so hard to achieve.
+Lyrics gone. Muscle memory without meaning. He knew there were more verses, more words, but they were gone, erased by years of not singing them, not hearing them, not being in places where they were sung. His grandmother had tried to teach him, Friday after Friday, but he'd been more interested in television, in video games, in anything but the ancient songs that embarrassed him with their foreign sounds, their minor keys, their insistence on memory when all he'd wanted was to forget he was different, to forget he was connected to something older than America, older than success, older than the careful assimilation his parents had worked so hard to achieve.
 
-By the time he got home—having walked all the way from SoHo, through Chinatown where his grandmother had hidden during the war though he'd only learned that from old documents after she died, through the Lower East Side where her relatives had lived in tenements that were now luxury condos, over the Manhattan Bridge with the subway thundering beside him like the voice of God if God spoke in metal and motion—by the time he got home it was already growing dark, Friday September 29th becoming Friday night, becoming almost Shabbat if anyone was counting, if anyone was marking time by something other than deadlines and deliverables.
+Home. The door stuck—humidity swelling the wood. He had to shoulder it open, three attempts, each more violent. The Thai container had leaked overnight, sweet sauce pooling on his coffee table like evidence of a life lived alone. Through his window: his neighbor's kid practicing violin. Scales. Wrong notes. Starting over. Wrong notes. Starting over.
 
-His apartment was exactly as he'd left it that morning: dark, disheveled, the Thai food container still on his coffee table like an offering to the gods of takeout, Netflix still paused on that scene with subtitles in almost-Hebrew, his laptop showing forty-three missed Slack messages now, forty-three unread emails, forty-three reasons why he should care about things that didn't matter while the one thing that might matter was wrapped in tissue paper in his closet behind exactly forty things he'd counted without meaning to, forty days and forty nights, forty years in the desert, forty the number of transformation if you believed in that sort of thing which he didn't except he was already at his closet, already moving aside the shoes and jackets and detritus of a life that had accumulated without purpose.
+The closet door hadn't been opened in months. Stuck too. Everything in this apartment resisting. He yanked. Something fell—his college diploma, glass cracked diagonal across "Bachelor of Arts." He kicked it aside, kept digging. Past running shoes worn twice. Past the jacket from his failed startup. Past the Patagonia vest every tech worker owned like a uniform of belonging.
 
-The tissue paper had yellowed to the color of aged parchment, like something from his grandmother's books, the Hebrew books his mother had mentioned were in the attic in Westchester, waiting like patient teachers for a student who might never come. Inside the paper, the candlesticks were tarnished but intact, heavier than he remembered, more real than anything else in his apartment, more solid than his flat-screen TV or his ergonomic desk chair or his carefully curated nothing.
+The tissue paper crumbled at his touch. Forty years of waiting had made it brittle. Like dried skin. Like old letters. Like his grandmother's hands the last time he'd held them. The candlesticks inside: tarnished black where the silver met air, one base dented (when? how? stories he'd never know), heavier than memory. They smelled of metal and age and his grandmother's apartment—that specific mixture of Murphy's oil soap and boiled chicken and fear never quite scrubbed away.
 
-He carried them to his kitchen counter, set them down next to his coffee maker, the sacred beside the mundane, the ancient beside the contemporary, two candlesticks that had traveled from Poland through Shanghai through Queens through Long Island through his grandmother's hands to his, carrying the DNA of Friday nights he'd never have, children he'd never teach, traditions he'd never transmit because the chain had been broken, or so he'd thought, except here they were, insisting on their presence, refusing to be forgotten, waiting like his grandmother had waited for him to remember what he'd never quite learned.
+Kitchen counter. He set them next to his Nespresso machine. One wobbled—uneven base. Had it always? In the overhead light, he could see scratches in the silver. Hebrew letters? No—just scratches. Random damage from decades of Friday nights. Or maybe from the journey: Poland to Shanghai to New York. Hidden in flour sacks, she'd said. But flour sacks where? In whose kitchen? Carried by whose hands before hers?
 
 He didn't have candles. Of course he didn't. His mother's Amazon order wouldn't arrive until Sunday. The yahrzeit would pass unmarked except by this—by holding the candlesticks, by remembering seven memories that were really one memory repeated in different keys, the memory of being loved in a language he'd refused to learn, of being claimed by a tradition he'd tried to escape, of being named Israel whether he used it or not.
 
 The street lights outside his window flickered—once, twice, seven times—like someone was signaling, like the universe was trying to tell him something in morse code, in light and darkness, in the language God used on the first day when everything was void and without form until the words were spoken: Let there be light.
 
-But Ethan didn't speak that language. Didn't know the words. Didn't have the candles.
+No candles. Of course not. He checked anyway—junk drawer, under sink, bathroom cabinet. Birthday candles from two years ago, bent and probably used. A lavender aromatherapy candle from an ex. Nothing that fit. Nothing that belonged.
 
-He stood at his kitchen counter, holding his grandmother's candlesticks, while outside Friday became Friday night became Shabbat without him, the eighteenth of something, the thirty-seventh of something else, the first of Tishrei or the last of Elul or just September 29th, 2023, the day before his grandmother's yahrzeit when he remembered what he'd forgotten but didn't know what to do with the remembering.
+Outside: Brooklyn's Friday night beginning. Sirens. Music from three different sources. Someone rolling a shopping cart with one broken wheel—rhythmic squeaking like a question asked over and over.
 
 The candlesticks caught the last light of day coming through his window, threw shadows on his wall that looked like Hebrew letters, like his grandmother's handwriting, like all the prayers he'd never learned spelling themselves out in darkness and light, waiting for someone who could read them, waiting for tomorrow's yahrzeit, waiting for Amazon Prime to deliver what had already been delivered but not received, given but not taken, offered but not accepted.
 
-Somewhere in Brooklyn, Shabbat candles were being lit. Somewhere, grandmothers were covering their eyes and blessing the light. Somewhere, children were watching and learning or watching and forgetting or not watching at all.
+From the apartment below: a child's voice. *"Mommy, why do we light candles?"*
 
-But here, in Ethan's apartment, his grandmother's candlesticks stood empty on his kitchen counter beside his coffee maker, waiting like memory waits, patient and persistent, for someone to provide the light they were made to hold.
+Muffled response. Then louder: *"Because Bubbe did."*
+
+*"But why did Bubbe?"*
+
+Silence. Or an answer too quiet to hear through floors.
+
+Ethan's candlesticks stood empty on his counter. Waiting. The dented one caught the streetlight, threw a small bright spot on his ceiling. Like a star. Like an eye. Like the first point of light before creation, when everything was void and without form, when the only choice was whether to begin.

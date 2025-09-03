@@ -50,9 +50,9 @@ The room spun slightly, or maybe Ethan spun while the room stayed still. Floor-t
 
 "To everyone who would listen and several who wouldn't. 'My Ethan,' she'd say. Always 'my Ethan,' like you were a secret she was keeping for the right moment. She worried about you. Said you had a Jewish soul in exile from itself."
 
-A book fell from a shelf—actually fell, though there'd been no earthquake, no vibration, nothing to dislodge it. It landed open on the floor between them, page 124 visible, Hebrew text Ethan couldn't read but that seemed to pulse with meaning anyway.
+A book fell from a shelf—actually fell, though there'd been no earthquake, no vibration, nothing to dislodge it. It landed open on the floor between them, page 124 visible, Hebrew text Ethan couldn't read but that seemed to pulse with meaning anyway. As he leaned to look closer, the overhead light flickered three times, then steadied.
 
-"The Zohar," Rabbi Levi said, not moving to pick it up. "The Book of Splendor. It has opinions about timing. That particular passage is about names—how they carry the essence of things, how knowing something's true name gives you a kind of power over it or, more accurately, relationship with it. Your name, Ethan, has a gematria value of 124 in one counting. The page knows you."
+"The Zohar," Rabbi Levi said, not moving to pick it up. "Printed in Mantua, 1558. Very opinionated about timing." He squinted at the page. "That section's about names—how they carry essence. Your name, Ethan, adds up to 124 in gematria. Make of that what you will."
 
 "That's not—books don't—"
 
@@ -62,15 +62,15 @@ Ethan sat. The chair embraced him like it had been waiting, shaped by decades of
 
 The rabbi poured tea from a samovar that hadn't been there a moment ago, or had always been there but Ethan hadn't noticed, the steam forming shapes that looked almost like letters before dissolving. The clock on the wall showed 7:18, which couldn't be right because it hadn't been an hour since he'd arrived, but time seemed to follow different rules in this room full of books that fell when they wanted to make a point.
 
-"So," Rabbi Levi said, settling into his own chair with the careful movements of someone who knew that rushing helped nothing. "What brought you here tonight?"
+"So," Rabbi Levi said, settling into his own chair with the careful movements of someone nursing an old back injury. "What brought you here tonight?"
 
 "I don't know. The woman at services gave me your card."
 
-"No, what brought your soul here? Your neshamah has been calling for weeks, months maybe. I could hear it during Shabbat services. Your body was sitting in the back row but your soul was pressed against the ark, trying to remember its language."
+"No, what brought your soul here? Your neshamah has been—" He paused, wincing slightly as he adjusted his position. "Sorry, old wrestling injury. From actual wrestling, not the metaphorical kind. Your soul has been calling for weeks."
 
 "I'm not religious."
 
-"Neither was Moses when the bush started burning. Neither was Jonah when the whale swallowed him. Neither was Saul until he became Paul—though that's a different story and frankly one I've never quite believed. The point is, religion isn't the point. The point is what's calling you."
+"Neither was Moses when the bush caught fire." The rabbi fumbled with his glasses, cleaning them on his shirt. "The point is, what's calling you?"
 
 "October 7th."
 
@@ -88,13 +88,13 @@ The words came out cracked, broken, like shells around something that had been w
 
 "Good. That's good. Most people think they know who they are, which prevents them from becoming who they're supposed to be. Not knowing is the beginning of wisdom. Socrates said that, though he probably stole it from the Jews. We're very quotable when we're not being difficult."
 
-Rabbi Levi pulled a volume from the shelf without looking, his hand finding it by touch or instinct or because the books arranged themselves according to need. The cover was worn leather, the Hebrew letters faded but still visible, still insisting on being read.
+Rabbi Levi pulled a volume from the shelf—the Sefer Yetzirah, Book of Creation, the binding held together with tape. His fingers traced the cracked spine tenderly.
 
-"The Zohar speaks of the ohr haganuz, the hidden light. Not hidden because it's been concealed but hidden because we've forgotten how to see it. Your depression, Ethan—and yes, I can see it, it sits on you like dust on a mirror—your depression isn't illness. Well, it might also be illness, I'm not a psychiatrist, keep taking your medication if you're taking medication. But spiritually speaking, your depression is your soul in exile from itself, knowing it has forgotten something essential but not remembering what."
+"The hidden light, ohr haganuz." He opened to a page marked with a grocery receipt. "Your depression—and yes, I can see it—" He stopped himself. "Keep taking medication if you're on it. I'm not a doctor. But sometimes depression is the soul in exile from itself."
 
 "How do you—"
 
-"Know about the medication? I don't. But I know the look. Half my congregants are on something—Prozac, Lexapro, Wellbutrin, the whole pharmacy of modern attempts to solve ancient problems with chemistry. And sometimes it helps. But sometimes what we call depression is actually grief for a self we've never met, a life we've never lived, a connection we've severed but can't stop missing."
+"Know that look? Practice." He rubbed his temple. "Half my congregants are on something. Including me, if we're being honest. Sertraline. Ten years now. Sometimes chemistry helps. But sometimes what feels like depression is grief for a self we've never met."
 
 The book on the floor had closed itself, or the draft had closed it, or Ethan was losing his mind in this room where physics seemed negotiable. The rabbi noticed his glance and smiled.
 
@@ -106,15 +106,15 @@ He handed Ethan a piece of paper, photocopied from something older, Hebrew on on
 
 "You're comparing Torah to software?"
 
-"Why not? Both are systems for processing reality. Both require updates. Both can crash if you don't maintain them properly. The difference is Torah's been in beta for three thousand years and we're still finding new features."
+"Why not? Both are systems for processing reality. Both can—" His phone buzzed. He glanced at it, frowned. "Sorry, my daughter. She's having a crisis about her bat mitzvah Torah portion. Sixteen texts about whether Leviticus is relevant to climate change." He silenced the phone. "Where were we?"
 
-Ethan folded the paper once, twice, small enough to fit in his wallet behind the credit cards and business cards and all the other rectangles that defined his rectangular life. The rabbi watched him with the patience of someone who had nowhere else to be, even though other students were probably waiting, other souls circling the building, other middle names needing to be spoken aloud after years of silence.
+Ethan folded the paper once, twice, small enough to fit in his wallet. The rabbi watched him, then glanced at the clock and suppressed a sigh. Through the door, Ethan could hear footsteps—another student waiting.
 
-"Come back Thursday. After you've read it. We'll study properly then. For now, just know this—your grandmother was right to name you Israel. It means 'wrestles with God,' and that's what you've been doing your whole life, even when you thought you were just wrestling with yourself. Especially then."
+"Come back Thursday. After you've read it. We'll study properly then." The rabbi stood, his back clearly bothering him. "Your grandmother was right to name you Israel. Means 'wrestles with God.'"
 
 "I don't believe in God."
 
-"That's fine. God believes in you. Asked me to tell you that specifically. Well, not in words. God doesn't really do words, despite what the fundamentalists think. More like... cosmic post-it notes. Synchronicities. Books falling at the right moment. You showing up exactly when you're supposed to."
+"That's fine. God believes in you." He paused at his own words, looking slightly embarrassed. "Sorry, that sounded less cliché in my head. What I mean is—" Another knock at the door. "Thursday. We'll talk Thursday."
 
 The clock showed 7:41, which meant twenty-three minutes had passed, though it felt like hours, like years, like no time at all. The rabbi stood, the signal clear that this first meeting was ending, though something else was beginning, had already begun, had maybe been in motion since Ethan's grandmother whispered his three names over his newborn head thirty-three years ago.
 
@@ -122,13 +122,13 @@ The clock showed 7:41, which meant twenty-three minutes had passed, though it fe
 
 "It's the number of mitzvot. Commandments. Though commandment is a terrible translation. Mitzvot are more like... connections. Points of contact between the finite and infinite. Your grandmother did them all, in her way, through speaking your name. Made you holy through repetition. Sanctified you through sound. It's very Jewish, turning anxiety into prayer. We're professionals at it."
 
-The hallway seemed shorter walking out, as if the building had decided he'd passed some test and didn't need the extra distance to think. The secretary was gone, her desk lamp still on, tea glass empty except for sugar cube residue that looked like crystallized light.
+The hallway seemed shorter walking out. The secretary was gone, her desk lamp still on, tea glass empty except for sugar cube residue. A Talmud lay open beside it—Tractate Berakhot, the section on evening prayers, marginalia in three different hands spanning decades.
 
 Outside, the October night had turned properly cold, autumn asserting itself against the lingering warmth of climate change. The thirty-six steps down felt different—not like descent but like integration, each step incorporating something, accepting something, allowing something that had been kept out to come in.
 
-His phone showed 8:17, which couldn't be right because he'd entered at 6:13 and been inside for... how long? Time wasn't working properly, or was working according to different rules, Jewish time maybe, where the Sabbath arrives at different moments depending on your latitude and longitude, where holidays begin at sundown because darkness comes before light in the Genesis account, where a year can contain centuries and a moment can contain eternity.
+His phone showed 8:17, which couldn't be right because he'd entered at 6:13 and been inside for... how long? He checked his phone again. Still 8:17. Then 8:18. Time resuming its normal flow, or pretending to.
 
-The N train came immediately, as if summoned. The car was nearly empty, just him and an elderly Black woman reading a Hebrew Bible, her finger tracking right to left, her lips moving silently with words that had been spoken silently on subways and in secret for longer than New York had been New York.
+The N train came immediately, as if summoned. The car was nearly empty, just him and an elderly Black woman reading a Hebrew Bible—the Koren edition with Rashi commentary, her finger tracking right to left, her lips moving silently.
 
 She looked up as he sat down, studied his face with the fearlessness of age, then smiled.
 
@@ -170,9 +170,7 @@ He opened his laptop, then closed it. Opened his work email, then closed that to
 
 Thursday, the rabbi had said. Come back Thursday.
 
-Ethan looked at his calendar, the Thursday slot marked with three meetings about user engagement optimization. He opened the calendar, selected all three meetings, and without thinking too much about consequences or explanations or the optimization of anything, clicked decline.
-
-Thursday. After he'd read the psalm. After the rivers of Babylon had run through his dreams for two nights. After whatever was happening finished happening or started happening or revealed itself as having been happening all along, hidden like light, waiting for eyes that knew how to see it.
+Ethan looked at his calendar, the Thursday slot marked with three meetings about user engagement optimization. He opened the calendar, selected all three meetings, and clicked decline.
 
 The candles in their tarnished holders caught the overhead light and threw it back changed, transformed, made holy by reflection if holy was a word that meant anything, which it didn't, which it did, which it might, Thursday, after the psalm, after the rivers, after the remembering that felt like forgetting everything he'd thought he'd known.
 

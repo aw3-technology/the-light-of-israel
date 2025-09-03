@@ -78,9 +78,13 @@ Her hand found his across the gear shift—not romantic but necessary, the compl
 
 Jerusalem embraced them with Friday afternoon urgency—everyone rushing to prepare, to arrive, to transform before sunset divided sacred from ordinary, work from rest, the week that was from the week to come. Her apartment—she'd finally invited him—was small but high, windows facing the Old City where the walls caught last light like vessels, like the Jerusalem stone was designed to hold illumination, to glow, to remind everyone that this city was built from light solidified, from prayers made physical, from the accumulated yearning of everyone who'd ever faced this direction and whispered "next year."
 
-They prepared for Shabbat together—she guiding his hands on the candles, teaching him the prayers not as performance but as technology, ancient software for transforming time, for making the ordinary extraordinary, for creating islands of peace in seas of chaos.
+Her apartment was smaller than he'd imagined, crammed with books in three languages. She lit candles while he watched, still unsure of his place in this ritual, in this apartment, in this country that demanded everything and promised nothing except more complications.
 
-"You smell like the Dead Sea," she laughed as they stood before the candles, salt still in their hair despite showers, the minerals worked into their skin like memory, like blessing, like the reminder that they'd been to the lowest place and risen, that falling could be floating if you just stopped fighting, if you just let the water hold you, if you just trusted that something would catch you even when catching seemed impossible.
+"The salt won't come out for days," she said, examining her hands in the candlelight. "It gets into your skin. Changes you at a molecular level."
+
+"Is that scientifically accurate?"
+
+"Nothing here is scientifically accurate. We're lighting candles to separate sacred from ordinary time. Science left the building."
 
 "You smell like life," he responded, surprising himself with certainty that came from somewhere deeper than thought, from the place where his body had learned to float, where his skin had been renewed, where his heart had broken and been held and was still breaking and being held and would continue breaking and being held because that's what hearts did when they finally started working again after years of careful numbness.
 
@@ -94,10 +98,16 @@ His phone was off—the first Shabbat he'd ever properly observed, the first tim
 
 His soul was on—that was the only way to describe it, the sensation of being fully present, fully in his body that had floated and been held and was still floating, still being held by forces he didn't understand but no longer needed to, could just accept, could just receive, could just be grateful for without requiring explanation.
 
-"The lowest point on earth taught me to rise," he said, the words emerging like discovery, like prayer, like the understanding that sometimes you had to go all the way down before you could begin ascending, had to touch bottom before you could push off, had to die like the Dead Sea before you could live like the living he was finally, finally starting to become.
+"Today was hard," he said.
 
-Sera smiled, raised her glass, the candlelight making her eyes depths he wanted to explore, wanted to float in, wanted to trust to hold him the way the Dead Sea had, completely, impossibly, absolutely.
+"Everything here is hard. That's why Israelis are assholes. We're all covered in salt from floating in impossibility."
 
-"L'chaim," she said.
+"But you still float."
 
-"To life," he responded, and meant it for the first time since his grandmother's death, meant it with his whole body that still tasted salt, still felt the impression of ancient water, still carried minerals from the lowest place that were somehow lifting him higher than he'd ever been, toward something that might be love, might be home, might be the life he'd been refusing but which had been waiting, patient as the Dead Sea, for him to finally stop fighting and float.
+"We have to. The alternative is drowning, and the Dead Sea won't even let you do that properly."
+
+She raised her wine glass. The Jerusalem stone of her apartment walls glowed gold in the candlelight. Outside, the muezzin's call wound through streets where the city was transforming itself for Shabbat, where time was dividing itself into sacred and ordinary, where nothing was simple except the necessity of continuing.
+
+"L'chaim," she said. "To life, even when it's complicated."
+
+"Especially then," he answered, and found he meant it.

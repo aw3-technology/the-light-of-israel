@@ -4,7 +4,7 @@ At Auschwitz, the birds sang, and that was the most obscene thing of all.
 
 Ethan stood at the gate, December morning frost making the infamous words gleam: Arbeit macht frei. Work makes free. The lie cast in iron, preserved like evidence, while sparrows chirped in nearby trees as if this were just another place, just another morning, just another lie humans told themselves to make murder feel like policy.
 
-Tour groups gathered around him—school children with bored expressions, Americans with cameras, Israelis wrapped in flags. A young Polish guide named Magda smiled as she counted her group, her cheerfulness so incongruous that Ethan had to look away. How did anyone smile here? How did birds sing? How did the sun have the audacity to shine on ground that had swallowed so much darkness?
+Tour groups gathered around him—school children with solemn expressions, Americans with cameras, Israelis wrapped in flags. A young Polish guide spoke in hushed tones as she counted her group, her professionalism a thin barrier against the weight of this place. How did anyone smile here? How did birds sing? How did the sun have the audacity to shine on ground that had swallowed so much darkness?
 
 He separated from his assigned group, needing to walk alone through this anti-Jerusalem, this place where presence became absence, where industry perfected extinction, where his grandmother's world had been processed into smoke.
 
@@ -50,7 +50,7 @@ The driver, arranged through the hotel, knew why tourists went to Brzeziny. "Not
 
 "Had," Ethan corrected, though even that felt uncertain. How do you claim family you never knew, whose absence shaped you more than any presence could?
 
-Brzeziny revealed itself slowly—first outlying farms, then Soviet-era apartments, finally an old town center where cobblestones remembered more than they could tell. No signs indicated Jewish history. No monuments marked absence. Just a Polish town that had been half-Jewish for five hundred years and then, in one October day in 1942, wasn't.
+Brzeziny revealed itself slowly—first outlying farms, then concrete apartment blocks, finally an old town center where cobblestones remembered more than they could tell. No signs indicated Jewish history. No monuments marked absence. Just a Polish town that had been half-Jewish for five hundred years and then, in one October day in 1942, wasn't.
 
 The church stood where the synagogue had been, its walls incorporating stones that still bore traces of Hebrew letters, palimpsest of erasure. The priest, when asked, knew nothing about Jews. "Before my time," he said, though the mezuzah marks on nearby doorframes suggested that forgetting was a choice, not chronology.
 
@@ -92,7 +92,7 @@ The road to the forest was unpaved, unwanted, leading nowhere anyone wished to g
 
 The clearing was unmarked except for a stone Stanisław had placed there himself in 1962, when he'd finally saved enough money. Simple Polish on one side: "Here lie 2,000 Jews of Brzeziny." Hebrew on the other: "May their memory be a blessing."
 
-"October 15, 1942," Stanisław said. "I watched from the Nowaks' attic window. The whole town marched past. Everyone. Babies, grandmothers, the rabbi, the doctor, the fools, the wise, everyone. They made them dig. Then they shot them. Layer by layer. It took all day. The Germans were very efficient, but killing two thousand people still takes time."
+"October 28, 1942," Stanisław said. "I watched from the Nowaks' attic window. The whole town marched past. Everyone. Babies, grandmothers, the rabbi, the doctor, the fools, the wise, everyone. They made them dig. Then they shot them. Layer by layer. It took all day. The Germans were very efficient, but killing two thousand people still takes time."
 
 The trees around the clearing stood like witnesses, their silence so complete it seemed intentional. No birds here. No wind. Nature itself holding its breath.
 
@@ -102,7 +102,7 @@ Ethan began the ancient words, the Aramaic emerging as if it had been waiting in
 
 The wind that hadn't been blowing stopped completely. The silence deepened beyond absence of sound into presence of listening. He spoke the names he knew—Steinberg, Rosen, Goldberg—and the prayer seemed to pull more names from the ground itself, from the trees, from the ice-heavy air.
 
-When he finished, three stars were visible in the afternoon sky. Impossible, but there—three points of light in daylight, the traditional sign that Shabbat had begun, though it was Tuesday, though it was afternoon, though nothing about this place obeyed natural law anymore.
+When he finished, the December dusk was gathering, winter's early darkness settling over the forest like a shroud. The traditional three stars that marked day's end were just becoming visible, though nothing about this place obeyed natural law anymore.
 
 ## The Hidden Mikvah
 
@@ -142,7 +142,7 @@ The guard, young enough to be his daughter, looked at his face, at his American 
 
 "Rodzina," she said softly. Family. She sealed the bag, marked it with special tape. "No one will open this."
 
-On the plane to Cairo—the next stop in his reverse exodus, his journey through Jewish geography of exile and return—Ethan held the bag in his lap like the child he'd never have, like the past he'd never known, like the absence that would always be more present than any presence.
+On the plane to Tel Aviv—the next stop in his journey through Jewish geography of exile and return—Ethan held the bag in his lap like the child he'd never have, like the past he'd never known, like the absence that would always be more present than any presence.
 
 He texted Sera: "I found them. I found the absence of them."
 

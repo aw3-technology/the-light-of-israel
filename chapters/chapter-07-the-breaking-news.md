@@ -2,7 +2,7 @@
 
 The notification popped up at 10:47 AM, innocent as a weather alert.
 
-Ethan had woken late on Saturday, October 7th, head thick from Friday night drinks at another Williamsburg bar where everyone talked about their therapists and startup pivots while the world turned outside their awareness. His phone face-down on the nightstand, he'd managed three full minutes of consciousness before reaching for it—a personal record of delayed digital dependence he'd immediately undone by opening Twitter, the muscle memory stronger than any intention to start his mornings differently.
+Ethan had woken late on Saturday morning, October 7th—Simchat Torah, though he wouldn't realize the significance until later—head thick from Friday night drinks at another Williamsburg bar where everyone talked about their therapists and startup pivots while the world turned outside their awareness. His phone face-down on the nightstand, he'd managed three full minutes of consciousness before reaching for it—a personal record of delayed digital dependence he'd immediately undone by opening Twitter, the muscle memory stronger than any intention to start his mornings differently.
 
 Coffee first, he'd told himself, padding to the kitchen in yesterday's t-shirt, the automatic pour-over ritual buying him five more minutes of pretense that this Saturday would be different from every other Saturday. Ethiopian single origin, eighteen dollars a bag, ground to the precise coarseness his expensive burr grinder recommended for optimal extraction. The smell hit him wrong—too bitter, too much like emergency.
 
@@ -20,7 +20,7 @@ Ethan set his coffee down. His hand was shaking.
 
 Refresh. More videos. More headlines updating by the second. "Hundreds dead" became "unprecedented attack" became "massacre" became numbers climbing like a slot machine of horror—except every number was a person, every person was someone's everything, and something inside Ethan was cracking like ice over deep water.
 
-A video autoplayed: a young woman at a music festival, her last Instagram story. She was dancing, laughing, alive in the way only twenty-somethings at sunrise can be alive. The timestamp: three hours ago. The caption: "Perfect morning." The next video: the same field, smoke and running and sounds that shouldn't exist in the same universe as dancing.
+A video autoplayed: a young woman at a music festival, her last Instagram story. She was dancing, laughing, alive in the way only twenty-somethings at sunrise can be alive. The timestamp: 6:29 AM Israel time. The caption: "Perfect morning." The next video: the same field, smoke and running and sounds that shouldn't exist in the same universe as dancing.
 
 Ethan made it to the bathroom just in time. The vomit came sudden and violent, his body rejecting not just last night's whiskey but something deeper—some fundamental wrongness that his stomach recognized before his mind could process it. He gripped the toilet rim, his whole body shaking, and heard himself make a sound he'd never made before—something between a sob and a scream, primal and embarrassing and absolutely necessary.
 
@@ -102,7 +102,7 @@ Opened it again.
 
 Closed it.
 
-Outside, October 7th was ending, though its reverberations would never stop. Somewhere, families were gathering to wait for news. Somewhere, bodies were being identified. Somewhere, the ordinary world was continuing its ordinary course, and somewhere else—right here, in this apartment, in this body that had surprised him with its capacity for ancient grief—something was ending and something else was beginning, though Ethan wouldn't understand what until much later.
+Outside, the Sabbath was ending, October 7th becoming October 8th, though its reverberations would never stop. Somewhere, families were gathering to wait for news. Somewhere, bodies were being identified. Somewhere, the ordinary world was continuing its ordinary course, and somewhere else—right here, in this apartment, in this body that had surprised him with its capacity for ancient grief—something was ending and something else was beginning, though Ethan wouldn't understand what until much later.
 
 He stood at his window, laptop in hand, synagogue page still open, and felt the full weight of his name for the first time: Ethan Israel Stone. Ethan meant strong in Hebrew—he'd googled it once, dismissed it as coincidence. Israel meant wrestles with God—his hidden middle name suddenly feeling like prophecy. Stone—the weight he'd always carried now revealing itself as foundation, something to build on rather than sink beneath.
 

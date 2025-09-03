@@ -2,13 +2,13 @@
 
 His passport trembled in his hands as the Israeli officer asked, "First time home?"
 
-Ben Gurion Airport, November 15th, 2023, 5:41 AM—the numbers again, Israel in gematria, following him across oceans, through time zones, into this fluorescent liminal space where his American passport said "Stone, Ethan Israel" and the young woman behind bulletproof glass studied his middle name like archaeology, like prophecy, like the return she'd been trained to recognize in faces that didn't know they were returning.
+Ben Gurion Airport, November 15th, 2023, 5:41 AM. His American passport said "Stone, Ethan Israel" and the young woman behind bulletproof glass studied his middle name for a long moment.
 
 "Purpose of visit?" Her English carried Hebrew underneath it, the accent that made questions sound like challenges, like tests, like the beginning of arguments that might become agreements if you wrestled long enough.
 
 "I don't know."
 
-Wrong answer for immigration, right answer for everything else. She looked up from his passport, really looked, seeing not the thirty-three-year-old product manager who'd boarded at JFK but something else, someone else, the shape of return that October 7th had carved into faces worldwide, Jews discovering they were Jews, discovering Israel was theirs to defend or at least to witness, to grieve with, to stand beside in the standing that mattered more than understanding.
+Wrong answer for immigration. She looked up from his passport, studying his face like a map she'd seen before.
 
 "Family?"
 
@@ -22,17 +22,17 @@ Wrong answer for immigration, right answer for everything else. She looked up fr
 
 "Finished with business."
 
-She smiled—not the customer service smile of American authority but something realer, sadder, more true. Her stamp came down hard: November 15, 2023, entry permitted, welcome home to a home you've never seen, welcome back to a back you've never been, welcome to the wrestling that your name always promised you'd have to do.
+She smiled—tired, knowing. Her stamp came down hard: November 15, 2023.
 
 "Next."
 
-But her hand lingered on his passport an extra second, pushing it toward him with something that wasn't quite blessing but wasn't not blessing either, the gesture of someone who'd been stamping returns since October 8th, watching the diaspora discover it wasn't as distant as it thought, wasn't as safe as it pretended, wasn't as separate as a hundred years of American dreams had promised.
+But her hand lingered on his passport an extra second before sliding it back.
 
-The arrivals hall erupted in Hebrew—signs, announcements, conversations that sounded like arguments but were probably about coffee, about weather, about the normal that insisted on continuing even after October 7th, especially after, defiantly after. Ethan stood in the flow of bodies that knew where they were going, let himself be carried like driftwood, like tradition, like the inheritance he'd never claimed but that had apparently been accumulating interest, waiting for this moment when his feet would touch the ground his grandmother had only dreamed of, prayed toward, died without seeing.
+The arrivals hall erupted in Hebrew—a family reuniting with shrieks and kissing of both cheeks, three times, not the European two. A businessman arguing into his phone while his other hand gestured wildly, conducting an invisible orchestra. Two soldiers, M16s slung casual as backpacks, debating what sounded violent but was probably about falafel versus shawarma. The way everyone stood too close, talked too loud, touched too much—like New York if New York admitted it needed physical contact to survive.
 
 "Taxi? You need taxi?"
 
-Moshe—according to his license displayed on the dashboard, photographed in younger days when his hair existed and his cynicism hadn't yet achieved its current perfection. The Mercedes smelled like cigarettes and pine air freshener and something else, something particularly Israeli that Ethan would later recognize as the smell of endurance, of persistence, of existing despite everything, because of everything, through everything.
+Moshe—according to his license, photographed in 1987 when he still had his Moroccan curls, before the Lebanon War took his oldest son's hearing and his own hair. The Mercedes smelled like Noblesse cigarettes and pine air freshener fighting a losing battle against forty years of accumulated arguments, coffee spills, and the ghosts of ten thousand airport runs.
 
 "Where to?"
 
@@ -40,7 +40,7 @@ Moshe—according to his license displayed on the dashboard, photographed in you
 
 "Any hotel? What are you, rich? Specific hotel. I take you to my cousin's place, good price, close to beach. You look like you need beach."
 
-The highway from the airport revealed Israel in layers—industrial zones, apartment blocks, construction cranes building the future next to ruins nobody had bothered to demolish, everything existing simultaneously like tenses in Hebrew where past, present, and future conjugated differently than English allowed, where time folded into itself like challah, like prayer shawls, like the geography that contained millennia in every meter.
+They passed Lod, where palm trees grew next to Soviet-style apartment blocks. A Bedouin man sold watermelons from a truck marked in Arabic, Hebrew, and Russian. Construction cranes everywhere, building on top of Ottoman ruins on top of Crusader stones on top of Herodian walls—the archaeology of stubbornness.
 
 "First time?" Moshe navigated traffic like warfare, like ballet, like the choreography of survival that required aggression and grace in equal measure.
 
@@ -50,7 +50,7 @@ The highway from the airport revealed Israel in layers—industrial zones, apart
 
 "I'm discovering that."
 
-"Discovering?" Moshe laughed, the sound like gravel in a blender, like happiness that had been through several processing plants and come out changed but not destroyed. "You don't discover Jewish. Jewish discovers you. Like tax audit. Like military service. Like death—comes whether you're ready or not."
+"Discovering?" Moshe laughed, swerving around a Vespa carrying three people and a washing machine. "My grandmother from Casablanca, she used to say—'You can change your name, your nose, your country. But Friday night, the candles know who you are.' She lit them even in the transit camp, '51. Mud floors, but Shabbat is Shabbat."
 
 The radio played news in Hebrew, the cadence urgent even without comprehension, October 7th mentioned in numbers Ethan recognized—sheva b'October—the date becoming international, translingual, the Esperanto of grief that required no translation, only recognition, only the nod that said yes, I know, we all know, we're all October 7th now.
 
@@ -58,13 +58,13 @@ The radio played news in Hebrew, the cadence urgent even without comprehension, 
 
 "No. Maybe. Everyone's family now, right?"
 
-"After October 7th? Yes. Everyone's family. Everyone's sitting shiva. Everyone's checking phones. You know what? I give you Israeli price, not tourist price. You're not tourist. Tourist comes to see. You came to feel. Different price for feeling."
+Moshe adjusted his prayer beads hanging from the mirror—Muslim? Jewish? "My daughter, she's at the Nova festival site every Friday now. Setting up chairs. Lighting candles. Her friend Shani was there, October 7th. Twenty-two years old. Was." He merged aggressively into traffic. "So yes, everyone's family. Family price for you."
 
-Tel Aviv materialized through morning haze—white Bauhaus buildings like thoughts in concrete, like modernism made manifest, like Europe's architectural dreams that had fled to this shore and gotten sun-bleached, salt-worn, transformed by Mediterranean light into something that was neither European nor Middle Eastern but impossibly both, impossibly neither, impossibly itself.
+Tel Aviv materialized through morning haze—the white Bauhaus buildings of Rothschild Boulevard sun-bleached and salt-worn. A juice bar next to a synagogue next to a sex shop next to a hummus place that had been there since '48. Everyone on electric scooters, including a grandmother with her groceries balanced impossibly on the handlebars.
 
-"Dizengoff Street," Moshe announced, pulling up to a hotel that looked like it had been designed in 1965 and hadn't noticed fifty years had passed. "My cousin Avi runs it. Tell him Moshe sent you. He'll still overcharge but less. This is Israeli hospitality—we rob you like family."
+"The Cinema Hotel, Dizengoff 209," Moshe announced, pulling up to a building that still had its original 1960s sign in Hebrew and English. "My cousin Avi bought it from the Russians who bought it from the Romanians. Tell him Moshe from the Tuesday poker game sent you. Don't mention I owe him 800 shekels."
 
-The hotel lobby contained the entire aesthetic history of Israel—Ottoman tiles, British Mandate furniture, socialist kibbutz art, startup nation WiFi passwords, everything accumulated rather than curated, existence as collection, as collision, as the inability to throw anything away because who knew when you'd need it, when history would circle back, when the past would become suddenly, urgently relevant again.
+The hotel lobby contained decades of accumulation—Ottoman tiles, British Mandate furniture, a kibbutz-era mural of workers, a sign for WiFi in six languages.
 
 "You came now?" The desk clerk—not Avi but someone younger, maybe twenty-five, maybe just back from army service, maybe still processing his own October 7th—handed over a key attached to a plastic palm tree, the kitsch somehow profound, the paradise promised despite everything. "After everything that happened, you came now?"
 
@@ -84,9 +84,9 @@ Ethan opened the window and salt air entered like homecoming, like recognition, 
 
 The beach was five minutes away but took thirty to reach—Ethan stopping at every Hebrew sign, trying to decode letters that looked like mathematics, like music notation, like the visual representation of wrestling itself, all angles and arguments, lines that refused to curve, curves that insisted on angularity, the alphabet of a people who'd learned to make everything difficult because easy had never been offered, never been possible, never been the point.
 
-The sand was full of November Israelis refusing to accept November—volleyball at 7 AM, yoga circles, elderly women in swimming caps doing vigorous breast stroke, soldiers on leave, their rifles casual as backpacks, everyone performing the great Israeli theater of normalcy, of continuity, of life that wouldn't let death win, wouldn't let October 7th define, wouldn't let fear determine the boundaries of possible.
+The sand at Frishman Beach already crowded at 7 AM—matkot players whacking balls with wooden paddles, the percussion of Israeli mornings. Russian women in swimming caps doing synchronized aqua aerobics. A group of Eritrean refugees teaching their kids to swim. The lifeguard tower covered in October 7th memorial stickers, but the lifeguard himself telling jokes, flirting, living.
 
-He touched the water like ritual, like mikvah, like baptism in reverse—not cleansing but claiming, not purification but complication, the Mediterranean receiving his fingers, his hands, his feet as he waded in dress pants because he hadn't thought to change, hadn't thought at all, had just walked from hotel to water like magnetism, like gravity, like the pull that had brought Jews to this shore for three thousand years, that had brought him now, October 7th making geography urgent, making distance collapse, making the diaspora discover it had only been postponing this moment, this water, this recognition that some returns weren't choices but inevitabilities.
+He touched the water and it was warmer than the Atlantic in July, saltier than tears. The Mediterranean didn't care about his dress pants, his American anxiety, his grandmother's dreams. It just was—ancient and immediate, the same water that had carried Phoenician ships, Roman galleys, refugee boats from Europe, surfboards this morning.
 
 "American?" A woman jogging past, sports bra and combat boots, the Israeli combination of fitness and readiness that made every citizen look like they were training for something, which they were, which they'd always been, which October 7th had reminded everyone they'd never stopped being.
 
@@ -104,9 +104,9 @@ Was he crying? His face was wet but that could have been sea spray, sweat, the h
 
 "I'm arriving."
 
-She jogged on, combat boots leaving prints in sand that the next wave erased, the Mediterranean keeping no records, holding no grudges, accepting everyone equally—Jew, Arab, tourist, pilgrim, the confused American standing waist-deep in water that was bluer than blue should be, warmer than November should allow, more home than home had ever felt.
+She jogged on toward Gordon Beach, where the drummers would gather at sunset like they did every Friday, the same rhythm since the 90s, the same circle that kept reforming no matter who left, who died, who October 7th had taken.
 
-Breakfast happened at a café where the menu came in Hebrew he couldn't read, English he didn't trust, and Russian that surprised him until he looked around and realized half of Tel Aviv was Russian, or Ethiopian, or Moroccan, or Yemeni, the gathering of the exiled that had been gathering since 1948, since forever, since the idea of gathering became necessary which was the moment of first dispersal, the mathematics of return that calculated belonging in languages, in skin tones, in the way everyone ordered shakshuka differently but recognized it as the same dish, the same mixing, the same eggs broken into the same tomatoes that tasted like the Middle East, like mixture itself, like the inability to separate ingredients once they'd been cooked together long enough.
+Breakfast at Café Bucke on Ibn Gabirol Street—plastic chairs, fluorescent lights, a photograph of the owner's grandmother from Thessaloniki. The menu in Hebrew, handwritten additions in Russian, the waitress switching between Arabic with the kitchen and English with tourists. An Ethiopian family at the next table eating injera with their shakshuka. Two Russian grandmothers arguing over newspapers. A table of tech workers, all on laptops, could have been in Williamsburg except for the M16 leaning against one chair.
 
 "You're American." The waiter, twenty-something with army stories in his posture, unnecessary sunglasses, the affected casualness that came from having been very uncasual very recently.
 
@@ -114,15 +114,15 @@ Breakfast happened at a café where the menu came in Hebrew he couldn't read, En
 
 "But Jewish American. After October 7th. So not really American anymore, right? Now you're ours."
 
-Ours. The possession that was also invitation, also accusation, also the recognition that October 7th had reorganized citizenship, had made geography emotional, had reminded everyone that Jewish meant something beyond religion, beyond culture, beyond the careful distances America had promised would hold.
+Ours. The word hung between them like humidity.
 
-The shakshuka came with bread he didn't recognize, olives that tasted different than olives, coffee that was somehow Turkish and Italian and Israeli, everything borrowed, everything transformed, everything made Israeli by being consumed in Israel, by being served by Israeli hands, by being eaten while Hebrew conversations created a soundtrack that didn't need translation to communicate urgency, intensity, the sense that every discussion was about survival even when it was about football, about weather, about the price of cottage cheese.
+The shakshuka came in a scratched skillet, bread still warm from the taboon oven, green olives from someone's uncle's farm near Ramla. Harissa on the side without asking—they could tell he needed it. The coffee came in a glass, Turkish style but served with milk foam like cappuccino, the Israeli inability to choose between traditions.
 
 "How long you stay?" the waiter asked when Ethan paid, the bill handwritten, calculated in his head, the casual mathematics of a country where everyone could count, could calculate, could figure the angles necessary to make things work.
 
 "I don't know."
 
-"Nobody knows. Since October 7th, nobody makes plans past tomorrow. But tomorrow—tomorrow you should see Jaffa. Old city. Where Jonah ran from God. Good humus there. Also good to remember—even prophets tried to escape. But the whale always finds you."
+"Nobody knows. Since October 7th, nobody makes plans past tomorrow. But tomorrow—tomorrow you should see Jaffa. Abu Hassan's hummus. Best in the country. Cash only. Closes when they run out."
 
 The whale always finds you. Ethan walked back to his hotel carrying that phrase, feeling it settle into his bones beside all the other Israeli phrases that weren't quite right in English, that required Hebrew's directness, its elimination of unnecessary words, its compression of meaning into sounds that hit like hammers, like kisses, like the combination of both that was Israeli communication, every sentence a small conflict that might become connection if you stayed with it long enough.
 
@@ -130,22 +130,20 @@ His hotel room had been cleaned while he was gone—bed made with military corne
 
 He sat on his balcony as the sun began its descent toward the Mediterranean, toward Europe, toward America where it was still morning, where his mother had texted seventeen times, where Aaron was furious about him missing some meeting, where his life was continuing without him or at least pretending to, the automatic replies and out-of-office messages maintaining the fiction that he was temporarily unavailable when really he was permanently changed, permanently arriving, permanently in this moment on this balcony in Tel Aviv watching the sun set on his first day in Israel.
 
-The muezzin's call began from Jaffa, floating across the water, the Arabic prayer that was also Hebrew's cousin, the Semitic sounds that shared ancestry, shared geography, shared the impossibility of sharing that made everything complicated, everything fraught, everything a negotiation including the right to pray, to call, to exist in the same space at the same time with the same claims to the same God who apparently had different names but the same tendency toward choosing peoples, toward making promises, toward creating situations that required wrestling.
+The muezzin's call began from Jaffa's Mahmoudiya Mosque, 5:47 PM exactly. Then the bells from St. Peter's Church. Then the Shabbat siren. All of them layered over the bass from a beach bar already starting its Thursday night party—the sacred and profane not wrestling but coexisting, exhausted from centuries of conflict into this strange truce of simultaneous sound.
 
 Then the Shabbat siren, Tel Aviv's secular sacred announcement that time was shifting, that even the startup nation recognized sunset, recognized Sabbath, recognized that some rhythms preceded technology, preceded modernity, preceded the ability to pretend that time was uniform, that all moments were equal, that Friday night wasn't different even in a city that prided itself on difference, on being Israel's New York, Israel's Miami, Israel's everything-but-Jerusalem.
 
-But Jerusalem was tomorrow's problem, tomorrow's promise, tomorrow's inevitability. Tonight was Tel Aviv, was arrival, was the beginning of understanding that Israel wasn't a place but a condition, wasn't a geography but a gathering, wasn't home but the process of homing, the active verb of return that required participation, required presence, required standing in the Mediterranean in dress pants crying without knowing why, eating shakshuka without knowing how, existing in Hebrew without knowing what, only knowing that this was necessary, was intended, was the destination his grandmother had faced during every prayer, the orientation that had oriented everything even when he'd been facing away.
+But Jerusalem was tomorrow. Tonight was Tel Aviv, was salt air through his hotel window, was Hebrew letters in his notebook, was the beginning.
 
-His notebook, purchased at the airport, already filled with Hebrew letters he'd copied from signs—aleph, bet, gimel, the beginning of the beginning, the alphabet that was also numbers, that was also mysticism, that was also the visual representation of wrestling with meaning, with God, with the angel that wouldn't let go until you blessed it, until you named it, until you became it.
+His notebook, purchased at Steimatzky bookstore in the airport, already filled with Hebrew letters copied from signs. The barista at Aroma had laughed watching him trace the letters from their coffee cups—קפה הפוך—upside-down coffee, which somehow meant cappuccino.
 
-The city lights began their evening performance—Tel Aviv refusing darkness, insisting on illumination, on continuation, on the parties that would start soon in bars that might be bombed, in clubs that might be targeted, in the spaces where young Israelis danced like tomorrow might not come because October 7th had proved tomorrow might not come, not the way you expected, not intact, not without the wrestling that apparently everyone had to do, had always had to do, would always have to do.
+The city lights flickered on—Dizengoff Street neon, Rothschild Boulevard cafes, the gay bars on Nahalat Binyamin already thumping. Teenagers heading to Barnoar. Adults to the wine bars on Ahad Ha'am. Everyone pretending Tuesday's rocket from Gaza hadn't happened, that the safe rooms weren't still stocked with water, that dancing wasn't also defiance.
 
 But tonight, for the first time in his life, Ethan Israel Stone wasn't fleeing from the wrestling. Wasn't hiding his middle name. Wasn't pretending distance meant safety. Tonight he sat on a balcony in Tel Aviv, in room 613, the commandments surrounding him in number if not in practice, the Mediterranean holding light like memory, like promise, like the tomorrow that would definitely come because Jews had been practicing tomorrow for three thousand years, had made an art of tomorrow, had built an entire country on the premise that tomorrow was possible even when, especially when, particularly when today suggested otherwise.
 
-Below, Tel Aviv continued its Thursday night becoming Friday, its secular becoming sacred, its modern becoming ancient, the eternal return that wasn't return but recognition—that you'd always been here, always been coming here, always been the person sitting on this balcony writing Hebrew letters in a notebook, learning the alphabet at thirty-three, beginning at the beginning because where else could you begin except with aleph, with the silent letter that started everything, that made no sound but made all sound possible, that was nothing and everything, the perfect representation of the Israeli condition, the Jewish condition, the human condition of being nothing and everything simultaneously.
+Below, delivery guys on electric bikes ran red lights with the same disregard as Manhattan. Someone's grandmother watered geraniums on a brutalist balcony. A cat colony gathered around a woman with shopping bags full of chicken scraps. Thursday night shifting into Friday, the work week surrendering to whatever Shabbat meant in a city that couldn't decide if it was secular or sacred and had decided to be both, neither, everything.
 
-Tomorrow, someone had said, he should visit Jaffa, where Jonah fled from God.
+Tomorrow, the waiter had said, he should visit Jaffa.
 
-But tonight he wasn't fleeing anything.
-
-Tonight, for the first time in his life, he was exactly where he was supposed to be.
+Tonight, he sat on his balcony watching the city refuse sleep, refuse silence, refuse anything but continuation.

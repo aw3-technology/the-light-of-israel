@@ -14,25 +14,25 @@ Congregation B'nai Jeshurun—he'd passed it a hundred times, maybe more, the li
 
 Everything you need. As if return could be supplied like party favors, as if belonging could be borrowed like prayer books, as if twenty years of absence could be bridged by security guards who said Shabbat Shalom like they meant it, which they did, which made it worse, which made it real.
 
-The lobby hummed with arrival energy—families corralling children, elderly couples arm in arm, young professionals still in work clothes with ties loosened, blazers carrying the day's emails in wrinkled shoulders. Everyone seemed to know where they were going, when to nod, who to greet, the choreography of community Ethan had forgotten he'd once known, muscle memory atrophied but not amputated.
+The lobby hummed with arrival energy—families corralling children, elderly couples arm in arm, young professionals still in work clothes with ties loosened, blazers carrying the day's emails in wrinkled shoulders. The air carried a specific mixture—old books and furniture polish, someone's grandmother's perfume (White Shoulders, maybe), the faint sweetness of grape juice already being poured somewhere deeper in the building. Everyone seemed to know where they were going, when to nod, who to greet, the choreography of community Ethan had forgotten he'd once known, muscle memory atrophied but not amputated.
 
-"Welcome!" A woman materialized at his elbow—seventy-something, silver hair precisely arranged, lipstick that had survived dinner, eyes that had seen enough returns to recognize another one. "I'm Ruth. First time at BJ?"
+"Welcome!" A woman materialized at his elbow—seventy-something, silver hair precisely arranged, lipstick that had survived dinner, eyes that had seen enough returns to recognize another one, though something flickered behind them—a tightness at the corners that suggested her own wrestles with faith. "I'm Ruth. First time at BJ?"
 
 BJ. The congregation had a nickname. Of course it did. Everything belonged here except him—no, especially him, belonging most intensely in the place that made him feel he didn't belong, the paradox of return where home is the place that feels most foreign because it knows you best.
 
 "I haven't—it's been a while since—"
 
-"Since October 7th?" Ruth's hand found his arm, squeeze that said everything without saying anything, the new Jewish greeting that required no words, just acknowledgment that the world had broken and here they were anyway, especially here they were, because where else would they be when the world broke but in rooms where people had been gathering to process breaking for three thousand years?
+"Since October 7th?" Ruth's hand found his arm, squeeze that said everything without saying anything, the new Jewish greeting that required no words, just acknowledgment that the world had broken and here they were anyway, especially here they were, because where else would they be when the world broke but in rooms where people had been gathering to process breaking for three thousand years? Her thumb rubbed a small circle—automatic, maternal, but then caught herself, pulled back slightly. "My son stopped coming for fifteen years," she said quietly. "After his father. Some returns take time."
 
 "Here." She pressed a burgundy kippah into his hand, bobby pins materialized from her purse like grandmother magic, like she carried supplies for prodigal sons in pockets that probably also held tissues, hard candies, telephone numbers of single granddaughters. "The books are inside. Sit anywhere except the first three rows—those are for regulars who get territorial. Page 36 to start."
 
 Page 36. She said it like GPS coordinates, like he was lost and she was providing direction not just through the service but through something larger, the map of return that started with page numbers and ended with—what? He didn't know. Couldn't know. Could only take the kippah that immediately slid off his head, hair too smooth, angle wrong, the physics of faith requiring practice his skull had forgotten.
 
-The sanctuary doors opened and sound poured out—not music yet but the hum of gathering, voices layering in frequencies that made harmonics without trying, the acoustic architecture of Jews in rooms designed for Jewish sounds, minor keys and major questions, harmony and argument occupying the same sonic space.
+The sanctuary doors opened and sound poured out—not music yet but the hum of gathering, voices layering in frequencies that made harmonics without trying, the acoustic architecture of Jews in rooms designed for Jewish sounds, minor keys and major questions, harmony and argument occupying the same sonic space. The temperature dropped five degrees—old building, stone walls, October seeping through stained glass.
 
 He entered and the space entered him.
 
-The ceiling vaulted toward heaven or at least toward the idea of heaven, painted stars on midnight blue, creation story in plaster and paint. The ark dominated the eastern wall—carved wood doors closed over Torah scrolls he couldn't see but felt, the way you feel watched by portraits, by history, by grandfather clocks that tick judgment in inherited rhythms. The eternal light hung suspended, red glass containing fire that had been burning since—when? Did they keep it lit during renovations? During the pandemic? During October 7th when Jews were burning in different ways?
+The ceiling vaulted toward heaven or at least toward the idea of heaven, painted stars on midnight blue, creation story in plaster and paint. The smell hit him—not unpleasant but specific: wool tallitot aired between services, the vanilla of aging paper, that particular mustiness of carpet that's absorbed decades of rain from umbrellas, tears from life cycles, wine from dropped kiddush cups. The ark dominated the eastern wall—carved wood doors closed over Torah scrolls he couldn't see but felt, the way you feel watched by portraits, by history, by grandfather clocks that tick judgment in inherited rhythms. The eternal light hung suspended, red glass containing fire that had been burning since—when? Did they keep it lit during renovations? During the pandemic? During October 7th when Jews were burning in different ways?
 
 Rows of pews filled with bodies that stood, sat, swayed without visible cues, everyone hearing some rhythm Ethan had forgotten how to count. He slid into the back row, far left, emergency exit in peripheral vision—not planning escape but needing to know escape was possible, the way anxiety needs exits even when it's staying, especially when it's staying.
 
@@ -40,7 +40,7 @@ The prayer book opened backwards—Hebrew, right to left, his hands remembering 
 
 "Lecha dodi likrat kallah..."
 
-The cantor's voice rose and three hundred bodies moved as one—standing, facing the door, ancient choreography of greeting the Sabbath like a bride, like return was romance, like time itself could be loved into sanctity. Ethan stood late, turned wrong, found himself facing the congregation instead of the door, three hundred faces in profile, in prayer, in possession of something he'd lost or thrown away or maybe never had but his body remembered having, DNA deep, bone memory, the belonging that predates belief.
+The cantor's voice rose and three hundred bodies moved as one—standing, facing the door, ancient choreography of greeting the Sabbath like a bride, like return was romance, like time itself could be loved into sanctity. Ethan stood late, turned wrong, found himself facing the congregation instead of the door, three hundred faces in profile, in prayer, in possession of something he'd lost or thrown away or maybe never had but his body remembered having, DNA deep, bone memory, the belonging that predates belief. He tried to mouth along—"Lecha dodi"—come my beloved—but said "Lecha dodi" with the accent on the wrong syllable, DOH-dee instead of do-DEE, like ordering badly at an Israeli restaurant.
 
 A woman beside him—thirties, prayer shawl over designer dress, wedding ring catching eternal light—shifted her book toward him, finger under the Hebrew he couldn't read but recognized the shape of, letters like hieroglyphs of home, incomprehensible but familiar the way your childhood house is familiar even after strangers repaint it, remodel it, make it theirs. She smiled without looking, the peripheral kindness of congregants who know when someone's drowning in return, throwing life preservers made of page numbers and proximity.
 
@@ -48,7 +48,7 @@ The melody was almost the one his grandmother hummed—almost but not quite, var
 
 "Barchu et Adonai hamvorach..."
 
-The call to prayer and his body bent—actually bent, muscle memory of bowing his thirteen-year-old self swore he'd never perform again, but here was his thirty-three-year-old spine curving toward something, not submission but acknowledgment, not worship but recognition of the wrestle, Israel meaning not one who submits to God but one who wrestles and prevails, or at least survives, or at least continues wrestling which might be the same as prevailing when the match is eternal.
+The call to prayer and his body bent—actually bent, muscle memory of bowing his thirteen-year-old self swore he'd never perform again, but here was his thirty-three-year-old spine curving toward something, not submission but acknowledgment, not worship but recognition of the wrestle, Israel meaning not one who submits to God but one who wrestles and prevails, or at least survives, or at least continues wrestling which might be the same as prevailing when the match is eternal. His knees locked halfway—Protestant bow, corporate conference room bow, not the full fluid bend of practiced Jews. His lower back protested, vertebrae remembering why they'd quit this twenty years ago.
 
 "Shema Yisrael..."
 
@@ -68,9 +68,9 @@ Turn and greet. Ethan thought of the congregation facing the door, facing return
 
 The Torah scroll emerged from the ark like revelation, like celebrity, like ancestor—dressed in velvet, crowned in silver, carried through the congregation while bodies pressed forward, prayer books extended to touch and kiss, the physical democracy of the divine where everyone could reach, could touch, could transfer holiness from scroll to book to lips in a chain of connection that included Ethan even though he didn't reach out, didn't know the protocol, didn't have anything to kiss it with except maybe his hand, his grandmother's hand, the hands of everyone who'd carried Torah through worse Octobers.
 
-"Aliyah l'Torah—Samuel ben Avraham v'Sarah..."
+"Aliyah l'Torah—Shmuel ben Avraham v'Sarah..."
 
-Names called in Hebrew—not English names but Hebrew ones, the secret names parents give children at birth, at brit, at naming ceremonies where the English "Steven" becomes "Shmuel," where "Jennifer" becomes "Yocheved," where assimilation gets asterisked by ancestry, footnoted by faith, revealed as performance while the real name waits in synagogue rosters for moments like this when someone calls you up by who you really are.
+Names called in Hebrew—not English names but Hebrew ones, the secret names parents give children at birth, at brit, at naming ceremonies where the English "Steven" becomes "Shmuel," where "Jennifer" becomes "Yocheved," where assimilation gets asterisked by ancestry, footnoted by faith, revealed as performance while the real name waits in synagogue rosters for moments like this when someone calls you up by who you really are. The rabbi had to repeat it—"Shmuel ben Avraham v'Sarah"—louder, because Samuel Goldstein was deep in conversation about his grandson's college applications, hadn't heard his eternal name over his temporal concerns.
 
 Would they call him? Did they even know he was here? Ethan ben who? His father David but Hebrew would be—David. His mother Miriam already Hebrew, accidentally eternal. Ethan ben David v'Miriam. Or maybe Israel ben David v'Miriam. The wrestling one, son of the beloved king and the bitter waters, the combination that produced whatever he was, whoever he was, sitting in the back row of return.
 
@@ -82,7 +82,7 @@ The mourner's prayer and suddenly everyone was standing—not everyone but enoug
 
 "Yitgadal v'yitkadash sh'mei raba..."
 
-Ethan stood too, though he wasn't technically a mourner, though he didn't know the words, though the woman beside him whispered "You don't stand unless—" but he was already standing for his grandmother though it had been more than a year, for the 1,400 though he didn't know them, for something in himself that had died before October 7th but was being mourned only now, in public, in Hebrew he couldn't read but recognized the shape of, the sound of, the weight of.
+Ethan stood too, though he wasn't technically a mourner, though he didn't know the words, though the woman beside him whispered "You don't stand unless—" but he was already standing for his grandmother though it had been more than a year, for the 1,400 though he didn't know them, for something in himself that had died before October 7th but was being mourned only now, in public, in Hebrew he couldn't read but recognized the shape of, the sound of, the weight of. "Yitgadal," he tried to whisper along, but it came out "yit-GAH-dal" instead of "yit-gah-DAL," like fumbling a password to his own heritage.
 
 "You stand if you need to stand," the rabbi said gently, noticing the confusion, the mix of mourners and supporters, the new mathematics where everyone was mourning something. "These days, we all need to stand."
 
@@ -114,7 +114,7 @@ The service ended with Adon Olam—master of the universe, the song every Jewish
 
 And he will be in glory—future tense, not was, not is, but will be, the Jewish insistence on tomorrow even when today was October 7th, even when today was exile, even when today was a thirty-three-year-old man in the back row of return discovering that his mouth knew words his mind had deleted, his body knew when to bow, his DNA knew how to be Jewish even when he'd forgotten, especially when he'd forgotten, most intensely when he'd forgotten because forgetting was just another form of remembering, the negative space that made the positive visible.
 
-"Join us for oneg," Ruth appeared again, the grandmother greeter, the collector of prodigals. "Wine and challah in the social hall. You look like you could use both."
+"Join us for oneg," Ruth appeared again, the grandmother greeter, the collector of prodigals, though she moved stiffly now—the standing and sitting had cost her something, arthritis maybe, or just the weight of greeting every returnee when she herself sometimes wondered why she kept returning. "Wine and challah in the social hall. You look like you could use both. Though honestly," she leaned closer, conspiratorial, "the challah's from Zabar's but Mrs. Feldstein insists on telling everyone she baked it. Every week, same lie. Some battles aren't worth fighting."
 
 Wine and challah. The basics. The Sabbath distilled to its essence—sanctified time marked by sanctified wine, sanctified bread, sanctified gathering in rooms where October 7th was discussed over grape juice and babka, where mourning mixed with gossip, where return was celebrated with paper plates and plastic cups because this was Manhattan real estate and nobody had room for actual dishes, for permanent anything, for anything except the eternal temporary that was Jewish life in America in October.
 

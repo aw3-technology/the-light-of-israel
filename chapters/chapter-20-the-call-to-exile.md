@@ -2,17 +2,19 @@
 
 The dream came in Aramaic, and Ethan woke knowing he had to leave the Holy Land.
 
-He sat up in Sera's bed, his heart racing with words he didn't understand but somehow knew. Through the window, Jerusalem's pre-dawn darkness held a different quality—not ending but waiting. Beside him, Sera stirred but didn't wake, her breath steady as the ancient city's stones.
+He sat up in Sera's bed, sweat-soaked, gasping. Through the window, Jerusalem's pre-dawn darkness pressed against the glass. A siren wailed somewhere—ambulance or police, constant soundtrack since the stabbing near Damascus Gate yesterday. Beside him, Sera stirred but didn't wake, her breath steady despite the Glock she now kept in the nightstand.
 
-The dream lingered: his grandmother, young—impossibly young—standing in ruins that could have been the Temple or could have been Athens, pointing west. Other figures behind her, a chain of generations stretching back through smoke and light. "Find where we were lost," she'd said, but in a language older than Hebrew, older than memory.
+The dream lingered: his grandmother, young—impossibly young—standing in ruins, pointing west. Behind her, shadows with yellow stars. "Find where we were lost," she'd said in Aramaic. But also: "They're watching. They know you're here."
 
-Ethan slipped out of bed and onto the small balcony. November in Jerusalem carried a chill that felt personal, directed. Below, an early morning street sweeper pushed his cart, the scrape of bristles on stone echoing between buildings. Even the mundane here felt weighted with meaning.
+Ethan slipped out of bed onto the small balcony. November cold bit through his t-shirt. Below, a street sweeper pushed his cart, bristles scraping stone. His phone: 5:41 AM.
 
-His phone showed 5:41 AM. Of course. Israel's gematria value, following him even into waking. Or perhaps especially into waking.
+"The visa expires in two weeks."
 
-"You're going to trace the exile, aren't you?"
+Sera stood in the doorway, wrapped in the sheet, holding his passport. She'd been checking dates again.
 
-Sera stood in the doorway, wrapped in the sheet, her hair wild from sleep. She wasn't asking.
+"I know."
+
+"And that investigator from the Interior Ministry called yesterday. About your 'sudden religious awakening.'" Her voice caught. "They're suspicious, Ethan. Americans who come here and... change too quickly."
 
 "I don't understand it," Ethan said. "We just... we just found each other. The Dead Sea, Masada, everything we've shared—"
 
@@ -26,63 +28,79 @@ Inside, she made coffee while he tried to explain the dream. The words came out 
 
 The rabbi's study had become familiar territory over the past weeks, but this morning it felt different. Maps covered his usually clear desk—Europe, the Mediterranean, North Africa. Red pins marked cities like wounds.
 
-"Dreams in Aramaic come from the deep place," Rabbi Levi said without preamble. "The soul's mother tongue. Tell me what you saw."
+"You're being watched," Rabbi Levi said without preamble. "The Shabak has questions. An American, suddenly religious, visiting sensitive sites." He pulled out a folder—Ethan's photo at the Western Wall, at protests, with Palestinian peace activists. "They think you might be a problem."
 
-As Ethan recounted the dream, the rabbi's fingers traced paths on the maps. Athens. Rome. Berlin. Cairo. The geography of Jewish wandering.
+"I'm not—"
 
-"You must walk the exile roads," Rabbi Levi said finally. "Not as tourist but as... what's the word you use? User experience. You must have the user experience of exile to understand return."
+"I know. But staying makes it worse. The dream—tell me about the dream."
 
-"But I just got here. I'm just beginning to understand—"
+As Ethan recounted it, the rabbi's fingers traced the maps with new urgency.
 
-"Precisely." The rabbi's eyes held that particular kindness that preceded difficult truths. "You cannot know what home means until you've traced the paths away from it. Every Jew must personally leave Egypt. This is your Egypt—all of them."
+"Leave within the week. Make it look like tourism. The exile roads will teach you, but also—" He glanced at the window. "Also they'll stop watching once you're gone."
 
-The itinerary wrote itself, each city a station of collective memory:
+"But I just got here. I'm just beginning to—"
 
-Athens, where Hellenism had seduced and challenged, where Judaism nearly dissolved into philosophy.
+"The security services don't care about your spiritual timeline." The rabbi's voice hardened. "Leave voluntarily or be deported. Those are your options."
 
-Rome, where Temple treasures were paraded through streets, where empire tried to erase memory.
+Four cities, the rabbi explained, pushing yellowed tickets across the desk. Athens, Rome, Berlin, Cairo. A Lithuanian couple's cancelled tour—their son had been called up for reserves. "Their loss, your escape route."
 
-Berlin, where civilization became mechanized death, where the unthinkable was engineered with precision.
+"You have three days," Rabbi Levi said. "Your grandmother's birthday is November 30th—make that your departure. Tell them you're touring Jewish heritage sites. Come back on a different visa, when things calm down."
 
-Cairo, where the first exile began, where slavery preceded freedom.
+"Three days?"
 
-"Forty days," Rabbi Levi said. "A transformation period. You leave on your grandmother's birthday—November 30th. You return changed or not at all."
+"Tomorrow they might revoke your permit to stay in East Jerusalem. The day after, who knows?"
 
-"That's next week."
+At the travel agency on King George Street, the agent's hands shook as he typed. A bomb threat had evacuated the building next door an hour ago.
 
-"The soul doesn't operate on fiscal quarters, Ethan."
+"You want to leave this week?" He glanced at the window—IDF soldiers stationed outside. "Smart. My son's unit just got called up. Something's coming."
 
-At the travel agency on King George Street, everything aligned with suspicious ease. Flights available. Hotels with cancellations. A Lithuanian Jewish couple canceling their heritage tour, their tickets transferable. The agent, himself a refugee from Ukraine, understood without explanation.
+He found flights—a Lithuanian couple had canceled after yesterday's stabbing. "Heritage tour tickets. Transferable. Cash only."
 
 "Sometimes the journey chooses you," he said, printing tickets. "My grandfather walked these routes by foot, hiding. You fly them seeking. Same journey, different direction."
 
-Sera was cooking dinner when he returned to her apartment. The domestic scene felt both precious and painful—a glimpse of a life he was about to pause, possibly break.
+Sera was packing when he returned—not cooking. Her military duffle on the bed.
 
-"I got the tickets," he said.
+"Reserve duty," she said without looking up. "Twelve hours' notice. Gaza border."
 
-She nodded, stirring soup. "I know. Rabbi Levi called."
+"When?"
 
-"Does he call you about everything?"
+"Tomorrow night." She finally faced him, eyes red. "So you leave for your exile, I leave for mine. At least yours has museums."
 
-"Only the important things." She turned to face him. "Ethan, this isn't goodbye. This is... what do you call it in product development? Beta testing. You're beta testing your soul."
+"Sera—"
 
-That night, their first night of real intimacy, held a quality of blessing and release. She taught him the traveler's prayer in Hebrew, her fingers tracing the letters on his chest. They made love like a conversation—questioning, answering, discovering a language that didn't need translation.
+"Don't. Just... we have tonight. One night before everything changes."
+
+That night, they held each other like drowning people. She taught him the traveler's prayer in Hebrew, her fingers tracing letters on his chest—but also showed him where she'd been wounded in the 2014 Gaza war, shrapnel scars like inverted stars.
+
+"I might not have email access," she said into the darkness. "Or phone. For weeks."
+
+"I know."
+
+"If something happens—"
+
+"Nothing will happen."
+
+"Ethan." Her voice was steel. "Things happen. This is Israel. Things always happen."
 
 His mother called the next morning.
 
-"You're traveling WHERE?" Her voice pitched high with concern. "After everything that's happening? The protests, the violence—"
+"The State Department issued a warning," his mother's voice shook through WhatsApp. "They're telling Americans to leave Israel. What aren't you telling me?"
 
-"Mom, it's something I have to do."
+"I'm leaving tomorrow."
 
-"Is this about that girl? The Israeli?"
+"Thank God. Come home."
 
-"It's about everything, Mom. It's about Grandma Rivka, and October 7th, and who we are, and who I am, and—"
+"I'm going to Athens. Then Rome, Berlin—"
 
-"You sound manic, sweetheart. Are you taking your medication?"
+"Have you lost your mind? There were synagogue attacks in Berlin last week!"
 
-He almost laughed. His mother, who'd spent decades running from their Jewishness, worried about his mental health for embracing it.
+"Mom—"
 
-"I'm not manic, Mom. I'm just... awake."
+"That Israeli girl. This is about her. You're following her somewhere."
+
+"She's being deployed, Mom. To Gaza."
+
+Silence. Then: "Oh, sweetheart. Oh no."
 
 Rabbi Levi's final teaching came the night before departure. They sat in his study, the maps now rolled up, replaced by a single lit candle.
 
@@ -98,34 +116,68 @@ The last night with Sera, they created their own Shabbat on a Tuesday. She lit c
 
 "To remember the lowest point," she said. "And that you can float."
 
-"Come back to me," she said later, in the darkness.
+"There's something else," she said in the darkness. "My unit—we're trained for tunnel warfare. Specifically."
 
-"I'm coming back to myself," he replied. "But that means coming back to you too."
+The implications hung between them.
 
-She was quiet for a moment. "I'll be here. I'm not going anywhere."
+"Sera—"
 
-But Ethan heard what she didn't say—that staying required its own kind of strength, that her stillness was not stasis but choice, that love sometimes meant releasing what you most wanted to hold.
+"I need you to take something." She pressed a sealed envelope into his hand. "If I don't come back, mail this from Athens. The address is on it."
 
-Ben Gurion Airport, dawn. Sera drove him in her small car, Jerusalem falling away behind them, the hills giving way to plains, ancient becoming modern with every kilometer. At security, she handed him something wrapped in cloth—his grandmother's candlesticks, but travel-sized, replicas she'd had made.
+"You're coming back."
 
-"Light them wherever you are Friday night," she said. "Remember who you are."
+"The envelope, Ethan. Promise me."
 
-The security agent, young, tired, asked the standard questions. Purpose of visit? Tourism. How long? Forty days. The number made the agent look up.
+"I promise."
 
-"Forty days? That's very specific."
+She turned away. Through the window, an F-16 traced a line across the stars.
 
-"It's how long transformation takes," Ethan said.
+Ben Gurion Airport, 4 AM. Sera drove in uniform, her rifle in the back seat. Three checkpoints between Jerusalem and the airport—double the usual. At the second, a soldier recognized her unit insignia, saluted.
 
-The agent, perhaps recognizing something in his eyes, stamped his passport without further question.
+"Stay safe down there, Lieutenant."
 
-At the gate, Sera kissed him once, fierce and quick. "Jeremiah 29:7," she whispered. "Look it up on the plane."
+Lieutenant. She'd never mentioned her rank.
 
-Ethan Israel Stone, carrying Jerusalem in his heart and a Dead Sea stone in his pocket, boarded the plane to Athens. Through the window, he watched Israel shrink but not disappear—it became concentrated, essential, a point of light he could carry anywhere.
+At departures, she handed him something wrapped in newspaper—travel-sized candlesticks, replicas of his grandmother's.
 
-His phone buzzed with a final message from Rabbi Levi: "Seek the peace of the city where I have sent you into exile, and pray to the Lord on its behalf, for in its peace, you will have peace."
+"Don't be sentimental with these," she said about the candlesticks. "Use them."
 
-Jeremiah 29:7. Sera had known.
+Security: three hours. They swabbed everything twice. Phone inspection. The agent knew his file.
 
-The plane lifted off as the sun cleared the horizon, painting the Mediterranean gold. Below, the land of Israel became memory and promise simultaneously. Ethan closed his eyes and felt his grandmother's presence, young and old at once, pointing west toward the exile that was, paradoxically, the path home.
+"Mr. Stone. West Bank. Twelve visits in six weeks."
 
-The journey into diaspora began. Or perhaps—Ethan thought, feeling the weight of generations in his bones—it was finally ending.
+"Research."
+
+"Type?"
+
+"Personal."
+
+The agent marked something on his screen. "Return date?"
+
+"Forty days."
+
+"New visa when you come back. Clean slate." Not advice—an order.
+
+At the gate, another check. Shin Bet this time, the investigator from Interior.
+
+"Mr. Stone. Convenient timing."
+
+"Tourism."
+
+"Of course." He stepped aside. "Safe travels."
+
+At the gate, Sera stood at attention, then broke protocol—pulled him close, whispered something in Hebrew he didn't catch. When she pulled back, her eyes were dry.
+
+"The envelope. Athens. Don't forget."
+
+She left without looking back. Through the window, he saw her unit's van, exhaust running.
+
+Ethan boarded the plane to Athens. Through the window, Israel shrank to a line of coast.
+
+His phone buzzed—Rabbi Levi: "Jeremiah 29:7."
+
+The plane lifted off. Below, the land became a memory. Or maybe—he touched Sera's envelope in his pocket, felt the rough stone she'd given him—maybe it was becoming something else. Something he'd have to earn the right to return to.
+
+If she was still there when he did.
+
+If either of them were.

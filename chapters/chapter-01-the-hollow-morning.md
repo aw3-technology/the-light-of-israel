@@ -1,16 +1,16 @@
 # Chapter 1: The Hollow Morning
 
-Ethan Stone woke to his phone alarm at 7:18 AM and wondered, not for the first time, if this was what dying felt like—breathing but not living, moving but not going anywhere, existing between sleep and consciousness where nothing mattered and everything hurt in ways he couldn't name. His surname had never felt more accurate: Stone. Heavy, immovable, going nowhere. The notification sound from Slack pulled him from dreams he couldn't remember into a Tuesday morning that would be indistinguishable from Monday, from last Tuesday, from the endless procession of gray late September days that made up his thirty-third year in 2023.
+Ethan Stone woke to his phone alarm at 7:18 AM and wondered, not for the first time, if this was what dying felt like—breathing but not living, moving but not going anywhere. His surname had never felt more accurate: Stone. Heavy, immovable, going nowhere. The notification sound from Slack pulled him from dreams he couldn't remember into a Tuesday morning that would be indistinguishable from Monday, from last Tuesday, from the endless procession of gray late September days that made up his thirty-third year in 2023.
 
-He checked his phone before his feet touched the floor. Seventeen notifications. No one calling his name. Josh from engineering asking about "user journey optimization." Maya from design sharing wireframes that looked exactly like every other app interface he'd seen in the past five years. A calendar reminder for the 9:30 standup where they'd discuss metrics that measured engagement without asking engagement with what.
+He checked his phone before his feet touched the floor. Seventeen notifications. No one calling his name. Josh from engineering: "hey can you check the Mixpanel funnel for yesterday's release?" Maya from design: "v3 wireframes for the Spotify integration ready for review." A calendar reminder for the 9:30 standup where they'd discuss metrics that measured engagement without asking engagement with what.
 
-The coffee maker had been programmed the night before—another optimization in a life built on efficiencies that somehow produced no actual results. Ethiopian single origin. $18 a bag. He drank it because caffeine was fuel and fuel kept the machine running, even when the machine had forgotten what it was supposed to do. The smell should have been rich, earthy, alive. Instead it registered as brown liquid. Everything hurt. The coffee was gone.
+The coffee maker had been programmed the night before—another optimization in a life built on efficiencies that somehow produced no actual results. Ethiopian single origin from Blue Bottle. $18 a bag. He drank it because caffeine was fuel and fuel kept the machine running, even when the machine had forgotten what it was supposed to do. The smell should have been rich, earthy, alive. Instead it registered as brown liquid.
 
-Ethan's apartment reflected his internal architecture: expensive minimalism masking the fact that nothing inside had been chosen with love. The Herman Miller chair that hurt his back. The pristine kitchen island he never cooked on. The bedroom that felt more like a hotel room—clean, efficient, impersonal. Everything optimized for a life he wasn't actually living.
+Ethan's apartment reflected his internal architecture: expensive minimalism masking the fact that nothing inside had been chosen with love. The Herman Miller Aeron chair he adjusted to the exact same position every morning—muscle memory of optimization that no longer served a purpose. The pristine kitchen island he never cooked on. The bedroom that felt more like a hotel room—clean, efficient, impersonal. On the bookshelf, barely visible behind design manuals, sat his grandmother's brass candlesticks, tarnished from a year of neglect.
 
 He caught his reflection in the bathroom mirror and looked away immediately. Stubble that needed attention. Eyes that held no curiosity about what the day might bring. His father's jawline, his mother's cheekbones, and something harder to name that came from his grandmother—a weight around the eyes that suggested knowledge of older sorrows. Stone eyes in a Stone face, carrying the weight of foundations that had forgotten what they were supposed to support.
 
-The shower lasted exactly eighteen minutes—he'd timed it once, though he couldn't remember why eighteen had become his standard. The water was hot enough to fog the mirrors, creating a blessed absence of reflection. Steam rose like prayers he'd forgotten how to say, and for a moment the flowing water reminded him of something—a ritual, a cleansing, a memory of his grandmother's hands over candles and the sound of Hebrew words that once felt like coming home. He stood under the spray and tried to remember the last time he'd felt genuinely excited about anything. The promotion six months ago? Maybe. Though that had felt more like relief than joy—one more rung on a ladder that seemed to lead only to more climbing.
+The shower lasted exactly eighteen minutes—he'd timed it once, though he couldn't remember why eighteen had become his standard. The water was hot enough to fog the mirrors, creating a blessed absence of reflection. Steam rose like prayers he'd forgotten how to say, and for a moment the flowing water reminded him of something—his grandmother teaching him to wash his hands before Friday night dinner, pouring water three times over each hand while whispering "Netilat yadayim" in a voice that made the ordinary feel sacred. He stood under the spray and tried to remember the last time he'd felt genuinely excited about anything. The promotion six months ago? Maybe. Though that had felt more like relief than joy—one more rung on a ladder that seemed to lead only to more climbing.
 
 His phone buzzed against the marble countertop. Three missed calls from "Mom." He dismissed the notifications without listening to the voicemails. Whatever guilt or concern or family obligation she wanted to transmit could wait. Everything could wait.
 
@@ -34,9 +34,9 @@ The questions felt like stones thrown across an ocean—each one sinking before 
 
 The phone died at exactly eight minutes and forty-one seconds into the call. Ethan stared at the black screen, feeling something he couldn't name. He'd been on Wellbutrin for two years now, since the promotion that was supposed to make him happy instead made him realize happiness wasn't a metrics-driven outcome.
 
-"Ethan." Her voice softened. "It's been almost a year since Grandma Rivka passed. The yahrzeit is next week. I thought... maybe we could light a candle together. Video call or something."
+"Ethan." Her voice softened. "It's been almost a year since Grandma Rivka passed. The yahrzeit is coming up. I thought... maybe we could light a candle together. Video call or something."
 
-"September 30th, Ethan. Just... remember her. She would have wanted—"
+His mother paused, and he could hear her breathing, choosing her words. "Just... remember her. She would have wanted—"
 
 "I have to go."
 
@@ -46,7 +46,7 @@ The commute was a meditation in purposelessness. Subway car packed with people w
 
 At Union Square, a homeless man with wild gray hair pointed directly at Ethan through the window. "Israel!" he shouted as the train pulled away. "Wake up!" Ethan assumed the man was schizophrenic, talking to voices, but something about the urgency made his stomach tighten.
 
-He stopped at the corner bodega near his office for his usual coffee. "$7.18," said the elderly Yemeni owner, the same price as always. Ethan handed over exact change, never noticing how the number seemed to follow him—his wake-up time, his coffee price, the strange synchronicity of digits that would have meant something to his grandmother. "Have blessed day, brother," the owner said, and Ethan nodded without hearing the words or recognizing the blessing being offered.
+He stopped at Ali's corner bodega near his office in Flatiron for his usual coffee. "$7.18," said the elderly Yemeni owner, the same price as always. Ethan handed over exact change, never noticing how the number seemed to follow him—his wake-up time, his coffee price, the strange synchronicity of digits that would have meant something to his grandmother. "Have blessed day, brother," the owner said, and Ethan nodded without hearing the words or recognizing the blessing being offered.
 
 His work badge read "Ethan Stone, Senior Product Manager." No middle name. He'd stopped using "Israel" sometime in college, when introducing himself as "Ethan Israel Stone" felt like carrying a flag for a country he'd never visited and a tradition he'd never understood. Now it was just Ethan Stone, which sounded clean, professional, uncomplicated. Like a tech startup or a meditation app.
 
@@ -114,7 +114,7 @@ Maybe tonight, he thought. Maybe tonight he'd finally find out what she'd wanted
 
 The train pulled into his station at 7:18 PM. He noticed the time and wondered if numbers like that were supposed to mean something, if the universe was trying to tell him something he wasn't smart enough to understand.
 
-Ethan Stone climbed the subway stairs into the Brooklyn evening, carrying his emptiness home like a briefcase full of work that would never be finished.
+Ethan Stone climbed the subway stairs into the Park Slope evening, carrying his emptiness home like a briefcase full of work that would never be finished.
 
 His phone buzzed as he reached street level. 7:19 PM. A text from an unknown number:
 
