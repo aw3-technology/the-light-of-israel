@@ -6,9 +6,9 @@ Left, left, left, right, left, the rhythm becoming automatic while Brooklyn dusk
 
 Rachel Klein would be his thirty-seventh first date since Sarah ended things eight months ago—thirty-seven like double chai plus one, life doubled plus the loneliness of odd numbers, though he didn't recognize the significance, just felt the weight of repetition pressing against his sternum like accumulated rejections he hadn't even experienced yet. Her profile had stood out only because she'd messaged first: "Your bio says you optimize user journeys. Can you optimize this awkward opening message?" Clever enough. Safe enough. The kind of humor that passed for personality on apps designed to compress human complexity into six photos and three prompts.
 
-Three blocks away, the Lubavitcher families were preparing for Shabbat, but Ethan only noticed the traffic they caused as he stood before his bathroom mirror, leaving the top button undone, rolling his sleeves to exactly mid-forearm, mussing his forty-eight-dollar haircut with studied carelessness that took longer to achieve than actual carelessness would have taken. The dating uniform hung ready: dark jeans that suggested casual success, navy button-down that brought out eyes Sarah had once called "beautifully vacant," though he'd chosen to hear only the first word.
+Wednesday evening in Brooklyn, and Ethan stood before his bathroom mirror, leaving the top button undone, rolling his sleeves to exactly mid-forearm, mussing his forty-eight-dollar haircut with studied carelessness that took longer to achieve than actual carelessness would have taken. The dating uniform hung ready: dark jeans that suggested casual success, navy button-down that brought out eyes Sarah had once called "beautifully vacant," though he'd chosen to hear only the first word.
 
-His reflection looked back, competent and empty, a face that belonged in a WeWork lobby or a meditation app advertisement, anywhere but here in this moment of preparing to perform intimacy with a stranger who was probably standing before her own mirror performing the same preparations. Somewhere in that face was Ethan Israel Stone, but tonight, like every Friday night for months, he'd be just Ethan—successful product manager, Brooklyn resident, cultural but not religious, the kind of Jewish that meant knowing about bagels and anxiety but nothing about why his grandmother had covered her eyes when lighting candles, whispering prayers in Hebrew that had made their cramped apartment expand into something infinite, something he'd lost the coordinates for.
+His reflection looked back, competent and empty, a face that belonged in a WeWork lobby or a meditation app advertisement, anywhere but here in this moment of preparing to perform intimacy with a stranger who was probably standing before her own mirror performing the same preparations. Somewhere in that face was Ethan Israel Stone, but tonight, like every weeknight for months, he'd be just Ethan—successful product manager, Brooklyn resident, cultural but not religious, the kind of Jewish that meant knowing about bagels and anxiety but nothing about why his grandmother had covered her eyes when lighting candles, whispering prayers in Hebrew that had made their cramped apartment expand into something infinite, something he'd lost the coordinates for.
 
 The time on his phone read 7:18 PM. He didn't notice the pattern.
 
@@ -164,13 +164,13 @@ They kissed then, as if the time was a signal, an emergency broadcast requiring 
 
 The check arrived in a leather folder that suggested this meal had meant something. Ethan reached for it with the automatic gesture of a man who'd been taught to pay, and Rachel performed the wallet reach that wouldn't complete, a choreographed dance of modern equality that satisfied no one. The wine had cost more than groceries for a week. Neither of them would remember what it tasted like tomorrow.
 
-Outside, the September air carried hints of autumn and something else—somewhere, challah was being blessed, somewhere wine was being sanctified, somewhere candles were being lit to separate sacred from profane, but here on this Park Slope corner there was only the profane, only the ordinary, only Ethan and Rachel standing in that awkward space between goodbye and what comes next.
+Outside, the September air carried hints of autumn and something else—somewhere, families were gathering for dinner, somewhere people were finding meaning in Wednesday night rituals he'd never learned, but here on this Park Slope corner there was only the profane, only the ordinary, only Ethan and Rachel standing in that awkward space between goodbye and what comes next.
 
 "I had a really good time," Rachel said, because the script required these words.
 
 "Me too."
 
-They kissed again—brief, competent, tasting of wine and resignation. Behind Rachel, three stories up, Ethan could see the faint glow of Shabbat candles in a window, a family gathering for Friday night dinner, children's voices carrying ancient melodies into Brooklyn air that had forgotten how to hold them.
+They kissed again—brief, competent, tasting of wine and resignation. Behind Rachel, three stories up, Ethan could see the warm glow of apartment windows, families gathering for weeknight dinners, children's voices carrying into Brooklyn air that had forgotten how to hold anything sacred.
 
 "Want to share an Uber?" Rachel asked.
 
@@ -190,13 +190,13 @@ Back in his apartment, Ethan opened Hinge again. The faces blurred past—Amanda
 
 His phone buzzed. A text from his mother: "Haven't heard from you in weeks. Your grandmother would be disappointed."
 
-The words hit like ice water. His thumb stopped mid-swipe. He hadn't thought about his grandmother in months. Her yahrzeit was tomorrow—September 30th. She'd been gone a year, and he'd nearly forgotten.
+The words hit like ice water. His thumb stopped mid-swipe. He hadn't thought about his grandmother in months. Her yahrzeit was in three days—September 30th. She'd been gone a year, and he'd nearly forgotten.
 
-What would she be disappointed about? The dating? The emptiness? Or something deeper—something about Friday night in a wine bar instead of at a Shabbat table, something about Rachel Klein who didn't know her own traditions, something about Ethan himself, hiding his middle name like a shameful secret?
+What would she be disappointed about? The dating? The emptiness? Or something deeper—something about wasting his evenings in wine bars instead of anywhere meaningful, something about Rachel Klein who didn't know her own traditions, something about Ethan himself, hiding his middle name like a shameful secret?
 
 He set the phone down, screen still glowing with endless faces offering endless possibility of the same nothing he'd just experienced.
 
-Outside, he could hear singing from the Chabad house three blocks away. They were welcoming the Sabbath while he was swiping through approximations of connection. The melody was familiar—something his grandmother used to hum while lighting candles, something that had once made him feel held by more than just her arms.
+Outside, he could hear distant music from the Chabad house three blocks away. Even on a Wednesday they found reasons to gather, while he was swiping through approximations of connection. The melody was familiar—something his grandmother used to hum while lighting candles, something that had once made him feel held by more than just her arms.
 
 Ethan pulled the blinds closed, shutting out the song, shutting out the Sabbath, shutting out everything except the glow of his phone screen where strangers' faces continued their infinite scroll, each one a door to the same empty room he'd just left, would enter again tomorrow, would keep entering until he forgot what he was looking for in the first place.
 
