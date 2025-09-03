@@ -28,11 +28,11 @@ His phone buzzed on the bathroom floor where he'd dropped it. Mom calling. He co
 
 Back in the living room, daylight looked wrong through his windows—too bright, too normal, too much like any other Saturday while his phone showed him hell in real-time. He picked it up again, unable to stop, each scroll making him sicker but stopping felt like abandonment, like if he looked away it would somehow be worse, though worse seemed impossible until the next video proved it wasn't.
 
-Group chats exploding now. His work Slack—Josh asking if everyone had seen the news, Naomi sharing CNN links, Maya saying "This is horrible" with a frowning emoji that seemed obscene in its inadequacy. His college friends' WhatsApp—arguments already starting, Marcus sharing historical context nobody asked for, Sarah posting about Palestinian casualties from last month, the conversation fracturing into positions and poses while the death count climbed.
+Group chats exploding now. Work Slack: "This is horrible" with emojis that seemed obscene in their inadequacy. College WhatsApp: arguments already starting, historical context nobody asked for, last month's casualties, the conversation fracturing into positions while the death count climbed.
 
-Then Aaron's text, separate from the group: "This is terrible but we need to think about root causes."
+Then Aaron's text, separate from the group: "Have you seen Gideon Levy's piece on this?"
 
-Ethan stared at the message. Root causes. While people were still dying, Aaron was already building arguments, constructing frameworks, intellectualizing horror into something manageable. Another text: "The cycle of violence..." Another: "Colonial dynamics..." Another: "My clients face state violence every day."
+Ethan stared at the message. An op-ed reference. While people were still dying, Aaron was already curating reading lists. Another text: "Important thread here on historical precedents." A link. Another link. Another: "My Palestinian client just sent me this perspective."
 
 Each message felt like a slap. Ethan typed: "People are being slaughtered right now." Deleted it. Typed: "Stop making this about your politics." Deleted it. Typed: "Why aren't you crying?" Deleted that too.
 
@@ -56,7 +56,7 @@ Cousins he'd never known existed. Family trees he'd never climbed. Connections h
 
 He hung up and immediately felt worse. His phone showed 613 unread messages across all platforms—that number again, following him even through catastrophe, the commandments he'd never learned calling out from notification badges.
 
-Twitter was a massacre of its own now—hot takes and cold analysis, justifications and condemnations, everyone performing their politics while bodies were still warm. Someone he'd matched with on Hinge last week posted "This is what resistance looks like" over a news screenshot. Someone else posted "Today we are all Israeli" over a flag emoji. The same events refracted through infinite lenses until truth became impossible, everything was true, nothing was true, people were dead and that was the only truth that mattered.
+Twitter was a massacre of its own—everyone performing their politics while bodies were still warm. "This is what resistance looks like." "Today we are all Israeli." The same events refracted through infinite lenses until people were dead and that was the only truth that mattered.
 
 A video surfaced that broke through his last defense. A child, couldn't be more than five, calling "Ima! Ima!" through smoke and chaos. Ima—mommy in Hebrew, a word Ethan didn't know he knew until he heard it and felt it land like a stone in his chest. The child's voice pure terror, pure need, pure human suffering that predated politics and survived all analysis.
 
@@ -66,9 +66,11 @@ He stopped, shocked by his own voice. What had he just said? The words felt anci
 
 The sun was setting now, though he hadn't noticed the day passing. Time had become elastic, stretching and compressing—hours of scrolling felt like minutes, seconds of certain videos felt like forever. The apartment dark except for his phone's glow, that modern campfire around which he huddled alone, watching civilization burn.
 
-Aaron's texts kept coming: "We need to resist knee-jerk nationalism." "I represent oppressed people everywhere." "Violence doesn't happen in a vacuum." Each one perfectly reasonable, perfectly contextual, perfectly missing the point that sometimes grief comes before analysis, sometimes you have to feel the wound before you can diagnose it, sometimes your body knows truths your politics can't contain.
+Aaron's texts kept coming: "Just spoke to my colleague at B'Tselem." "Reading Judith Butler on grievable lives." "Have you seen this Democracy Now segment?"
 
-Ethan typed: "Children are dead." Sent it. Watched the three dots appear and disappear as Aaron typed and deleted responses. Finally: "Children die in Gaza too."
+Ethan typed: "Children are dead." Sent it. 
+
+The three dots appeared and disappeared. Finally: "I know. It's complex."
 
 True. Relevant. And somehow exactly wrong for this moment when Ethan's body was teaching him something his mind had forgotten—that some pain is personal even when it shouldn't be, that some connections survive all attempts at severing, that somewhere in his DNA was a memory of other violence, other children calling for mothers who wouldn't come, other Sabbaths turned into mourning.
 
@@ -82,13 +84,7 @@ His phone buzzed: his mother again. He let it ring through to voicemail, then pl
 
 Seven eighteen PM on his phone when he noticed the time. His wake-up time, his coffee price, the number that followed him through his hollow life now appearing at this moment of rupture like a signature, like a sign, like something saying *pay attention, this matters, you matter, your mourning matters even if you don't understand why you're mourning.*
 
-Marcus in the group chat: "Anyone want to grab a drink? I can't watch anymore of this alone."
-
-Sarah: "This is horrible but we need to remember context."
-
-Josh: "My cousin's in Tel Aviv. Haven't heard from her yet."
-
-The messages layered over each other—performance and genuine feeling, politics and human response, everyone trying to find the right words for something that preceded language, that broke language, that made all their careful progressive vocabularies sound like noise.
+The group chat: "Anyone want to grab a drink? I can't watch anymore alone." "My cousin's in Tel Aviv." Messages layering—performance and genuine feeling, everyone trying to find words for something that broke language.
 
 Ethan found himself at his window, looking out at Brooklyn, the lights in other apartments like yahrzeit candles nobody had lit on purpose. Somewhere out there were others feeling this same ancestral activation, this same unexpected grief, this same confusion about why it hurt so much when it wasn't supposed to hurt at all.
 
@@ -102,11 +98,9 @@ Opened it again.
 
 Closed it.
 
-Outside, the Sabbath was ending, October 7th becoming October 8th, though its reverberations would never stop. Somewhere, families were gathering to wait for news. Somewhere, bodies were being identified. Somewhere, the ordinary world was continuing its ordinary course, and somewhere else—right here, in this apartment, in this body that had surprised him with its capacity for ancient grief—something was ending and something else was beginning, though Ethan wouldn't understand what until much later.
+Outside, October 7th was becoming October 8th. In this apartment, in this body that had surprised him with its capacity for ancient grief, something was ending and something else was beginning.
 
-He stood at his window, laptop in hand, synagogue page still open, and felt the full weight of his name for the first time: Ethan Israel Stone. Ethan meant strong in Hebrew—he'd googled it once, dismissed it as coincidence. Israel meant wrestles with God—his hidden middle name suddenly feeling like prophecy. Stone—the weight he'd always carried now revealing itself as foundation, something to build on rather than sink beneath.
-
-The search bar waited. The synagogue websites waited. The next moment waited.
+He felt the full weight of his name: Ethan Israel Stone. The hidden middle name suddenly feeling like prophecy. Stone—not weight to sink beneath but foundation to build on.
 
 Ethan set down the laptop and picked up his phone. His mother answered immediately.
 
@@ -122,12 +116,10 @@ Silence on the line, but warm silence, full silence, the kind that held space fo
 
 After they hung up, Ethan sat in his dark apartment, phone still showing the endless scroll of horror and response, but something had shifted. The crack in his chest had widened enough to let something in—light maybe, or just the possibility of light, the first understanding that breaking might be the beginning of healing, that exile might be the first step toward return.
 
-He opened his laptop one more time, found the page for Congregation Beth Shalom. There was a vigil tomorrow night, October 8th, for victims of the attack. All welcome, it said. Come as you are, it said.
+He opened his laptop one more time. Congregation Beth Shalom. Vigil tomorrow night, October 8th. All welcome. Come as you are.
 
-Ethan stared at the screen until the words blurred, then cleared, then blurred again with tears he didn't try to stop. Tomorrow he would go. Tomorrow he would sit with strangers who weren't strangers. Tomorrow he would begin to remember what he'd forgotten, or learn what he'd never known, or simply sit in a room where his grief made sense, where his hidden name could be spoken, where the crack in his chest might reveal itself as an opening rather than just a wound.
+The words blurred with tears he didn't try to stop.
 
-Outside, Brooklyn settled into sleep, October 7th finally ending though its echo would never stop. And in his apartment, Ethan Israel Stone sat in the dark, holding his phone like a yahrzeit candle, mourning people he'd never met but somehow had always known, feeling his grandmother's memory like a hand on his shoulder, gentle and insistent, guiding him toward a door he'd spent his entire life avoiding but could no longer pretend wasn't there.
+He closed the laptop. Stood. His reflection in the dark window showed his grandmother's features looking back—the architecture of survival written in bone.
 
-The door was open now.
-
-All he had to do was walk through.
+Tomorrow, he would go.

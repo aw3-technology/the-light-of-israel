@@ -2,21 +2,19 @@
 
 The candlesticks on his counter seemed to glow in the darkness, though he hadn't lit them.
 
-Friday night, October 6th, the apartment holding shadows differently than other nights, the brass catching streetlight through windows he'd forgotten to close, forgotten to shade, forgotten everything except the weight of existing through another week that had started with depression and ended with his grandmother's yahrzeit candles unlit on a counter that suddenly felt like an altar to failures he couldn't name.
+Friday night, October 6th. The brass caught streetlight through windows he'd forgotten to close. His grandmother's yahrzeit candles sat unlit on a counter that felt like an altar to failures he couldn't name.
 
 Netflix asked if he was still watching. He wasn't. Hadn't been for the last three episodes of something about serial killers or startup founders—the plots had begun to blur, all stories about people destroying things, themselves, each other, the world, everything except what needed destroying which was the emptiness that made destruction feel like creation.
 
 His phone: 7:18 PM again, always that number when he looked, though he looked constantly so perhaps it was just probability, mathematics, the random universe organizing itself into patterns that meant nothing except to minds desperate for meaning. Three missed calls from his mother. Eighteen unread Slack messages. One text from Aaron: "Still on for coffee tomorrow?"
 
-Tomorrow. Saturday. October 7th. Something about the date scratched at the inside of his skull like a memory trying to form, but all his Saturdays were the same—sleep until noon, scroll until two, pretend to have plans, accomplish nothing, the Sabbath of rest become a Sabbath of restlessness, though he didn't keep Sabbath, didn't keep anything except this careful distance from everything that might matter.
+Tomorrow. Saturday. October 7th. Something about the date scratched at the inside of his skull, but all his Saturdays were the same—sleep until noon, scroll until two, accomplish nothing. The Sabbath of rest become restlessness.
 
 He ordered Thai food from the same place, the app remembering his last seven orders—all identical, all arriving in exactly 37 minutes, the delivery guy whose name was either Muhammad or Ahmad (he'd never asked, just grabbed the bag through the cracked door), always saying "Enjoy your meal" in an accent that reminded Ethan of something he couldn't place, wouldn't place, refused to place.
 
 But tonight the food sat untouched, the smell wrong somehow—too sweet, too synthetic, like plastic trying to be nourishment. His stomach turned not with hunger but with something else, that feeling before flights, before first dates, before news that changes everything, except he had no flights, no dates, no news coming.
 
-The candlesticks caught his eye again. His grandmother's brass sabbath holders, discovered that afternoon in the closet, now standing on his kitchen counter like sentinels, like witnesses, like accusations shaped in metal. He'd meant to put them away—back in the closet, back in the dark, back where inherited objects waited for inheritors who knew what to do with inheritance.
-
-But they remained. Unlit. Unused. Friday night at—he checked—8:41 PM, the number meaningless except when reversed it made 18:4, chai and death, life and its opposite, everything containing its own negation.
+The candlesticks caught his eye again. His grandmother's brass sabbath holders, discovered that afternoon in the closet. He'd meant to put them away, but they remained. Unlit. Friday night at 8:41 PM.
 
 His laptop showed seventeen open tabs:
 - "Brooklyn therapists accepting insurance"
@@ -62,23 +60,23 @@ The exhaustion hit suddenly, completely, like gravity doubling. Not tiredness bu
 
 He barely made it to the bedroom, still dressed, collapsing onto unmade sheets that smelled like his depression—stale but familiar, wrong but his. The candlesticks in the kitchen seemed to pulse in his peripheral vision, but that was just tired eyes, tired mind, tired everything seeing patterns in nothing, meaning in brass, significance in sabbath candles that would never be lit because he didn't know the prayers, the reasons, the point.
 
-Sleep came wrong—too fast, too heavy, like falling not into rest but through it, past dream into something deeper, older, more true than the waking life he'd been living.
+Sleep came wrong—too fast, too heavy, falling past dream into something older than the waking life he'd been living.
 
 ---
 
 The garden was made of names.
 
-Not planted with them but constructed from them, each plant a pronunciation, each flower a forgotten ancestry, each tree a genealogy growing backwards into earth that tasted like memory, smelled like his grandmother's kitchen, sounded like prayers he'd never learned but somehow knew, knowledge buried deeper than forgetting could reach.
+Not planted with them but constructed from them, each tree a genealogy growing backwards into earth that smelled like his grandmother's kitchen, sounded like prayers he'd never learned but somehow knew.
 
 He stood—not stood, was standing, had always been standing—in the center where his own name grew. Not Ethan, not Stone, but the other one, the hidden one, the one that meant wrestling with something that wouldn't let go, wouldn't let win, wouldn't let lose, only struggle forever in a grip that was somehow also an embrace.
 
-"Israel," the garden said, not speaking but being speech, existence itself pronouncing what he'd hidden. "Israel, Israel, Israel."
+"Israel," the garden said, existence itself pronouncing what he'd hidden.
 
-Each repetition made the plants grow brighter, not with light but with something light represented, something light pointed toward, something light failed to contain but tried anyway, the way words failed to contain meaning but tried anyway, the way names failed to contain souls but tried anyway.
+The name made the plants grow brighter—not with light but with what light represented, what it pointed toward but couldn't contain.
 
 The trees began burning.
 
-Not consumed but burning, flame that fed on nothing, destroyed nothing, only revealed what was already there—the skeleton of creation beneath creation's flesh, the mathematics of existence calculated in fire, every leaf a letter, every branch a word, every trunk a sentence in a story that had been telling itself since before stories, before telling, before the difference between fire and fuel, light and darkness, name and named.
+Not consumed but burning, flame that destroyed nothing, only revealed what was already there—every leaf a letter, every branch a word, every trunk a sentence in a story older than stories themselves.
 
 "Ethan Israel Stone."
 
@@ -104,11 +102,11 @@ His hand against warm limestone, pulse beneath rock, heartbeat of the world, and
 
 "What light?"
 
-"The light that's hidden. Or HaGanuz. The light from the first day before there were days, before there was a sun to make light, when light was not illumination but creation itself saying 'I am.'"
+"Or HaGanuz. The hidden light from the first day, before there was a sun, when light was creation itself saying 'I am.'"
 
 "I don't understand."
 
-"You will. After tomorrow, you will. After the breaking. After the wrestling. After you remember that your name is not Ethan hiding from Stone, but Israel wrestling with everything, wrestling with nothing, wrestling with the space between everything and nothing where God lives, where you live, where we all live when we remember we're alive."
+"You will. After tomorrow. After the breaking. After you remember that your name is not Ethan hiding, but Israel—wrestling with the space between everything and nothing."
 
 The dream shattered—not ended but shattered, each piece becoming its own dream, fractals of vision multiplying into incomprehension that was somehow more true than comprehension, the way breaking was more true than wholeness, the way questions were more true than answers.
 
@@ -126,9 +124,9 @@ He stumbled to the bathroom, pissed, washed his face, looked in the mirror at fe
 
 Back to bed, but sleep came different now—not falling but floating, not unconscious but conscious of being unconscious, aware of dreaming while dreaming, lucid in the way the dying are lucid, seeing both sides of something that only has one side that looks like two sides from the middle where everyone lives until they don't.
 
-No more dreams. Or no more dreams that could be remembered, described, distinguished from the space between dreams where his grandmother sat—not sat, had always been sitting—at a table set for Sabbath, candles lit, bread covered, wine waiting, everything waiting, had been waiting, would wait until waiting became arriving, became returning, became the thing waited for recognizing it had always been there, just hidden, like light before God said let there be light, present but not pronounced, existing but not experienced.
+No more dreams that could be remembered. Only the space between dreams where his grandmother sat at a Sabbath table, candles lit, wine waiting. Everything waiting until waiting became returning—like light before God said let there be light, present but not pronounced.
 
-"Soon," she said or didn't say, he heard or didn't hear, in languages that weren't languages but were what languages tried to be—direct transmission, soul to soul, the wifi of genealogy, the broadband of blood, the connection that couldn't be severed only ignored, only forgotten, only remembered when the world broke enough for memory to enter through the cracks.
+"Soon," she said in languages that weren't languages—direct transmission, soul to soul, the connection that couldn't be severed, only forgotten until the world broke enough for memory to enter through the cracks.
 
 ---
 
@@ -140,7 +138,7 @@ His phone: completely dead. Not drained but dead, the way electronics died when 
 
 Shower. Coffee. The rituals of Saturday morning except it was too early for Saturday, too late for Friday, that liminal time when night shift workers passed day shifters, when drunks passed joggers, when the city changed guards, changed personalities, changed from who it was in darkness to who it'd pretend to be in light.
 
-The candlesticks no longer glowing, just brass again, just inheritance tarnishing on a counter that needed cleaning, in an apartment that needed air, in a life that needed something he couldn't name in English, in Hebrew, in any language humans had invented to explain why they needed languages at all.
+The candlesticks no longer glowing—just brass again, inheritance tarnishing on a counter in a life that needed something he couldn't name in any language.
 
 His phone finishing its resurrection. The apple becoming screen becoming notifications becoming—
 
@@ -159,11 +157,9 @@ His phone began to buzz.
 
 Not one notification but dozens, hundreds, a flood of breaking news, broken news, news that broke everything, the buzz becoming roar becoming scream becoming the sound the world makes when it discovers it's been wrong about the world, when it learns that distance is illusion, that safety is temporary, that inheritance includes not just candlesticks but catastrophe, not just tradition but trauma, not just the light but the darkness the light was made to illuminate.
 
-But for this moment—this last moment before knowledge, before horror, before the world divided into before and after—Ethan Stone sat on the edge of his bed in Brooklyn, his grandmother's candlesticks waiting in the kitchen like witnesses, like warnings, like promises that even in the darkness that was coming, especially in the darkness that was coming, there was light.
+But for this moment—this last moment before the world divided into before and after—Ethan Stone sat on the edge of his bed in Brooklyn, his grandmother's candlesticks waiting in the kitchen.
 
-Hidden light.
-Ancient light.
-Light that would have to be found, fought for, wrestled from the darkness like a name from an angel, like meaning from catastrophe, like his own true name from the grave of assimilation where he'd buried it.
+There would be light in the darkness coming. Hidden light that would have to be wrestled from catastrophe like a name from an angel.
 
 Israel.
 The wrestling was about to begin.
