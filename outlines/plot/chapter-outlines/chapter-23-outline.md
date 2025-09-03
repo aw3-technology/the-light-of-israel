@@ -11,7 +11,7 @@ Ethan confronts the Holocaust in Berlin. Visits memorials, meets elderly survivo
 ## Setting
 - **Primary Location**: Berlin - Holocaust Memorial, Jewish Museum, Platform 17
 - **Secondary Location**: Wannsee House, Hannah's apartment, new synagogue
-- **Time**: November 30 - December 2, 2023
+- **Time**: April 2024 (Near Pesach/Passover)
 - **Atmosphere**: Calculated evil's remnants, impossible recovery
 
 ## POV

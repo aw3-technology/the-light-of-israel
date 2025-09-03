@@ -11,7 +11,7 @@ Ethan returns to Israel transformed after his 40-day journey through exile. Sera
 ## Setting
 - **Primary Location**: Ben Gurion Airport, Jerusalem
 - **Secondary Location**: Sera's apartment, Rabbi's study, Western Wall
-- **Time**: December 10, 2023 (Fifth night of Hanukkah)
+- **Time**: June 2024 (Shavuot period)
 - **Atmosphere**: Homecoming, integration, choosing
 
 ## POV

@@ -11,7 +11,7 @@ Ethan begins the practical process of making aliyah. Hebrew lessons, job hunting
 ## Setting
 - **Primary Location**: Jerusalem absorption center, Ulpan (Hebrew school)
 - **Secondary Location**: Construction site, Sera's apartment
-- **Time**: December 2023 - February 2024
+- **Time**: July 2024
 - **Atmosphere**: Grinding transformation, practical mysticism
 
 ## POV

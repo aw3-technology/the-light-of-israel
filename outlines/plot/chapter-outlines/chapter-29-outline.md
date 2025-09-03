@@ -11,7 +11,7 @@ Aaron surprises Ethan by arriving in Jerusalem, having undergone his own identit
 ## Setting
 - **Primary Location**: Jerusalem - their apartment, streets, parks, holy sites
 - **Secondary Location**: Ethan's tech office, markets, playgrounds
-- **Time**: Summer 2024 (Ethan recently returned)
+- **Time**: October 2024 (One year anniversary of attacks)
 - **Atmosphere**: Tentative reunion, two lions circling
 
 ## POV

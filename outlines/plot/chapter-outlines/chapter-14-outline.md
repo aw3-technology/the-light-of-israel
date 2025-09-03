@@ -11,7 +11,7 @@ Ethan arrives in Tel Aviv in November 2023. The modern city surprises him—star
 ## Setting
 - **Primary Location**: Tel Aviv - Ben Gurion Airport, hotel, beach, streets
 - **Secondary Location**: Taxi ride through city
-- **Time**: November 8, 2023, early morning arrival
+- **Time**: Mid-November 2023, early morning arrival
 - **Atmosphere**: Grief-tinged vitality, ancient newness, salt and sun
 
 ## POV

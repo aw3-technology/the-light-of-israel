@@ -11,7 +11,7 @@ Sera gives birth to twins during Passover. Ethan navigates fatherhood, brit mila
 ## Setting
 - **Primary Location**: Hadassah Hospital, Jerusalem
 - **Secondary Location**: Their new apartment, synagogue
-- **Time**: April 2024 (Passover/Pesach)
+- **Time**: August 2024
 - **Atmosphere**: Life insisting despite everything
 
 ## POV

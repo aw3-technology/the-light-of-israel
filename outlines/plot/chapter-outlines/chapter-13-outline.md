@@ -11,7 +11,7 @@ Ethan witnesses dueling protests in NYC—pro-Israel and pro-Palestinian demonst
 ## Setting
 - **Primary Location**: Columbus Circle, Manhattan
 - **Secondary Location**: Subway between protests, walk through Central Park
-- **Time**: Saturday, October 21, 2023
+- **Time**: Early November 2023
 - **Atmosphere**: Charged confrontation, ideological warfare made physical
 
 ## POV

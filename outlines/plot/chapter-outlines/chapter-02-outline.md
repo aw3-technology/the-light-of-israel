@@ -11,8 +11,8 @@ Ethan navigates the hollow world of app dating in NYC, going on a date with Rach
 ## Setting
 - **Primary Location**: Trendy Brooklyn wine bar called "Terroir" in Park Slope
 - **Secondary Locations**: Ethan's apartment (pre-date), Uber rides
-- **Time**: Friday evening, September 29, 2023, 7:30 PM
-- **Atmosphere**: Artificial intimacy, performative connection, Friday night as secular ritual
+- **Time**: Tuesday evening, September 26, 2023, 7:30 PM
+- **Atmosphere**: Artificial intimacy, performative connection, Tuesday night attempt at meaning
 
 ## POV
 Third person intimate, Ethan's perspective

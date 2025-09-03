@@ -11,7 +11,7 @@ Rabbi Levi introduces Ethan to Kabbalah—the mystical dimension of Judaism. Thr
 ## Setting
 - **Primary Location**: Rabbi's study, filled with sacred texts
 - **Secondary Location**: Ethan's apartment, late night study
-- **Time**: Thursday evening, October 19, 2023
+- **Time**: October 21-31, 2023
 - **Atmosphere**: Intimate teaching, reality expanding
 
 ## POV

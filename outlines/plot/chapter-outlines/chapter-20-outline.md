@@ -11,7 +11,7 @@ After deep immersion in Israel, Ethan receives a calling to visit the sites of J
 ## Setting
 - **Primary Location**: Rabbi's study, Jerusalem
 - **Secondary Location**: Sera's apartment, travel agency
-- **Time**: Tuesday, November 21, 2023
+- **Time**: January 2024
 - **Atmosphere**: Bittersweet preparation, divine mission clarity
 
 ## POV

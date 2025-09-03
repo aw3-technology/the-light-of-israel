@@ -11,7 +11,7 @@ Sera takes Ethan to the Dead Sea—the lowest point on earth—for spiritual and
 ## Setting
 - **Primary Location**: Dead Sea, Ein Bokek beach
 - **Secondary Location**: Masada fortress, Qumran caves area
-- **Time**: Friday, November 17, 2023
+- **Time**: Late December 2023
 - **Atmosphere**: Primordial, healing, outside of time
 
 ## POV

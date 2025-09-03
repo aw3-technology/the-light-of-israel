@@ -11,7 +11,7 @@ Back with Rabbi Levi in Jerusalem, Ethan studies the Kabbalistic understanding o
 ## Setting
 - **Primary Location**: Rabbi's study, Jerusalem
 - **Secondary Location**: Mount of Olives overlook
-- **Time**: Thursday evening, November 16, 2023
+- **Time**: December 2023 (During Hanukkah)
 - **Atmosphere**: Heavy with learning, ancient wisdom meeting fresh trauma
 
 ## POV

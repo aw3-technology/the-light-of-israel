@@ -11,7 +11,7 @@ Ethan confronts Rome—the empire that destroyed the Temple and scattered the Je
 ## Setting
 - **Primary Location**: Rome - Forum, Arch of Titus, Jewish ghetto, Vatican
 - **Secondary Location**: Trastevere synagogue, Michele's restaurant
-- **Time**: November 27-29, 2023
+- **Time**: March 2024 (Near Purim)
 - **Atmosphere**: Imperial weight, hidden Jewish persistence
 
 ## POV

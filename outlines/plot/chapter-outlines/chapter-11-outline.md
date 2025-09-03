@@ -11,7 +11,7 @@ After meeting with Rabbi Levi, Ethan is flooded with bar mitzvah memories. What 
 ## Setting
 - **Primary Location**: Ethan's apartment, deep in memory
 - **Secondary Location**: Flashbacks to 2003 bar mitzvah (Temple Beth El, Westchester)
-- **Time**: Tuesday evening, October 17, 2023
+- **Time**: October 16-20, 2023
 - **Atmosphere**: Past haunting present, nostalgia mixed with regret
 
 ## POV

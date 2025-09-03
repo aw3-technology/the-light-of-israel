@@ -11,7 +11,7 @@ Ethan arrives in Athens, confronting Hellenism—the first great challenge to Ju
 ## Setting
 - **Primary Location**: Athens - Acropolis, Plaka district, synagogue
 - **Secondary Location**: University, professor's home
-- **Time**: November 24-26, 2023
+- **Time**: February 2024
 - **Atmosphere**: Ancient philosophy meeting modern tourism
 
 ## POV

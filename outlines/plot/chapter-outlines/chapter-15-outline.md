@@ -5,7 +5,7 @@ Ethan enters Jerusalem for the first time, overwhelmed by the ancient city's lay
 
 ## Setting
 - **Primary Location**: Jerusalem - journey from Tel Aviv, Old City, Shabbat dinner
-- **Time**: Friday afternoon into evening
+- **Time**: Late November 2023
 - **Atmosphere**: Ancient weight, golden stone, sacred anticipation
 
 ## POV

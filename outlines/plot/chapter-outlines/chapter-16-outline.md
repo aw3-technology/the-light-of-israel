@@ -11,7 +11,7 @@ Sera guides Ethan to the Western Wall at dawn. Ethan experiences his first genui
 ## Setting
 - **Primary Location**: The Western Wall (Kotel), Jerusalem
 - **Secondary Location**: Jewish Quarter streets, underground tunnels
-- **Time**: Sunday dawn, November 12, 2023
+- **Time**: November 25, 2023 (Shabbat)
 - **Atmosphere**: Sacred electricity, ancient presence, divine proximity
 
 ## POV

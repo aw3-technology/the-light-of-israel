@@ -11,7 +11,7 @@ Sera takes Ethan south to the sites of October 7th attacks—the Nova festival g
 ## Setting
 - **Primary Location**: Southern Israel - Negev Desert, Gaza periphery
 - **Secondary Location**: Destroyed kibbutz, Nova festival site
-- **Time**: Monday, November 13, 2023
+- **Time**: Early December 2023
 - **Atmosphere**: Haunted landscape, terrible beauty, sacred grief
 
 ## POV

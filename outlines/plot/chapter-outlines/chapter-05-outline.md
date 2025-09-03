@@ -11,7 +11,7 @@ Walking through Brooklyn triggers unexpected memories of Ethan's grandmother and
 ## Setting
 - **Primary Location**: Brooklyn streets, various locations throughout the day
 - **Secondary Location**: Flashback scenes to childhood (Long Island, grandmother's house)
-- **Time**: Friday, September 29, 2023
+- **Time**: Saturday, September 30, 2023 (Grandmother's yahrzeit)
 - **Atmosphere**: Present mundane pierced by past sacred
 
 ## POV

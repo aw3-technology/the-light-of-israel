@@ -11,7 +11,7 @@ Ethan completes his exile journey in Egypt, where Jewish exile began. Visits pyr
 ## Setting
 - **Primary Location**: Cairo - pyramids, old Jewish quarter, last synagogue
 - **Secondary Location**: Mount Sinai region, Red Sea crossing point
-- **Time**: December 6-9, 2023 (Hanukkah begins)
+- **Time**: May 2024
 - **Atmosphere**: Ancient slavery echoing, modern hostility, desert revelation
 
 ## POV

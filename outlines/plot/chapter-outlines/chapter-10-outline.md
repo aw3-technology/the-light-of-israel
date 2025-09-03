@@ -5,7 +5,7 @@ Ethan meets Rabbi Levi Ben-David, a warm but enigmatic Kabbalist who becomes his
 
 ## Setting
 - **Primary Location**: Rabbi's study in Upper West Side synagogue
-- **Time**: Tuesday evening, mid-October 2023
+- **Time**: Sunday, October 15, 2023
 - **Atmosphere**: Warm, book-lined, timeless
 
 ## POV

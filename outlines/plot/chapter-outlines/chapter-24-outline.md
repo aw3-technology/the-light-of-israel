@@ -11,7 +11,7 @@ Ethan visits Auschwitz-Birkenau, then travels to his grandmother's shtetl (now e
 ## Setting
 - **Primary Location**: Auschwitz-Birkenau
 - **Secondary Location**: Kraków, grandmother's shtetl (Brzeziny)
-- **Time**: December 3-5, 2023
+- **Time**: April 2024 (During Passover)
 - **Atmosphere**: Absence so present it has weight
 
 ## POV

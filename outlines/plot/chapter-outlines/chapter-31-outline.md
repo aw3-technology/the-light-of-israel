@@ -11,7 +11,7 @@ Through mysterious circumstances, Ethan gains access to the Temple Mount at dawn
 ## Setting
 - **Primary Location**: Temple Mount/Haram al-Sharif
 - **Secondary Location**: Al-Aqsa Mosque exterior, Dome of Rock
-- **Time**: Dawn, Sukkot 2024
+- **Time**: Spring 2026
 - **Atmosphere**: Timeless, all times at once
 
 ## POV

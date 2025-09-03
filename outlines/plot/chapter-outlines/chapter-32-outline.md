@@ -11,7 +11,7 @@ Ethan begins teaching what he's learned. Small study group in Jerusalem. Shares 
 ## Setting
 - **Primary Location**: Rabbi Levi's study, full circle
 - **Secondary Location**: Their apartment, park for birthday
-- **Time**: October 2025 (Two years after October 7)
+- **Time**: Summer 2026
 - **Atmosphere**: Wisdom transmitting, generations connecting
 
 ## POV
