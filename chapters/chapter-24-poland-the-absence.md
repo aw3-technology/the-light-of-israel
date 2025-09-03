@@ -34,13 +34,11 @@ The song pulled something from Ethan's chest, words he didn't remember learning 
 
 ## Kraków's Ghosts
 
-The Jewish Quarter of Kraków—Kazimierz—had become what Europe did with Jewish absence: a theme park. Synagogues converted to museums. "Jewish-style" restaurants serving "traditional" food to tourists seeking authenticity in a culture that existed now only in quotation marks. Hipster cafes in buildings where Torah was once chanted. Art galleries where ritual baths had been.
+Kazimierz—Kraków's Jewish Quarter—had become what Europe did with Jewish absence: a theme park. "Jewish-style" restaurants, hipster cafes in former prayer houses. Of 65,000 Jews before the war, maybe 200 remained.
 
-Ethan walked streets where 65,000 Jews had lived before the war. Now maybe 200 remained, most of them elderly, the epilogue to a thousand-year story. The absence was so present it had weight, like dark matter, invisible but bending everything around it.
+In the Old Synagogue museum, a guest book entry stopped him cold: "Looking for anyone who knew the Steinbergs from Brzeziny. I am the only one left."
 
-In the Old Synagogue, now a museum, he found a guest book. Visitors had written messages in dozen languages, but one stopped him cold: "Looking for anyone who knew the Steinbergs from Brzeziny. I am the only one left."
-
-Dated three months ago. No contact information. Just another ghost seeking ghosts in a city of absences.
+Three months old. No contact. Another ghost seeking ghosts.
 
 ## The Journey to Brzeziny
 
@@ -64,7 +62,7 @@ The man looked up with eyes that held eighty years of solitude. "I am the last,"
 
 The world tilted. "You knew my grandmother?"
 
-"Knew her? I loved her. We all did. Such life in her! She could make the whole shul laugh during Purim, even Rabbi Mendel who never smiled. She left in 1938 for America. The lucky ones left. The wise ones left. The rest of us..."
+"Knew her? I loved her. We all—no, that's not right. I was too young to love anyone. But I remember... She could make the whole shul laugh during Purim, even Rabbi Mendel who never—" He stopped, confused. "Or was that her sister Mindel? Sometimes I... the faces blur. Forgive me. Eighty years is too long to remember clearly."
 
 Stanisław stood with difficulty, his body carrying more than its own weight. "Come. You came to see what isn't here. I'll show you where it was."
 
@@ -84,7 +82,7 @@ The house was modest, white-washed, with windows that had watched everything and
 
 "Why did you stay?"
 
-Stanisław looked at him as if the question made no sense. "Someone has to remember where things were. Someone has to say Kaddish. Someone has to be the epilogue."
+Stanisław opened his mouth, closed it. "I don't know. I tell myself someone has to remember, someone has to—" His voice cracked. "Maybe I was just too afraid to leave. Maybe I'm not the epilogue. Maybe I'm just the one who couldn't turn the page."
 
 ## The Forest
 
@@ -92,7 +90,7 @@ The road to the forest was unpaved, unwanted, leading nowhere anyone wished to g
 
 The clearing was unmarked except for a stone Stanisław had placed there himself in 1962, when he'd finally saved enough money. Simple Polish on one side: "Here lie 2,000 Jews of Brzeziny." Hebrew on the other: "May their memory be a blessing."
 
-"October 28, 1942," Stanisław said. "I watched from the Nowaks' attic window. The whole town marched past. Everyone. Babies, grandmothers, the rabbi, the doctor, the fools, the wise, everyone. They made them dig. Then they shot them. Layer by layer. It took all day. The Germans were very efficient, but killing two thousand people still takes time."
+"October 28, 1942," Stanisław said. "I watched from the Nowaks' attic. The whole town marched past. Everyone. They made them dig. Then—" He stopped, swayed slightly. "I shouldn't have watched. A child shouldn't see... But I watched. All day. I can't remember their faces anymore, but I remember the sound. Is that terrible? That I remember the sound but not the faces?"
 
 The trees around the clearing stood like witnesses, their silence so complete it seemed intentional. No birds here. No wind. Nature itself holding its breath.
 
@@ -114,7 +112,7 @@ Stanisław produced a flashlight, its beam revealing carved stone, Hebrew letter
 
 "It's been abandoned for eighty years," Ethan said. "How is there still water?"
 
-"How is there still a Jew in Brzeziny? How are you here, grandson of Rivka who left? Some things persist without reason."
+"How is there still a Jew in Brzeziny? How are you here, grandson of Rivka who—" He paused, uncertain. "It was Rivka, wasn't it? Rivka Steinberg? Sometimes I worry I've invented her, that I've been alone so long I'm remembering people who never existed. But you're here. So she was real. Wasn't she?"
 
 Ethan looked at the water, his reflection fractured by flashlight beam into multiple selves—the American who'd arrived, the Jew he was becoming, the grandson returning to say goodbye.
 
@@ -132,8 +130,6 @@ The earth was frozen, black with decomposition, heavy with presence of absence. 
 
 "Until I join them," Stanisław replied. "Then no one will remember where the butcher shop was. No one will know that Mindel laughed like bells. No one will say Kaddish in the forest. But you came. Rivka's grandson came. That's enough. Sometimes one witness is enough."
 
-## Warsaw Airport
-
 Security examined the bag of earth with suspicion. "What is this?"
 
 "It's my family," Ethan said in Polish that came from nowhere, from the same place as the Hebrew, as the Kaddish, as the tears that hadn't stopped since the mikvah.
@@ -150,11 +146,9 @@ She responded with just a heart emoji.
 
 He understood. Some things have no words. Some absences are so complete they become their own presence. Some birds sing at Auschwitz because they don't know not to, and that ignorance is either the world's cruelty or its grace, and after walking through the geography of erasure, Ethan could no longer tell the difference.
 
-Through the airplane window, Poland disappeared into cloud, into distance, into the kind of past that never passes. In his lap, the earth of Brzeziny weighed exactly as much as two thousand names, as one grandmother's escape, as the difference between those who left in 1938 and those who stayed until 1942, which was all the difference in the world, which was no difference at all, which was the arithmetic of accident that determined who sang Kaddish and who became Kaddish, who carried earth and who became earth.
+Through the airplane window, Poland disappeared. In his lap, the earth of Brzeziny weighed exactly as much as two thousand names, as the arithmetic of accident that determined who sang Kaddish and who became Kaddish.
 
-The birds at Auschwitz sang because that's what birds do. The water in the mikvah persisted because that's what water does. Stanisław remained because someone had to. Ethan had come because someone had to. The prayer continued because prayers do that—they outlive the mouths that speak them, the ears that hear them, the God who may or may not be listening.
-
-Memory is a kind of resistance. Forgetting is a kind of death. And sometimes, in the space between the two, an American Jew stands in a Polish forest saying Aramaic words over unmarked graves, and for a moment—just one moment—the absence becomes presence, the silence becomes speech, and two thousand voices whisper their thanks into the frozen air, saying: we were here, we mattered, we are remembered, our names are spoken, our absence is marked, our erasure is refused.
+The birds at Auschwitz sang because that's what birds do. The water in the mikvah persisted. Stanisław remained. Memory resisted. Forgetting was death. And sometimes an American Jew stands in a Polish forest saying Aramaic words over unmarked graves, and for one moment the absence becomes presence, two thousand voices whisper: we were here, we mattered, we are remembered.
 
 This too is Torah.
 

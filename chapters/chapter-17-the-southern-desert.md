@@ -2,7 +2,7 @@
 
 The road to the Gaza border was lined with memorial candles that hadn't been there a month ago.
 
-Monday morning, November 13th, and Sera drove in silence through the Negev while Ethan watched Jerusalem recede in the side mirror, the city's limestone and light giving way to something older, rawer—desert that remembered everything, that held Abraham's footsteps and yesterday's blood with equal gravity. The car's air conditioning wheezed against heat that pressed through windows like a living thing. His water bottle was already half empty, plastic warm against his lips.
+Monday morning, November 15th, and Sera drove in silence through the Negev while Ethan watched Jerusalem recede in the side mirror, the city's limestone and light giving way to something older, rawer—desert that remembered everything, that held Abraham's footsteps and yesterday's blood with equal gravity. The car's air conditioning wheezed against heat that pressed through windows like a living thing. His water bottle was already half empty, plastic warm against his lips.
 
 "You need to see where it happened," Sera had said at dawn, finding him on the balcony where he'd been watching the sun rise over the Old City. "The news, the videos—they're not enough. You need to stand there."
 
@@ -26,7 +26,7 @@ The soldier looked at Ethan again, something shifting in his young face—not su
 
 "Yes."
 
-"It's not like the videos." He handed back the passport. "It's worse."
+He handed back the passport, said nothing more.
 
 They were waved through. The road continued south, emptier now, the traffic thinning to essential vehicles—military, medical, media, and the strange new category of pilgrim-witnesses like them, drawn to ground zero of a trauma still radiating outward.
 
@@ -34,7 +34,7 @@ They were waved through. The road continued south, emptier now, the traffic thin
 
 The Nova festival site appeared first as an absence—an empty field that should have been empty but somehow wasn't, as if the ghost of gathering still haunted the space. Cars pulled over along the access road. People stood in small groups or alone, facing the field like it was a temple wall.
 
-Sera parked. The heat hit immediately, different from Jerusalem's dry embrace—this was desert heat that pulled moisture from your eyes, throat, soul. A scorpion scuttled past Ethan's foot, disappearing into a crack in the earth—the desert's reminder that danger came in all sizes. The field stretched before them, dotted now with memorials that hadn't been there five weeks ago: photographs on stakes driven into the earth, flowers already withered to paper, candles that kept going out in the wind but were immediately relit by strangers who understood that some flames couldn't be allowed to die. The smell hit him—not death anymore, but something else: melted plastic, burned fabric, and underneath it all, sage growing wild at the field's edges, incongruously alive.
+Sera parked. The heat hit immediately, different from Jerusalem's dry embrace—this was desert heat that pulled moisture from your eyes, throat, soul. The field stretched before them, dotted now with memorials that hadn't been there five weeks ago: photographs on stakes driven into the earth, flowers already withered to paper, candles that kept going out in the wind but were immediately relit by strangers who understood that some flames couldn't be allowed to die. The smell hit him—not death anymore, but something else: melted plastic, burned fabric, and underneath it all, sage growing wild at the field's edges, incongruously alive.
 
 Ethan walked among the photos. Young faces, beautiful faces, faces caught mid-laugh or mid-dance or mid-kiss. Each one had woken up on October 7th expecting sunrise and music and the particular joy of dancing in the desert until your body became prayer. Instead, they'd become unwilling martyrs in someone else's holy war.
 
@@ -46,23 +46,23 @@ Ethan's stomach turned. He made it to a portable toilet—one of the few left fr
 
 Inside the portable toilet, graffiti in Hebrew he couldn't read. A phone number. Someone had been hiding here, Sera would tell him later. Calling family. The last call.
 
-Three doves burst from somewhere, their wings catching light as they spiraled upward. Sera watched them until they disappeared into the sun's glare. "Let's go to Be'eri," she said. "Yossi is waiting."
+"Let's go to Be'eri," Sera said. "Yossi is waiting."
 
 "Who's Yossi?"
 
-"Former Mossad. Retired to grow avocados. Now he gives tours of his burned house." Her laugh was bitter. "He says it's his new mission—making sure people see what survival actually costs."
+"Retired here twenty years ago to grow avocados. Now he gives tours of his burned house." Her laugh was bitter. "He says it's his new mission—making sure people see what survival actually costs."
 
 Be'eri Kibbutz sat twelve minutes from the festival site. Twelve minutes. The distance you might drive for coffee. The proximity broke something in Ethan's understanding of geography, of safety, of how close death could dance to life.
 
-The kibbutz entrance was wrong—not destroyed, but wrong in the way things are wrong when they've witnessed what they weren't built to witness. Guard booth empty. Gate open. The pastoral becoming portal to horror.
+The kibbutz entrance was wrong—not destroyed, but wrong in the way things are wrong when they've witnessed what they weren't built to witness. Guard booth empty. Gate open. The pastoral gateway abandoned.
 
-Yossi met them at what used to be the community center. Mid-sixties, work clothes that had seen better decades, hands that had built things and grown things and—Ethan noticed the subtle scars on his knuckles—had done other things in younger years. His left eye didn't quite track with his right—old injury, maybe Lebanon, maybe somewhere classified.
+Yossi met them at what used to be the community center. Mid-sixties, work clothes that had seen better decades, hands that had built things and grown things. His left eye didn't quite track with his right—old injury, maybe from his years in security, maybe from farming.
 
 "You're the American," he said to Ethan. Not a question.
 
 "I'm... yes."
 
-"Good. CNN didn't show you this." He turned and started walking, then stopped. "Your shoes—city shoes. Watch for glass. Also snakes. The burned houses brought out snakes." He almost smiled. "Even the desert creatures know when territory opens up."
+He turned and started walking, then stopped. "Your shoes—city shoes. Watch for glass. Also snakes. The burned houses brought out snakes." He almost smiled. "Even the desert creatures know when territory opens up."
 
 The first house looked almost normal until you noticed. Bullet holes like inverse constellations across the walls. Windows not broken but melted—fire from inside having turned glass to modern art nobody wanted. Children's bicycles in the yard, rubber tires pooled into shapes that didn't belong in the same world as children.
 
@@ -74,7 +74,7 @@ They walked through the kibbutz—past a playground where swings moved in wind t
 
 The safe room door hung off its hinges. Inside, char marks climbed walls like negative ivy. On one wall, low down where a child might reach, a handprint burned into the paint.
 
-"My daughter," Yossi said, his matter-of-fact tone finally cracking. "Eight years old. She put her hand on the wall while they were burning the door. Trying to feel if it was getting hotter. Smart girl. Always thinking. Gets it from her mother—the physicist, not the soldier."
+"My daughter," Yossi said, his matter-of-fact tone holding steady. Then he stopped, swallowed hard. "Eight years old. She put her hand on the wall while they were burning the door. Trying to feel if it was getting hotter. Smart girl. Always thinking. Gets it from her mother—the physicist, not the soldier."
 
 Ethan couldn't speak. Couldn't breathe. The handprint was so small.
 
@@ -84,7 +84,7 @@ They stood in the burned room while outside a dog barked somewhere, the sound so
 
 "Why do you stay?" Ethan finally managed.
 
-Yossi looked at him like he'd asked why humans breathed oxygen. "This is home. They wanted us to run. So we stay. We rebuild. We plant new gardens. Also," he shrugged with gallows humor, "you know what Tel Aviv apartments cost? I have two hectares here. Four bedrooms. Where else would an old spy grow avocados?" He touched the burned handprint gently, like touching his daughter's actual hand. "She wants to paint her new room purple. Eight years old and already she knows—you paint over the darkness, you don't let it win. Though she also wants a panic room with Wi-Fi. Smart girl."
+Yossi looked at him like he'd asked why humans breathed oxygen. "This is home. They wanted us to run. So we stay. We rebuild. We plant new gardens. Also," he shrugged with gallows humor, "you know what Tel Aviv apartments cost? I have two hectares here. Four bedrooms. Where else would an old farmer have such space?" He touched the burned handprint gently, like touching his daughter's actual hand. "She wants to paint her new room purple. Eight years old and already she knows—you paint over the darkness, you don't let it win. Though she also wants a panic room with Wi-Fi. Smart girl."
 
 They left the kibbutz as afternoon sun slanted across the desert, turning everything gold in that way that made photographers weep and survivors suspicious of beauty. A military helicopter passed overhead, low enough that Ethan could see the door gunner—kid who looked like he should be playing video games, not manning an actual gun. The vibration shook the car, set Ethan's teeth rattling. His hands were shaking too—delayed reaction or present fear, he couldn't tell.
 
@@ -92,7 +92,7 @@ Sera drove toward the Gaza border, the fence appearing first as a line on the ho
 
 She pulled over at a rise where you could see into Gaza itself. Buildings, roads, lives continuing or trying to continue. Smoke rose from somewhere—cooking, burning, signaling, who knew. The distance was nothing. Less than nothing. You could throw a stone. Children on both sides probably had, before stones became rockets became raids became October 7th.
 
-"My cousin lived there once," Sera said, looking across the fence. "In Gaza. Jewish family, before 2005. She had Palestinian friends. They shared recipes—there's this thing with sumac and yogurt I still make. Their children played together." She was quiet for a long moment. "I don't know what happened to those friends. I can't ask. Though sometimes I dream they're asking about us too, wondering if we survived October 7th. Wondering if we blame them. Wondering if their yogurt recipe survived in our kitchen even if nothing else did."
+"My cousin lived there once," Sera said, looking across the fence. "In Gaza. Jewish family, before 2005. She had Palestinian friends. They shared recipes—there's this thing with sumac and yogurt I still make. Their children played together." She was quiet for a long moment. "I don't know what happened to those friends. I can't ask."
 
 The sun was setting now, desert light performing its daily miracle of making everything look holy, even this scarred landscape, even this fence between cousins, even Ethan's face reflected in the car window—tear-tracked, dust-covered, forever changed.
 

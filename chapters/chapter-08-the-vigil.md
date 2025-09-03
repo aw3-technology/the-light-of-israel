@@ -22,7 +22,7 @@ Ethan stood though seats emptied around him. The metal rail was cold under his p
 
 The walk from the station took forever and no time at all. The October wind carried the smell of burning leaves from somewhere, though there were no trees burning in Manhattan, just candles—hundreds of them already visible as he turned onto Washington Square Park South.
 
-The Washington Square Arch, usually lit by streetlamps, now flickered with candlelight reflected in its marble. The crowd at 6:47 was already thick—bodies pressed close enough that Ethan could smell someone's lavender perfume mixing with the smoke from havdalah candles someone had brought, the wrong ritual for the wrong time but who was keeping track anymore?
+The Washington Square Arch, usually lit by streetlamps, now flickered with candlelight reflected in its marble. The crowd was already thick—bodies pressed close enough that Ethan could smell someone's lavender perfume mixing with the smoke from havdalah candles someone had brought, the wrong ritual for the moment—and somehow right anyway.
 
 A hand materialized holding a yahrzeit candle—thick glass, the kind you buy at Key Food for $2.99. The woman attached to it had deep-set eyes behind wire-rimmed glasses, a scar running through her left eyebrow. She didn't speak, just touched her flame to his wick. The fire jumped between them, and she was gone before he could thank her.
 
@@ -36,7 +36,7 @@ She pressed something into his hand—a photocopied sheet with Hebrew songs tran
 
 "Acheinu kol beit yisrael." The prayer for captives. An older man with a Zabar's tote bag was leading it, his voice cracking on the high notes. Behind him, someone muttered that this wasn't the right prayer, that they should be saying Kaddish, but the man kept going, stubborn or deaf or both.
 
-The speeches began late—7:08 by Ethan's phone. Someone had brought a portable PA system that kept cutting out, making the speakers sound like they were broadcasting from underground. The mic cord was patched with silver duct tape that caught the candlelight.
+The speeches began late. Someone had brought a portable PA system that kept cutting out, making the speakers sound like they were broadcasting from underground. The mic cord was patched with silver duct tape that caught the candlelight.
 
 A man in a Knicks jersey took the microphone, the sports logo jarring against his grief: "My sister is still missing. Noa. She's twenty-four. She was at the music festival." His voice broke. "She texted me a video of the sunrise. Then nothing."
 
@@ -48,25 +48,19 @@ The rabbi wore jeans under his tallit, Adidas sneakers that had seen better days
 
 "We are here because—" The mic squealed. He adjusted it, tried again. "We are here because we don't know where else to be. Some of you believe in God. Some don't. Some did yesterday but don't today. That's okay. Tonight we're not here for God. We're here for each other."
 
-The "still" echoed across the park, caught by buildings, reflected back, becoming a rhythm—still here, still here, still here—that merged with heartbeats, with breath, with the sound New York makes when it stops being noise and becomes witness.
-
 The counter-protesters had been there all along, Ethan realized—he just hadn't noticed them until their drum started. A djembe, played with professional skill. Their signs were LED-lit, battery-powered, impossible to ignore: "RESISTANCE IS NOT TERRORISM." "FROM THE RIVER TO THE SEA." One girl who couldn't be older than nineteen held a poster with photos of dead Palestinian children.
 
-Half the Jewish crowd turned to look. The other half deliberately didn't. A young woman in a Hebrew University sweatshirt shouted back: "Today? Really? TODAY?" An older man grabbed her arm, hissing something about not giving them what they wanted.
+Half the Jewish crowd turned to look. The other half deliberately didn't. A young woman in a Hebrew University sweatshirt shouted: "Today? Really? TODAY?"
 
-"They have a right to protest," said a woman with a Peace Now button on her bag.
+"They have a right to protest," said a woman with wire-rimmed glasses.
 
-"Not today they don't," someone shot back.
+"Not today they don't."
 
-"So when? When is it convenient for us to hear about—"
+"Our people are still missing!"
 
-"Our people are still missing! The bodies aren't even cold!"
+"And Palestinian bodies?"
 
-"And Palestinian bodies? They're cold enough?"
-
-The argument rippled through the crowd, fracturing what had felt unified moments before.
-
-A man with a "Jewish Voice for Peace" sticker on his jacket stepped away from the vigil, toward the protesters. Others pulled him back, a brief scuffle of elbows and harsh whispers. Someone called him a traitor. Someone else called the first someone a fascist. The word hung in the air like a struck match.
+The argument rippled through the crowd, fracturing what had felt unified. A man stepped away from the vigil toward the protesters. Others pulled him back, a brief scuffle of elbows and harsh whispers. Someone called him a traitor. Someone else called the first someone a fascist. The word hung in the air like a struck match.
 
 The rabbi's voice cracked through the PA system: "Please. Please. We're losing each other here." But his words were drowned out by competing chants—"Am Yisrael Chai" from one side, "Free Palestine" from the other, and in the middle, people just trying to say Kaddish for the dead who deserved better than becoming political props.
 
@@ -86,7 +80,9 @@ The crowd was dissolving into factions—those heading to a shiva, those joining
 
 His phone vibrated against his ribs. Aaron: "Saw you on the news. You okay?"
 
-The park smelled like extinguished candles now—that particular mix of smoke and melted wax that would forever mean this night. A Parks Department employee in a reflective vest was sweeping up programs, his broom scraping against concrete in a rhythm like davening. The counter-protesters had moved on to arguing among themselves about tactics. The djembe player was packing up, the drum's heartbeat finally silent.
+The park smelled like extinguished candles now—that particular mix of smoke and melted wax that would forever mean this night.
+
+A Parks Department employee in a reflective vest was sweeping up programs, his broom scraping against concrete in a rhythm like davening. The counter-protesters had moved on to arguing among themselves about tactics. The djembe player was packing up, the drum's heartbeat finally silent.
 
 The walk to the subway—past the closed falafel shop with its faded Hebrew lettering, past the NYU dorm where someone had already hung an Israeli flag from their window, past a homeless man who called out "Shalom aleichem" either in greeting or mockery, impossible to tell. His reflection in the bodega window showed wax on his sleeve, ash on his collar.
 

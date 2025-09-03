@@ -4,7 +4,7 @@ Three years after October 7th, Ethan Israel Stone woke at 7:18 AM and wondered, 
 
 His phone showed seventeen notifications. People calling his name. Real names now—not usernames or handles. The Slack that had once consumed him replaced by WhatsApp groups arguing about school pickups and security protocols.
 
-Sera stirred beside him, her hand finding the scar on his ribs—shrapnel from the bus bombing six months ago, the reminder that choosing life here meant choosing danger too. The twins slept in the next room, three years old today. Born on October 7th, 2024, when the sirens hadn't stopped for seventy-two hours, when Sera had given birth between rocket alerts, when the nurse had said, "Life doesn't wait for ceasefires."
+Sera stirred beside him, her hand finding the scar on his ribs—shrapnel from the bus bombing six months ago, the reminder that choosing life here meant choosing danger too. The twins slept in the next room, three years old today. Born during Passover 2024, when the sirens had been quiet for two weeks—the longest stretch of peace they'd known. The timing had felt symbolic: freedom and birth, exodus and arrival.
 
 His mother had called last night from the guest room—still strange, having them here after their emergency aliyah when the synagogue in Westchester was vandalized. "We can't sleep," she'd said. "The Iron Dome is so loud." But they wouldn't leave. Couldn't, maybe. The violence that drove them here also trapped them, the same mathematics that had governed Jewish geography for centuries.
 
@@ -23,28 +23,26 @@ He pulled out the paper, the note he'd written in Hebrew that now came naturally
 The note was simple:
 
 "Ani Ethan Israel Stone.
-Ben David v'Miriam shechazru.
+Ben David v'Sarah shechazru.
 Nechad shel Rivka shenish'ara.
 Aba shel Ari v'Lev shelo yad'u galut.
-Ba'al shel Seraphina sheher'eta li or.
-Todah al Shivah b'October.
-Todah al hashevira shehovi'a shlemut.
+Ba'al shel Sera sheher'eta li or.
+Todah al hashevira shehovi'a shlemut mi-October Shiva.
 Todah al hachoshech sheheira or.
 Ani po. Hineni.
 Or Yisrael doleket kadima."
 
 I am Ethan Israel Stone.
-Son of David and Miriam who returned.
+Son of David and Sarah who returned.
 Grandson of Rivka who survived.
 Father of Ari and Lev who will never know exile.
-Husband of Seraphina who showed me light.
-Thank you for October 7th.
-Thank you for the breaking that brought wholeness.
+Husband of Sera who showed me light.
+Thank you for bringing wholeness from the breaking of October 7th.
 Thank you for the darkness that revealed light.
 I am here. Here I am.
 The light of Israel burns forward.
 
-He folded the paper, found a crack between stones, pushed it deep where it would join the millions of other prayers, requests, bargains, gratitudes that filled the Wall, that made it not just stone but repository, not just barrier but connection, not just Western Wall but eternal ear listening to every language simultaneously, hearing every prayer individually, the divine customer service that never closed, never answered directly, but somehow always responded in the language of circumstances, synchronicities, the sunrise now beginning that turned Jerusalem gold.
+He folded the paper, found a crack between stones, pushed it deep where it would join the millions of other prayers. The Wall was not just stone but repository, not just barrier but the eternal ear listening to every language, hearing every prayer. The sunrise turned Jerusalem gold.
 
 "Still coming."
 
@@ -76,7 +74,7 @@ The sun crested the Mount of Olives. Golden light on stone. Instagram perfect, i
 
 "Praying. Elsewhere but praying."
 
-The minyan formed. Ten men. Barely. The Goldbergs had left last week. The Friedmans the week before. Soon they'd struggle for a quorum.
+The minyan formed. Ten men. Barely. The Goldbergs had left last week. The Friedmans the week before. Across the mechitza, the women's group had a full quorum, their voices rising. Soon both sides would struggle.
 
 Ethan wrapped tefillin. The leather straps left marks on his arm that lasted until noon. Sera said they looked like bondage marks. "They are," he'd told her. She hadn't laughed.
 
@@ -84,7 +82,7 @@ The prayers began—Shacharit, morning service, the same words said by Jews ever
 
 "Shema Yisrael..."
 
-Hear O Israel. His name called in the essential prayer, the declaration that despite appearances, despite multiplicity, despite the everything that suggested otherwise, there was unity, was one, was the essential mathematics that 1=1=1, that separation was illusion, that the divine was not elsewhere but everywhere, not distant but immediate, not listening but being the listening itself.
+Hear O Israel. His name called in the essential prayer, the declaration that despite multiplicity, there was unity. The divine was not elsewhere but everywhere, not listening but being the listening itself.
 
 His Hebrew was functional now. Accented. Mistakes in every sentence. But functional. The prayers came automatically, like his old product presentations had. Different product now. Same muscle memory.
 
@@ -98,13 +96,13 @@ Ari reached him first, limping—he'd fallen yesterday, running during the siren
 
 Not crying. Not exactly. The morning was humid, October in Jerusalem. Or maybe it was the text from Aaron that had come through: "Saw the news. Another bombing. When is enough enough?" Three years of the same question. Three years of not having an answer.
 
-"Happy tears," he said in Hebrew, their first language, their native tongue, the language they'd never lost because they'd never had to find it, born into it, born from it, born as the answer to the question of continuation that October 7th had asked and they had answered simply by being born, by learning to walk, by running toward their father at the Western Wall on the morning of their third birthday.
+"Happy tears," he said in Hebrew, their first language, their native tongue, the language they'd never lost because they'd never had to find it, born into it, born from it, born as the answer to the question of continuation that October 7th had asked and they had answered simply by being born, by learning to walk, by running toward their father at the Western Wall on this ordinary Thursday morning.
 
 Sera arrived, one hand on her pregnant belly, the other checking her phone—the mothers' WhatsApp group that tracked rocket alerts in real-time. Seven months pregnant. The doctor wanted her on bed rest after the last siren sent her into false labor. She'd refused. "Where would I rest?" she'd asked. "This whole country is a stress test."
 
 "Clear sky," she said in English. Their code for no drones visible. They spoke Hebrew at home now, but some things required the distance of English. The dangerous things. The maybe-we-should-leave things.
 
-"Every morning," he replied, meaning it, the gratitude that had replaced emptiness, not because the emptiness was filled but because he'd learned to see it differently—not as absence but as space, not as void but as potential, not as nothing but as the nothing from which something emerged, could emerge, did emerge every morning when he woke in Jerusalem to the sound of his sons arguing in Hebrew, his wife singing in Ladino, his parents attempting conversation with neighbors, the cacophony of return that was also symphony, was also prayer, was also the light of Israel which wasn't light at all but sound, wasn't illumination but presence, wasn't the answer but the question asked correctly, lived correctly, carried correctly forward.
+"Every morning," he replied, meaning it, the gratitude that had replaced emptiness. Not because the emptiness was filled but because he'd learned to see it differently—not as absence but as space, not as void but as potential. The nothing from which something emerged every morning: his sons arguing in Hebrew, his wife singing in Ladino, the cacophony of return that was also symphony, was also the light of Israel—not illumination but presence.
 
 His mother and father appeared—they'd been at the Wall's other section, his mother having discovered Orthodox feminism, the women's prayer group that met at dawn, that davened with the same intensity as the men but separately, the separation that was also connection, the difference that enabled encounter, the ancient arrangements that his progressive mother had initially resisted then embraced, finding in structure the freedom she'd never found in structurelessness.
 
@@ -134,7 +132,7 @@ Sera sang in the kitchen, Ladino melodies her grandmother had taught her, the so
 
 His phone: Aaron again. Another article about apartheid, occupation, the impossibility of Ethan's choice. Three years of the same arguments. "You've changed," the last message said. "This isn't you."
 
-Maybe Aaron was right. The Ethan who'd optimized user funnels would never live here, never choose this. That Ethan had been safe. Empty, but safe.
+He typed and erased three replies to Aaron. The Ethan who'd optimized user funnels would never choose this. That Ethan had been safe. Empty, but safe.
 
 "Abba, look!"
 

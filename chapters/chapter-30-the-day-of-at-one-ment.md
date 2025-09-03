@@ -30,29 +30,29 @@ By noon, the headache had started—a band of pressure from temple to temple. Ot
 
 Afternoon service: Jonah. Rabbi Levi's voice cracked, hoarse from prayer without water. Ethan followed in English, seeing himself—flight to Tarshish (New York), storm (October 7th), whale (Israel), the Wall (acceptance), Berlin (understanding), Poland (witness).
 
-During silent Amidah, light changed. Or his blood sugar had dropped too low. Golden despite white walls. Eyes closed but seeing anyway—hallucination or presence. The brain starved of glucose creating its own visions.
+During silent Amidah, light changed. Golden despite white walls. Eyes closed but seeing anyway.
 
-His grandmother. Or the memory of her. Or his fasting mind constructing what it needed.
-
-Not old, not young, but both—the refugee and the matriarch, overlapping like double exposure. She wasn't speaking but he heard anyway. Or thought he heard. Or needed to hear.
+His grandmother. Not old, not young, but both—refugee and matriarch overlapping like double exposure.
 
 "You found your way."
 
-Others swayed around him, deep in their own encounters. A woman wept silently. A man muttered names—his own dead, perhaps. The collective unconscious of six hundred fasting Jews creating shared delusion or shared revelation.
+Others swayed around him. A woman wept silently. A man muttered names of his dead. Six hundred fasting Jews creating shared revelation.
 
-"The twins," she said or he imagined. "Ari and Lev. They'll never know exile."
+"The twins," she said. "Ari and Lev. They'll never know exile."
 
-The presence intensified. Or his electrolytes had crashed. Others there too—ancestors or archetypes, Poland's dead or his projection of them. The brain's attempt to make meaning from deprivation.
+Others there too—ancestors, Poland's dead, the presence intensifying.
 
 When he opened his eyes, just synagogue. White walls, exhausted faces, the sour smell of ketosis—six hundred bodies consuming themselves. His shirt soaked with sweat. Salt crystals on his lips.
 
-Ne'ilah. The closing. Everyone stood though legs trembled. A pregnant woman sat, beyond pride. A teenager steadied his grandfather. Bodies that hadn't eaten for twenty-four hours, souls scrubbed raw.
+Ne'ilah. The closing. Everyone stood though legs trembled. A pregnant woman sat, beyond pride. A teenager steadied his grandfather. Bodies starved for twenty-four hours, souls raw.
 
-"I am Ethan Israel Stone." Speaking aloud or thinking loudly. "Son of David and Sarah. Father of Ari and Lev." Facts to anchor himself as the room tilted slightly. "I ran. I returned. I am."
+Voices rising, cracking, desperate. Someone sobbed. Another shouted the Shema. Six hundred people pouring everything into these final moments—confessions, pleas, names of the dead called out like roll call.
 
-Others adding confessions or everyone hallucinating together. Mass hypnosis of hunger. The biological basis of religious experience.
+Sera beside him, her own prayer inaudible but urgent. Her lips moved: *Barukh shem kavod malkhuto l'olam va'ed.* For the twins, for their future, for this life they'd built from exile and return.
 
-Sun touching horizon. The shofar—one long blast. Longer than lungs should allow, unless the shofar blower had practiced, had trained, had prepared for this moment of communal release.
+"I am Ethan Israel Stone." His voice lost in the chaos. "Son of David and Sarah. Father of Ari and Lev. I ran. I returned. I am."
+
+Sun touching horizon. The shofar—one impossible blast, longer than lungs should allow. The room swaying, everyone holding their breath.
 
 "L'shanah haba'ah b'Yerushalayim!"
 
@@ -66,23 +66,22 @@ Neighbors knocked. Everyone comparing symptoms—who fasted hardest, whose heada
 
 "Feel different. Like pieces came together."
 
-"At-one-ment. That's what Yom Kippur means. Being at one."
+"Atonement," she whispered. "Being at one."
 
 Below, first car engine in twenty-five hours. Life resuming. 
 
-He checked the twins. Placed hands on their heads, feeling real or imagined blessing flow through. The unbroken chain—or his need to believe in unbroken chains.
+He checked the twins. Placed hands on their heads, feeling blessing flow through.
 
 "You are Ari Yosef Stone. You are Lev Mordechai Stone."
 
-They slept, unaware of their father's transformation or exhaustion or the way hunger could make everything seem significant.
+They slept, unaware of everything.
 
-Outside, Jerusalem hummed back to life. Inside, the silence of completion. Or depletion. Or both.
+Outside, Jerusalem hummed back to life.
 
-Ethan Israel Stone, thirty-four, all fragments integrated. Or too tired to feel fragmented. Or discovering that integration and exhaustion felt the same.
+Ethan Israel Stone, thirty-four, all fragments integrated.
 
 Stars above that Abraham was promised.
 City below, eternal and traffic-jammed.
-Between them, the silence of arrival.
 
 Finally, fully, simply, one.
 Or done.

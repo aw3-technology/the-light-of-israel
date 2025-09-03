@@ -1,6 +1,6 @@
 # Chapter 26: Return as Arrival
 
-Landing at Ben Gurion after forty days of exile, Ethan understood that return and arrival were the same word in Hebrew: shuv. He also understood he might have made a terrible mistake.
+Landing at Ben Gurion after forty days of exile, Ethan understood that return and repentance shared the same Hebrew root: shuv, teshuvah. Return was the practice of arrival—slow, unbeautiful, daily. He also understood he might have made a terrible mistake.
 
 The plane descended through December turbulence that rattled overhead bins and faith equally. When the wheels touched runway, half the plane erupted in applause—Israelis returning from abroad, new immigrants making aliyah. The other half sat silent, checking phones, already calculating the cab fare argument ahead. Ethan found himself between, unsure which response was his.
 
@@ -66,7 +66,7 @@ Yossi emerged from the bathroom in a towel, all Israeli confidence and casual ow
 
 "The one having a spiritual experience," Sera corrected, but uncertainty colored her voice.
 
-Ethan unpacked in her room—they'd share the bed but the distance was understood, forty days having created geography that proximity couldn't immediately solve. Polish earth from Treblinka in a jar that looked, here in Jerusalem, like dirt. The Torah pointer from Berlin that Israeli customs had almost confiscated, suspicious of old silver without documentation. The notebook full of observations that read, now, like tourist poetry.
+Ethan unpacked in her room—they'd share the bed but the distance was understood, forty days having created geography that proximity couldn't immediately solve. Polish earth from Brzeziny in a jar that looked, here in Jerusalem, like dirt. The Torah pointer from Cairo that Israeli customs had almost confiscated, suspicious of old silver without documentation. The notebook full of observations that read, now, like tourist poetry.
 
 "You carry them all now," Sera said, but it sounded like a question.
 
@@ -86,7 +86,7 @@ He wanted to say he understood, but understanding and living were different thin
 
 They went to Rabbi Levi because that's what the script demanded, but the rabbi was busy—a real crisis, someone's son missing in Gaza, not American spiritual tourism. His assistant, a harried woman named Michal, squeezed them in for fifteen minutes.
 
-"You did the journey," Rabbi Levi said, distracted, checking his phone. "The tikkun, gathering sparks, yes, beautiful. Now what?"
+"You did the journey," Rabbi Levi said, distracted, his phone buzzing insistently. "The tikkun, gathering sparks, yes, beautiful. Now what?"
 
 "Now I want to stay."
 
@@ -102,7 +102,7 @@ They went to Rabbi Levi because that's what the script demanded, but the rabbi w
 
 "I'll find—"
 
-"You'll find competition from Russians with PhDs driving taxis. From Ethiopians with medical degrees washing dishes. From everyone who thought wanting was enough." His phone rang. "Excuse me. A real emergency."
+"You'll find competition from Russians with PhDs driving taxis. From Ethiopians with medical degrees washing dishes. From everyone who thought wanting was enough." His phone buzzed again, urgent. "I'm sorry, I have to take this—someone's son in Gaza."
 
 Outside his office, Michal handed them forms. "If you're serious about aliyah. The bureaucracy makes exile look pleasant."
 
@@ -114,13 +114,11 @@ They went to the Wall because that's what you did, but it was Shabbat and securi
 
 "No. Now it's Saturday. Now it's crowds. Now it's the guy selling red string behind you and the tourist taking selfies and the soldier who's nineteen and scared and pretending not to be."
 
-She was right. The Wall was stone. Sacred stone, historical stone, but stone. The electric feeling from October had settled into December's damp cold.
+She was right. The Wall was stone. Sacred stone, historical stone, but stone. An elderly man in a worn kippah offered Ethan a prayer book with gentle eyes, but even that kindness couldn't restore October's electric feeling. December's damp cold had settled into everything.
 
 That evening, fifth night of Hanukkah, her apartment glowing with tension more than candles. Yossi had invited friends—loud Israelis who switched between Hebrew and Arabic and Russian, excluding Ethan not from malice but from the simple fact of fluency.
 
 "The American thinks he's making aliyah," Yossi announced after his third beer.
-
-"Another one finding himself," his friend laughed. "How long? Three months? Six?"
 
 "I'm right here," Ethan said in Hebrew.
 
@@ -196,4 +194,4 @@ But tonight, fifth candle of Hanukkah flickering while Yossi sang off-key in the
 
 Return was just the beginning. Arrival took forever. And home—home was something you built from Thursday groceries and difficult mornings and the grace of someone willing to say maybe while you figured out if you could become who you claimed you already were.
 
-The candles burned down. The city argued with itself. And somewhere, his grandmother's spirit watched, patient as stone, as he began the harder journey: the one that happened after the poetry ended and the living began.
+The candles burned down. The city argued with itself—distant music from a wedding, a cat leaping between windowsills, the eternal sound of Jerusalem refusing sleep. And somewhere, his grandmother's spirit watched, patient as stone, as he began the harder journey: the one that happened after the poetry ended and the living began.

@@ -12,7 +12,7 @@ Third call: surrender.
 
 "Finally! I was starting to worry. You know how I worry when you don't answer."
 
-Netflix frozen mid-episode of Love is Blind, someone's face twisted in what the subtitles called "[ANGUISHED EXPRESSION]"—discovering betrayal in the pods, mouth forming words that looked exactly like what Ethan couldn't say. He left it paused, the frozen moment more honest than anything about to happen.
+Netflix frozen mid-episode, someone's face twisted in what the subtitles called "[ANGUISHED EXPRESSION]." He left it paused.
 
 "Sorry, I was just—" The words caught. His mouth opened to say "drowning" but what came out was: "Working late."
 
@@ -28,7 +28,7 @@ The 'really' hung in the air like a door held open exactly three inches—enough
 
 "I'm good. Busy with work. The usual."
 
-His stomach tightened with each lie, intestines twisting into the shape of Hebrew letters he couldn't read. On the muted TV, the subtitles scrolled: "[DRAMATIC PAUSE]" then "[SIGHS HEAVILY]" then "[FOOTSTEPS RETREATING]"—stage directions for his own life.
+His stomach tightened with each lie. On the muted TV, the subtitles scrolled: "[DRAMATIC PAUSE]" then "[SIGHS HEAVILY]" then "[FOOTSTEPS RETREATING]."
 
 "That girl you mentioned? Rachel?"
 
@@ -154,13 +154,13 @@ He stood and walked to his window. Brooklyn spread out below, lights beginning t
 
 The Thai food sat congealed on his coffee table, untouched after that first bite. Through the wall, the music started again, softer this time. His skin prickled, goosebumps rising along his forearms.
 
-His mother had ordered a yahrzeit candle from Amazon. It would arrive too late, which was perfect, which was exactly how the Stones did everything—with the best intentions, arriving just after the moment of meaning had passed, optimized for efficiency but never for presence.
+His mother had ordered a yahrzeit candle from Amazon. It would arrive too late.
 
 The Netflix subtitles still showed that strange word: "Teshuvah." The man on screen was walking somewhere, the subtitles reading "[WALKING WITH PURPOSE]" in characters that seemed to shift when he wasn't looking directly at them.
 
-Ethan sat in his dark apartment, the only light from screens that measured his distance from life in percentages and pixels, waiting for something he couldn't name in a language he'd never learned from a grandmother whose yahrzeit candle would arrive two days too late from a company that could deliver everything except what mattered.
+Ethan sat in his dark apartment, the only light from screens, waiting for something he couldn't name from a grandmother whose yahrzeit candle would arrive two days too late.
 
-But in the attic in Westchester, in a box marked "Mom's Things" in his mother's careful handwriting, a blue vase with a crack down its side held nothing and everything, waiting like his grandmother's Hebrew books, like her photographs, like all the broken vessels that still held light, if only someone remembered how to look for it in the darkness.
+In the attic in Westchester, in a box marked "Mom's Things," a blue vase with a crack down its side waited with her Hebrew books and photographs.
 
 The music through the wall whispered those words again—"Shema Yisrael."
 The sound pressed against his eardrums from inside.

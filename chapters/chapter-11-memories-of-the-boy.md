@@ -4,17 +4,17 @@
 
 Tuesday evening, October 17th. Ethan's apartment floor covered in boxes from storage, his mother's handwriting fading on labels: "Ethan - High School," "Ethan - College," and buried deepest: "Ethan - Bar Mitzvah 2003."
 
-He'd come home intending to study the Hebrew Rabbi Levi had given him. Instead, here he was, archaeology of self, while outside his window a protest march moved down Eastern Parkway—"Free Palestine" mixing with "Never Again," the city's wounds fresh and arguing with themselves.
+He'd come home intending to study the Hebrew Rabbi Levi had given him. Instead, here he was, archaeology of self. Outside: a protest march down Eastern Parkway—"Free Palestine" mixing with "Never Again."
 
-His phone vibrated: Jake. "Security situation at the office tomorrow. Might need you early."
-
-Ethan ignored it. In his hands, a photo that stopped his breath—thirteen-year-old him drowning in a tallit, his grandmother gripping his shoulder like she could transfer tradition through touch alone.
+In his hands, a photo that stopped his breath—thirteen-year-old him drowning in a tallit, his grandmother gripping his shoulder like she could transfer tradition through touch.
 
 The Torah portion surfaced suddenly: Lech-lecha. Go forth. Abraham commanded to leave everything behind.
 
 Twenty years later, the irony cut deep.
 
-*The morning of. 7:18 AM on the bedside clock. His grandmother in his room before his parents woke, finding him on Xbox, his suit still bagged.*
+—
+
+*7:18 AM on the bedside clock. His bar mitzvah morning. His grandmother in his room before his parents woke, finding him on Xbox, suit still in its bag.*
 
 *"Eiden Israel." His Hebrew name, rusted from disuse.*
 
@@ -30,9 +30,13 @@ Twenty years later, the irony cut deep.
 
 *"No, bubbeleh. It's not."*
 
-The memory stung with new shame. He'd rolled his eyes. Actually rolled his eyes at a Holocaust survivor trying to pass on what couldn't be lost.
+He'd rolled his eyes. Actually rolled his eyes at a Holocaust survivor.
 
-Another photo: him at the bimah, mouth open, stumbling through Hebrew he'd memorized phonetically. Sound without meaning. Performance without understanding. But there in the front row—his grandmother crying. Not joy. Recognition. She knew he was already lost.
+—
+
+Another photo: him at the bimah, mouth open, stumbling through Hebrew he'd memorized phonetically. Sound without meaning.
+
+In the front row—his grandmother crying. Not joy. Recognition. She knew he was already lost.
 
 His phone rang. His mother.
 
@@ -56,7 +60,9 @@ The forgotten shame flooded back. "You knew?"
 
 In the background, his father: "Let him be, Miriam."
 
-"I found her father's prayer book," Ethan said, pulling it from the box. Brown leather soft as skin, margins crowded with her annotations—Yiddish, Hebrew, English. A conversation across languages and time.
+"I found her father's prayer book," Ethan said.
+
+Brown leather soft as skin. Margins crowded with annotations—Yiddish, Hebrew, English. A conversation across languages.
 
 One note, pencil-faint: "For Eiden Israel when he is ready."
 
@@ -64,7 +70,9 @@ One note, pencil-faint: "For Eiden Israel when he is ready."
 
 "She hoped." His mother's voice caught. "Even after everything. The Christmas tree you insisted on. The soccer games on Saturdays. The way you told everyone at college you were 'nothing.' She hoped."
 
-*After the party. Guests leaving, his grandmother by the coat check, pressing the prayer book into his hands. He reeked of weed, eyes red, the rabbi pretending not to notice.*
+—
+
+*After the party. Guests leaving. His grandmother by the coat check, pressing the prayer book into his hands. He reeked of weed, eyes red, the rabbi pretending not to notice.*
 
 *"I don't read Hebrew, Grandma."*
 
@@ -74,11 +82,13 @@ One note, pencil-faint: "For Eiden Israel when he is ready."
 
 *Her hand on his cheek, gentle despite everything. "No, bubbeleh. You're beginning."*
 
-*He'd shoved it under coats in the car, embarrassed by its weight, its oldness, the way it marked him as different from Josh who'd gotten an Xbox, Tyler who'd gotten cash.*
+*He'd shoved it under coats in the car. Josh had gotten an Xbox. Tyler, cash. The prayer book marked him as different.*
 
-Now, Google Translate open, he tried to decipher her notes. One phrase recurring: "Dos pintele yid"—the Jewish spark that couldn't be extinguished.
+Now, Google Translate open, he tried to decipher her notes. One phrase recurring: "Dos pintele yid."
 
-She'd been tending that spark while he extinguished everything else. While his parents scheduled Hebrew school around soccer. While they joined the temple just for the bar mitzvah. While he told girlfriends he was "culturally Jewish," which meant nothing, which meant "don't ask."
+The Jewish spark that couldn't be extinguished.
+
+She'd been tending that spark while he extinguished everything else. While his parents scheduled Hebrew school around soccer. While he told girlfriends he was "culturally Jewish"—which meant nothing, which meant "don't ask."
 
 His phone buzzed. Rabbi Levi: "Your portion was Lech-lecha, wasn't it?"
 
@@ -86,15 +96,15 @@ His phone buzzed. Rabbi Levi: "Your portion was Lech-lecha, wasn't it?"
 
 "It's always Lech-lecha for the ones who come back. Leave everything to find everything. Abraham's journey. Yours too."
 
-Ethan looked at the protest passing below. Someone had written "Jews for Justice" on a cardboard sign. Someone else carried "Never Forget." The city trying to hold all its contradictions at once.
+Outside: "Jews for Justice" on cardboard. "Never Forget" on another sign. The city holding all its contradictions at once.
 
 "I want to read it again," he texted. "But understanding it this time."
 
 "The Torah waits. It's good at waiting."
 
-Another memory, this one burning:
+—
 
-*The reception. His grandmother alone at a table while he and his friends requested Eminem from the DJ. She'd walked to him, slowly, her good dress, her special shoes.*
+*The reception. His grandmother alone at a table while he and his friends requested Eminem from the DJ. She'd walked to him slowly. Her good dress. Her special shoes.*
 
 *"Dance with me, Eiden Israel?"*
 
@@ -102,32 +112,62 @@ Another memory, this one burning:
 
 *Josh laughing. "Eiden Israel? What kind of name is that?"*
 
-*"It's nothing," Ethan had said. "Just some Hebrew thing."*
+*"It's nothing. Just some Hebrew thing."*
 
-*His grandmother's face. The quiet devastation. "I understand," she'd said. In English. When she always spoke to him in Yiddish or Hebrew, trying to keep the languages alive in his mouth. But that night, after that betrayal, she spoke English. "I understand."*
+*His grandmother's face. The quiet devastation.*
 
-She'd died two years later. He'd been at college, missing her calls, too busy with normal American life to return them. The last voicemail still saved somewhere: "Eiden Israel, I love you. Remember who you are."
+*"I understand," she'd said.*
 
-He hadn't. Not for twenty years.
+*In English.*
 
-Outside, the protesters passed. Inside, Ethan sat surrounded by evidence of a heritage he'd thrown away with both hands. The prayer book open to a page his grandmother had marked: the Shema. The central declaration. Hear, O Israel.
+*She always spoke to him in Yiddish or Hebrew, trying to keep the languages alive in his mouth. But that night, after that betrayal: English.*
 
-But he'd made himself deaf. On purpose. With determination.
+She'd died two years later. He'd been at college, missing her calls, too busy with normal American life to return them.
 
-His phone rang. Jake again. "Seriously, tomorrow's going to be intense. The Hamas statement has everyone—"
+The last voicemail still saved somewhere: "Eiden Israel, I love you. Remember who you are."
 
-"I'll be there," Ethan cut him off. The present intruding, demanding attention. Real violence, real danger, while he sat examining old photographs.
+He hadn't.
 
-But that was the thing, wasn't it? The past and present weren't separate. His grandmother knew that. Every Shabbat candle she lit was against darkness that kept trying to return. Every prayer was resistance. Every remembered word was victory over forgetting.
+Not for twenty years.
+
+Outside, the protesters passed. Inside, Ethan sat surrounded by evidence of a heritage he'd thrown away with both hands. The prayer book open to a page his grandmother had marked: the Shema.
+
+Hear, O Israel.
+
+But he'd made himself deaf.
+
+On purpose.
+
+With determination.
+
+His phone lit up—Jake about tomorrow's security situation. Ethan let it ring.
+
+But that was the thing—the past and present weren't separate. His grandmother knew that.
+
+Every Shabbat candle was against returning darkness.
+
+Every prayer was resistance.
+
+Every remembered word, victory.
 
 He picked up the photo again. Thirteen-year-old Ethan, terrified and faking it. Thirty-three-year-old Ethan, terrified and finally admitting it.
 
-Lech-lecha. Go forth.
+Lech-lecha.
 
-Twenty years late, but the command still stood. The portion still waited. The Torah still turned.
+Go forth.
 
-His grandmother had known he'd come back. Not hoped—known. The way you know morning will come, even in the darkest part of night. The way you know the spark survives, even under ashes twenty years deep.
+Twenty years late, but the command still stood.
 
-Tomorrow he'd deal with security threats and client concerns. Tonight, he sat with the boy he'd been, the man he'd refused to become, and the possibility—just beginning—of who he might still be.
+His grandmother had known he'd come back. Not hoped—known.
 
-The prayer book lay open in his lap. His grandmother's notes like breadcrumbs through forest, marking the path home.
+The way you know morning will come.
+
+The way you know the spark survives, even under ashes twenty years deep.
+
+Tomorrow: security threats, client concerns.
+
+Tonight: the boy he'd been, the man he'd refused to become, the possibility of who he might still be.
+
+The prayer book lay open. His grandmother's notes like breadcrumbs through forest.
+
+Marking the path home.

@@ -24,11 +24,11 @@ One of the teenagers started humming, then singing. The others joined: Hatikvah,
 
 The guide—Daniel, from Queens originally, made aliyah five years ago—nodded like he'd heard this before. "There's someone you should meet. Michele Della Rocca. His family has been in Rome since before the destruction. Jewish Romans who never left, not through the Empire, not through the Popes, not through Mussolini. He runs a restaurant in what used to be the ghetto. Tell him Daniel sent you. Tell him you're ready to hear the real story."
 
-Via del Portico d'Ottavia still bore the shape of the ghetto's walls, torn down in 1870. The streets narrowed here, compressed by centuries of forced density. The Great Synagogue's aluminum dome caught the late sun—built deliberately tall in 1904, to be seen from the Vatican. A kosher bakery next to a vintage clothing store, mezuzot on some doorframes, not on others. Tourists eating at Ba'Ghetto, taking photos of the stumbling stones—brass plaques in the pavement marking where Jews were taken in 1943.
+Via del Portico d'Ottavia still bore the shape of the ghetto's walls, torn down in 1870. The streets narrowed here, compressed by centuries of forced density. The Great Synagogue's aluminum dome caught the late sun—built deliberately tall in 1904, to be seen from the Vatican. Mezuzot on some doorframes, not others. Tourists photographing the stumbling stones—brass plaques marking where Jews were taken in 1943.
 
-Piperno occupied the corner of Via Monte de' Cenci, the same location since 1860, the building itself from the 1500s. The walls displayed photographs: the original Pacifico Piperno, side-burns and dignity, 1890. The restaurant boarded up under racial laws, 1938. American GIs eating carciofi, 1944. Monica Bellucci at the same table, 2019.
+Piperno occupied the corner of Via Monte de' Cenci, same location since 1860. The walls displayed photographs: Pacifico Piperno, side-burns and dignity, 1890. The restaurant boarded up, 1938. American GIs eating carciofi, 1944.
 
-"Daniel called. Said you stood at the arch and wept." Michele emerged from the kitchen, flour under his fingernails, oil burns on his forearms like a map of forty years at the fryer. Sixty-something, Roma football club tattoo visible under his rolled sleeve, the contradictions of a Roman Jew who cheered for the team that had fascist ultras but was still his team.
+"Daniel called. Said you stood at the arch and wept." Michele emerged from the kitchen, flour under his fingernails, oil burns mapping forty years at the fryer. Sixty-something, Roma tattoo visible under his rolled sleeve—the contradictions of a Roman Jew.
 
 "I didn't know he—"
 
@@ -56,17 +56,17 @@ The restaurant filled with Thursday regulars. At the next table, two lawyers fro
 
 The Vatican felt like another planet—all that marble and gold, the accumulated wealth of centuries of convincing people that poverty was holy while building palaces for celibates. Ethan had expected to feel anger. Instead, he felt something stranger: pity mixed with recognition, like seeing a child playing with stolen toys, not understanding what they'd taken or from whom.
 
-Father Antonio found him in the Sistine Chapel, staring at Michelangelo's Creation of Adam. The brain-shaped cloud surrounding God—Kabbalistic anatomy hidden in plain sight. On the ceiling, Aminadab wearing a yellow badge, the same badge Roman Jews would be forced to wear centuries later.
+Father Antonio found him in the Sistine Chapel, staring at the brain-shaped cloud surrounding God—Kabbalistic anatomy hidden in plain sight.
 
-"You're looking for the Hebrew." The priest spoke English with an accent that could have been Spanish or Portuguese. Young, maybe thirty-five, wearing simple clothes despite the ornate surroundings.
+"You're looking for the Hebrew." The priest spoke English with an Iberian accent. Young, maybe thirty-five.
 
 "You can see it?"
 
-"I study it. Jewish-Christian relations. The complicated history of how we became we by defining ourselves against you. My dissertation was on medieval disputations—those horrible theatrical debates where rabbis were forced to defend Judaism against charges that were designed to be unwinnable."
+"I study Jewish-Christian relations. How we became we by defining ourselves against you."
 
 "And now?"
 
-"Now I study at the Centro Pro Unione with Rabbi Riccardo Di Segni—the chief rabbi of Rome, also a radiologist, a man who reads bodies and texts with equal precision. We meet Thursday mornings. Catholics and Jews, studying what went wrong. Last week, a priest asked why we couldn't just accept Jesus as the messiah. The rabbi said, 'Look outside. Is the world redeemed?' The priest had no answer."
+"Now I study with Rabbi Di Segni. Last week, a priest asked why Jews couldn't just accept Jesus as messiah. The rabbi said, 'Look outside. Is the world redeemed?' No answer."
 
 "Yes."
 
@@ -74,9 +74,9 @@ Father Antonio found him in the Sistine Chapel, staring at Michelangelo's Creati
 
 "Learning to be."
 
-Father Antonio smiled, sad and knowing. "We worship a Jew who observed Shabbat, who kept kosher, who prayed in Hebrew, and we've spent two thousand years pretending he was something else. The cognitive dissonance is spectacular."
+Father Antonio smiled, sad. "We worship a Jew who kept Shabbat, and we've spent two thousand years pretending he was something else."
 
-They walked through the Museo Ebraico corridor—Jewish manuscripts the Vatican had 'preserved' during various expulsions. A Torah scroll from 1300s Trastevere. Silver spice boxes taken during the 1555 ghetto establishment. Father Antonio stopped before a marble fragment showing a menorah, inventory number 30764.
+They walked through the Museo Ebraico—Jewish manuscripts 'preserved' during expulsions. Father Antonio stopped before a marble fragment showing a menorah.
 
 "From a Roman synagogue. First century. About the time your Temple fell. The Pope keeps saying he'll return these things, create better relations. But institutions move slowly. Especially institutions that believe they're eternal."
 
@@ -106,7 +106,7 @@ When the sun set, Michele's wife lit candles. The same words Ethan had heard in 
 
 "Tomorrow night, after Havdalah, go back to the arch. Different energy after Shabbat. The tourist lights will be on, making it look golden, triumphant. But you'll see what we see—a monument to a mistake. They thought they destroyed Judaism by destroying the Temple. Instead, they freed it to become global. Every synagogue is the Temple now. Every Jewish home. Every Jewish heart."
 
-Saturday night, Ethan returned to the Forum. A Birthright group posed for photos. Two Roman Jews on dates walked wide around the arch, not even discussing it—muscle memory of avoidance. An elderly woman placed a stone at the arch's base, whispered something in Ladino—the Spanish Jews who'd fled to Rome in 1492. A young couple pushed a stroller, the baby wearing a tiny Roma jersey and a Star of David—the complications of being fully both.
+Saturday night, Ethan returned to the Forum. A Birthright group posed for photos. Two couples walked wide around the arch—muscle memory of avoidance. An elderly woman placed a stone at the arch's base, whispered in Ladino. A baby in a stroller wearing a Roma jersey and Star of David.
 
 A young woman started singing—an older melody, maybe Ladino, maybe older. Others joined, harmonies building. The Forum filled with Jewish voices against the lit marble.
 
@@ -120,9 +120,9 @@ Home. Not New York, not his apartment. Something else now.
 
 "You returning to Israel?" Michele asked when Ethan came to say goodbye Sunday morning.
 
-"After Berlin. My grandmother—her family was from there. I found letters. Addresses in Scheunenviertel. I need to see what's left."
+"After Berlin. My grandmother's family—Scheunenviertel. I need to see what's left."
 
-Michele nodded, understanding. Behind him, Sunday morning regulars read La Repubblica and Corriere della Sera, arguing about football and politics. A graffito across the street: "Romanista Ebreo"—Jewish Roma fan—not sure if it was insult or pride, probably both. He handed Ethan a package—recipe cards in his grandmother's handwriting.
+Michele nodded. Behind him, regulars argued over newspapers. He handed Ethan a package—recipe cards in his grandmother's handwriting.
 
 "Carciofi alla giudia. The real recipe, the one my grandmother's grandmother used. For your children, when you have them. Tell them this: Rome tried to digest us but we were too tough. They broke their teeth on our persistence. Now they come to us for dinner and don't even know they're eating Jewish food. That's not revenge—Jews don't do revenge. That's survival with style."
 
@@ -149,3 +149,5 @@ The train climbed through Umbria, Tuscany, toward the Alps. In four hours he'd c
 Behind him, Rome continued—beautiful, eternal, complicated. The arch still stood. The Jews still stood. Both facts equally unlikely, equally true.
 
 The train entered a tunnel through the Apennines. In the darkness, Ethan saw his reflection in the window—his face superimposed on the black, going north toward the harder history, the one without the beauty of Rome to soften it.
+
+What they carried off through Titus's arch, he now carried within. The menorah burned inside every Jew. The Temple treasures were gone, but the treasure remained.

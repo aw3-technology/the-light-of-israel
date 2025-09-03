@@ -2,7 +2,7 @@
 
 The sherut climbed through the Judean Hills like a prayer ascending, and Ethan pressed his forehead against the window, watching Tel Aviv's secular sprawl give way to something older, heavier, inevitable.
 
-Friday afternoon, the shared taxi packed with last-minute pilgrims—soldiers heading home for Shabbat, their rifles casual as backpacks; Orthodox families with children bouncing between Hebrew and English; a woman in designer sunglasses texting furiously beside him, her phone screen reflected in the window like modern hieroglyphs against ancient stone. The driver played Mizrahi music that competed with someone's Bluetooth speaker leaking American pop, the cacophony somehow perfect, somehow exactly what ascending to Jerusalem should sound like in 2023.
+Friday afternoon, the shared taxi packed with last-minute pilgrims—soldiers heading home for Shabbat, their rifles casual as backpacks; Orthodox families with children bouncing between Hebrew and English; a woman in designer sunglasses texting beside him, her phone screen reflected in the window—heart emojis and Hebrew mixing like modern hieroglyphs against ancient stone. The driver played Mizrahi music that competed with someone's Bluetooth speaker leaking American pop, the cacophony somehow perfect, somehow exactly what ascending to Jerusalem should sound like in 2023.
 
 "First time?" The soldier across from him asked in accented English, having marked him immediately as foreign, as searching, as lost.
 
@@ -14,11 +14,11 @@ The road sign appeared like prophecy: ירושלים JERUSALEM 10 KM, and someth
 
 Then the city rose before them.
 
-Jerusalem stone everywhere—that particular shade of limestone that existed nowhere else, golden-white in the afternoon sun, every building by law wrapped in the same ancient color, as if the entire city was carved from a single mountain of memory. A plastic bag caught on razor wire fluttered like a flag of surrender. The walls of the Old City appeared and disappeared between modern apartments and ancient graves, between shopping centers and churches, between what was and what is and what might be. Traffic backed up near a checkpoint, drivers honking with biblical fury.
+Jerusalem stone everywhere—that particular shade of limestone that existed nowhere else, golden-white in the afternoon sun, every building by law wrapped in the same ancient color, as if the entire city was carved from a single mountain of memory. A plastic bag caught on razor wire fluttered like a flag of surrender. The walls of the Old City appeared and disappeared between modern apartments and ancient graves, between shopping centers and churches, between what was and what is and what might be. Traffic backed up near a checkpoint, drivers honking with ancient impatience.
 
-The sherut deposited him at Damascus Gate, and the moment his feet touched Jerusalem stone, he understood what the soldier meant. The ground itself felt different—not just pavement but palimpsest, every footstep pressing down through layers of conquest and return, Roman roads over Herodian stones over David's city over Jebusite foundations, all of it somehow present at once.
+The sherut deposited him near Jaffa Gate—easier for tourists, the driver said. The moment his feet touched Jerusalem stone, he understood what the soldier meant. The ground itself felt different—not just pavement but palimpsest, every footstep pressing down through layers of conquest and return, Roman roads over Herodian stones over David's city over Jebusite foundations, all of it somehow present at once.
 
-He entered through Jaffa Gate because the taxi driver said it was easier for tourists, the massive Ottoman stones worn smooth by millions of pilgrims, traders, conquerors, seekers. A kid in a Messi jersey kicked a crushed Coke can against walls that had seen the Crusades. Inside the Old City, time collapsed. An Armenian priest argued with an Arab merchant over the price of SIM cards while Israeli soldiers bought ice cream from a Palestinian vendor, their M16s slung over shoulders like students' bookbags. Church bells competed with the muezzin's call to prayer competed with someone's ringtone playing "Hava Nagila," the whole thing impossible, impossible that it existed, impossible that it worked, impossible that he was here. The smell of shawarma mixed with incense mixed with diesel fumes from a tour bus that had somehow squeezed through Damascus Gate.
+He entered through the massive Ottoman portal, its stones worn smooth by millions of pilgrims, traders, conquerors, seekers. A kid in a Messi jersey kicked a crushed Coke can against walls that had seen the Crusades. Inside the Old City, time collapsed. An Armenian priest argued with an Arab merchant over the price of SIM cards while Israeli soldiers bought ice cream from a Palestinian vendor, their M16s slung over shoulders like students' bookbags. Church bells competed with the muezzin's call to prayer competed with someone's ringtone playing "Hava Nagila," the whole thing impossible, impossible that it existed, impossible that it worked, impossible that he was here. The smell of shawarma mixed with incense, both fighting the diesel fumes from tour buses.
 
 The Jewish Quarter's streets narrowed and widened without logic, stone steps descending into passages that opened onto sudden squares where children in kippot played soccer against walls that might have been built by Herod or Suleiman or last year—everything here measured in different calendars, different catastrophes, different returns.
 
@@ -128,7 +128,7 @@ She smiled, mysterious. "My full name is Seraphina. My parents wanted me to fit 
 
 "Seraphina," he repeated, the name feeling important on his tongue. "Like the angels."
 
-"The burning ones," she corrected. "The ones closest to the divine presence. They have six wings—two to cover their faces because they can't look directly at God, two to cover their feet because they're not worthy to stand before the divine, and two to fly. Always suspended between hiding and seeking, between humility and elevation."
+"The burning ones," she corrected. "Six wings—two covering their faces from God's brightness, two covering their feet in humility, two for flight. Always suspended between hiding and seeking."
 
 "That's beautiful."
 
@@ -174,7 +174,7 @@ She turned to leave, then turned back. "Actually, forget Simcha's. Too much... s
 
 She was already walking away, nearly tripping on an uneven stone.
 
-Ethan watched her vanish into the Old City's geometry, then found his way back through passages that felt different now, charged with possibility. The hostel room was bare and small and perfect, with a window that faced the Wall. He watched people approach that ancient remnant all night, each one carrying their own version of what it meant, their own wrestling match with presence and absence.
+Ethan watched her vanish into the Old City's geometry, then found his way back through passages that felt different now, charged with possibility. The hostel room was bare and small and perfect, with a window that faced the Wall—he'd requested it specifically, needing to wake to that view, that reminder of why he'd come. He watched people approach that ancient remnant all night, each one carrying their own version of what it meant, their own wrestling match with presence and absence.
 
 Somewhere in the city, Sera was sleeping or not sleeping, existing in the same darkness, under the same moon that had witnessed Jerusalem rise and fall and rise again, endless return, eternal becoming.
 

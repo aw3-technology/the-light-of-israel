@@ -8,11 +8,11 @@ Rabbi Levi's study—walls of Hebrew texts, leather bindings cracking with age, 
 
 Ethan shifted. His product manager mind wanted a problem statement, not mysticism. "Rabbi, I need practical—"
 
-"You design products, yes? First you create space. Withdraw other features."
+"You design products, yes? First you create space. Remove features. Simplify the interface."
 
-"Yes, but—"
+"Yes, but that's UX design, not—"
 
-"Tzimtzum." The rabbi's arthritic fingers struggled with the heavy Zohar, pages stuck together with centuries. "Divine contraction. Without withdrawal, nothing could exist."
+"Tzimtzum." The rabbi's arthritic fingers struggled with the heavy Zohar, pages stuck together with centuries. "Divine contraction. Like your minimum viable product. God had to minimize to make room for creation."
 
 Ethan helped separate the pages, feeling the paper's texture—rough, almost alive. A margin note in faded brown ink caught his eye: "The breaking is the beginning."
 
@@ -20,11 +20,11 @@ Ethan helped separate the pages, feeling the paper's texture—rough, almost ali
 
 "Or making space for something new."
 
-The rabbi traced ten circles on the table, connecting them with shaky lines. His hand trembled—age or intensity, Ethan couldn't tell. "The vessels meant to contain divine light—they shattered."
+The rabbi drew a simple diagram—vessels, light, breaking. His hand trembled—age or intensity, Ethan couldn't tell. "The vessels meant to contain divine light—they shattered."
 
 "They weren't strong enough?"
 
-"They were exactly as strong as needed." Coffee stains marked the diagram from previous lessons. Real stains, real paper, not the pristine PDFs Ethan was used to. "Breaking wasn't failure. It was the beginning of repair."
+"They were exactly as strong as needed." Coffee stains marked the paper from previous lessons. Real stains, real paper, not the pristine PDFs Ethan was used to. "Breaking wasn't failure. It was the beginning of repair."
 
 Ethan tried reading the Hebrew beneath the diagram. Mem looked like Nun. Bet looked like Kaf. The letters swam. "I can't even read this properly."
 
@@ -32,7 +32,7 @@ Ethan tried reading the Hebrew beneath the diagram. Mem looked like Nun. Bet loo
 
 "But I feel empty. Like I'm performing life without—"
 
-"Every dating app swipe, every late-night scroll—you're looking for light." Rabbi Levi's knowing look made Ethan squirm. "But looking through exile, as exile."
+"Every dating app swipe, every late-night scroll—you're debugging your loneliness." Rabbi Levi's knowing look made Ethan squirm. "But using the wrong error logs."
 
 The rabbi stood with effort, knees cracking, and pulled down a book that shed leather flakes. "Your grandmother knew this. Rivka Stone. She brought you here once."
 
@@ -40,7 +40,7 @@ The rabbi stood with effort, knees cracking, and pulled down a book that shed le
 
 "You were seven."
 
-Memory flickered—dark wood, his grandmother's hand sticky with summer heat. "I don't remember."
+Memory flickered—dark wood, her hand wrapped around his, powder and rosewater scent, the way she squeezed his fingers three times when nervous. Her Yiddish whisper: "Shayna punim, this is important." The scratch of her wool coat against his cheek. "I don't remember."
 
 "She understood broken vessels. Every survivor does." The rabbi opened to a page. The binding cracked. "Try reading this."
 
@@ -58,21 +58,35 @@ Ethan struggled with the Hebrew. "Or... Or Ha..."
 
 Ethan froze. "What?"
 
-"Your name's gematria. The time you wake up. Your coffee price at that Brooklyn cafe."
+"Your name's gematria. Ethan Israel Stone. Calculate it."
 
-"That's just... pattern matching. Confirmation bias."
+"That's just... that's numerology. Astrology for math nerds."
 
-"Maybe." The rabbi drew the Tree of Life again, this time his hand shook worse. "Keter, Chochmah, Binah..." He stopped, rubbed his eyes. "I'm forgetting the order. Chesed next or—no, that's right. Chesed, Gevurah, Tiferet..."
+"And yet."
 
-Ethan watched the old man struggle, suddenly seeing him as human, fallible. "Can I help?"
+"Maybe." The rabbi started drawing something complex, then stopped, rubbed his eyes. "Another time. The details can wait. What matters is this: your depression—it's judgment without mercy. The vessels breaking inside you."
 
-"This isn't just divine emanation. It's your consciousness. Your depression—Gevurah without Chesed. Judgment without mercy."
+"This sounds like metaphor. Like you're retrofitting ancient texts to modern psychology."
 
-"This sounds like metaphor."
+"Is it?"
+
+"Come on, Rabbi. Broken vessels? Divine sparks? It's poetic, but—"
+
+"But what? Not empirical? Not A/B tested?" The rabbi's eyes sharpened. "You wake at 7:18 every day. Your coffee costs $7.18. Your grandmother's yahrzeit—October 7, 1+8. Tell me that's coincidence."
+
+"That's exactly what it is. Pattern recognition. The human brain finding meaning where—"
+
+"Where there is none? Or where you're afraid to see it?"
+
+Ethan's throat tightened. "I'm not afraid. I'm rational."
+
+"How's that working for you? The rationality?"
+
+Silence.
 
 "How else could the Infinite speak to a Brooklyn product manager?"
 
-Despite himself, Ethan almost smiled. Then: "My grandmother knew all this?"
+Despite himself, Ethan felt his resistance cracking. "My grandmother knew all this?"
 
 "She knew about gathering sparks in darkness. Especially there."
 
@@ -82,7 +96,7 @@ Rabbi Levi wrote out Hebrew letters, slowly, painfully. His handwriting was bare
 
 "So learn. Or don't. The light doesn't care about perfect pronunciation."
 
-Walking home, Ethan felt different. Not fixed. Just... oriented. Like holding a map in a language he couldn't read but his hands remembered.
+Walking home, Ethan felt different. Not fixed. Just... oriented. Like finally understanding the backend architecture of something he'd only seen through the UI.
 
 In his apartment, behind old cables and dust: his grandmother's candlesticks. Tarnished green-black at the joints. One was dented. Real damage on real brass.
 
@@ -94,7 +108,7 @@ He tried to light a practice candle. The match broke. The second match burned hi
 
 He dug it out with a kitchen knife, getting wax under his fingernails. Finally, a flame. It guttered, almost died, then steadied.
 
-At 2 AM, instead of his phone, he stood at his window. Each city light a spark. Each one in exile.
+At 2 AM, instead of scrolling through metrics dashboards, he stood at his window. Each city light a data point. Each one isolated, waiting for connection.
 
 He texted Rabbi Levi: "I think I'm beginning to understand."
 
@@ -108,7 +122,7 @@ But what exactly was he supposed to remember? The prayers? The traditions? Her?
 
 The candlesticks sat on his counter, waiting. One still had old wax in it—his grandmother's? Someone else's? How many Friday nights had they held light?
 
-He scraped out the old wax, his fingernail blackening. Physical work. Actual cleaning. Not metaphorical. Not mystical. Just brass and wax and the effort to make space for new light.
+He scraped out the old wax, his fingernail blackening. Physical debugging. Hardware not software. Creating space in the system for new processes to run.
 
 The sparks were everywhere, maybe. And maybe he was ready to start gathering them.
 

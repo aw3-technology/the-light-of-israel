@@ -14,13 +14,13 @@ A guard—young, trained to watch for people who stood too long at edges.
 
 "Museum closes in one hour."
 
-An hour to understand the incomprehensible. To process how Berlin could be both Beethoven and Buchenwald, both poetry and the Wannsee Conference where fifteen men had lunched—soup, chicken, potatoes, wine—and discussed the most efficient methods for making Europe judenrein.
+An hour to understand the incomprehensible. How Berlin could be both Beethoven and Buchenwald. The Wannsee Conference where fifteen men had lunched—soup, chicken, potatoes, wine.
 
 Outside, Thursday afternoon Berlin: cyclists, outdoor cafés despite the cold, construction cranes building futures on ground that would never be clean. Platform 17 at Grunewald station. The S-Bahn carried commuters now, same trains that had carried Jews to collection points.
 
 The platform's inscriptions: "October 18, 1941: 1,089 Jews to Łódź. October 24, 1941: 896 Jews to Łódź."
 
-Not approximately 1,000. But 1,089. Each number a person with a suitcase, a coat, hope that Łódź meant resettlement.
+Each number a person with a suitcase, a coat, hope that Łódź meant resettlement.
 
 Third panel: "December 9, 1942: 994 Jews to Auschwitz."
 
@@ -34,8 +34,6 @@ An elderly woman, German accent but Jewish cadence. She leaned on a walker, each
 
 "Ah. Winter transports." She shifted weight, winced. "No heat. Many died before arrival. Perhaps a mercy."
 
-That dying in a cattle car was mercy compared to what awaited. The mathematics of suffering.
-
 "I am Hannah Weiss."
 
 He recognized the name—survivor, author, the woman who'd returned to Berlin in 1950.
@@ -46,21 +44,21 @@ He recognized the name—survivor, author, the woman who'd returned to Berlin in
 
 Her apartment in Charlottenburg. Same building from her childhood. She moved slowly, counting pills into a weekly organizer—heart medication, blood pressure, the pharmacy of survival. The furniture modern but the walls remembered.
 
-"Your grandmother, from Poland? The Polish Jews who came to Berlin, very sophisticated. They thought Germany meant culture." She knocked over her tea reaching for sugar. "Scheiße. My hands..." Ethan helped clean up. She wasn't grateful, just irritated. "They were right. They were wrong. They were both."
+"Your grandmother, from Poland? The Polish Jews who came to Berlin, very sophisticated. They thought Germany meant culture." She knocked over her tea reaching for sugar. "Scheiße. My hands..." Ethan helped clean up. She waved him away, irritated. "No, leave it. I can—well, maybe not. Thank you. Where was I? Oh yes, culture. They loved Wagner. Can you imagine? Wagner!"
 
 "Do you hate them? The Germans?"
 
-"Hate is simple. I feel the weight of living among descendants of murderers and the rare few who resisted." She struggled with a jar of jam, her arthritis making her fingers useless. "Every time I buy bread, I represent six million dead. Exhausting."
+"Hate is simple. I feel—" She paused, struggled with a jar of jam, her arthritis making her fingers useless. "This stupid jar. My neighbor opens them for me. Nice woman. Her grandfather was SS. We don't discuss it." She gave up on the jar. "Every time I buy bread, I represent six million dead. Exhausting. Also the bread here is terrible. Have you tried the pumpernickel?"
 
 Her arm showed numbers, faded but visible.
 
-"October 7th," she said. "You want to know if it's the same. It's not the same. It's the rhyme. History rhymes: kill the Jews. Methods change, the rhyme remains."
+"October 7th." She stared at nothing. "You want to know if it's the same. It's not—well, maybe. No. It's the rhyme. History doesn't repeat, it rhymes. Kill the Jews. Always the same poem, different verses."
 
 Outside, Berlin's December darkness. This apartment had been Aryanized, this street renamed. Hannah had survived on potatoes and the promise of return. 
 
-"Sometimes I dream I'm still in that basement," she said, unprompted. "Wake up thinking I smell the couple who hid me—his cigarettes, her cabbage soup. Forty-seven times they could have turned me in. Forty-seven times they brought food instead." She rubbed her wrists. "I still eat too fast. Still hide food. Yogurt behind books. Crackers in coat pockets. Stupid at my age."
+"Sometimes I dream I'm still in that basement," she said, then stopped. "No, that's not true. I dream of other things. Normal things. Missing the U-Bahn. But I wake up thinking I smell them—his cigarettes, her cabbage soup. The couple who hid me." She rubbed her wrists. "I still eat too fast. Still hide food. Yogurt behind books. Crackers—" She laughed suddenly. "Last week I found a sandwich in my winter coat from 1987. Petrified. A museum piece."
 
-She gave him a guide's name for Auschwitz, then took her evening pills, miscounted, started over. "Getting old is also a kind of revenge. They wanted me dead at fourteen. I'm ninety-three and still buying their bread."
+She wrote down a guide's name for Auschwitz, her handwriting shaky. Crossed it out, wrote another. "No, he died. Use this one." She took her evening pills, miscounted, started over, gave up. "Close enough. Getting old is also—what was I saying? Oh yes, revenge. They wanted me dead at fourteen. I'm ninety-three and still buying their terrible bread."
 
 That night, sleepless, Ethan walked Berlin. Found himself at the Holocaust Memorial—2,711 concrete slabs. Earlier, children had played on them while parents took photos. Now: empty, honest.
 
@@ -98,13 +96,11 @@ As if that explained the vomiting, the chest pain, the way his hands shook uncon
 
 That night, his grandmother's yahrzeit. December 2nd. A tea light from the hotel lobby. He said Kaddish from his phone, the prayer that never mentioned death but sanctified God's name despite everything.
 
-The candle flame reflected in the window. His body ached—shoulders, jaw, the physical weight of carrying history. He'd been grinding his teeth, noticed blood on his pillow that morning.
+The candle flame reflected in the window. His body ached—shoulders, jaw. He'd been grinding his teeth, noticed blood on his pillow that morning.
 
 Family names from the databases:
 - Ruchel Steinberg, Auschwitz, 1942
 - Her children: Sarah (6), David (4), Miriam (18 months)
-
-German record-keeping had preserved them. The murderers had kept receipts.
 
 Morning. Platform 17 before dawn. He placed twenty-three stones, one for each murdered family member. His hands trembled—cold or something else. The tremor had started in Berlin, grown worse each day.
 
@@ -114,13 +110,14 @@ Text from his mother: "Are you okay?"
 Text from Aaron: "Where the fuck are you?"
 Text from David: "Purim party Thursday. You should come back."
 
-He turned off his phone. Polish countryside blurred past—fields fertilized with ash. His reflection in the window: pale, hollow-eyed. When had he last eaten? The tremor in his hands visible even at rest.
+He turned off his phone. If he stopped now, the silence would swallow him too. Polish countryside blurred past. His reflection in the window: pale, hollow-eyed. When had he last eaten? The tremor in his hands visible even at rest.
 
 Ahead: Auschwitz.
 Behind: Berlin where Hannah counted pills and hid yogurt.
-Between: Ethan Israel Stone, carrying stones, carrying names, carrying the physical weight that made his chest burn, his hands shake, his teeth grind until they bled.
+Between: Ethan Israel Stone, carrying stones, carrying names, carrying what refused to be forgotten.
 
 Oświęcim station.
 The train stopped.
 His body wanted to run.
+The silence pressed at his back.
 His legs carried him forward.

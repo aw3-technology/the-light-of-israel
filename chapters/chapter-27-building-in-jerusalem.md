@@ -84,7 +84,7 @@ Yossi laughed, but not unkindly. "Every American thinks they come here to find t
 
 "I need work."
 
-"Tomorrow, five AM. Bring water. Bring work clothes. Bring humility. I pay cash first month while you sort documents. After that, official. If you last that long."
+"Tomorrow, five AM. Bring water. Bring work clothes. Bring humility. I pay cash first month while you sort documents. We'll file a work permit request tied to your temporary residency. After that, official. If you last that long."
 
 He lasted. Every morning, predawn darkness to the site, hands blistering then callousing, back screaming then strengthening, Hebrew improving through construction vocabulary—concrete, rebar, level, plumb, all the words for making things straight and true and permanent. The Palestinians on the crew taught him Arabic curses. The Russians taught him to drink vodka at lunch and still lay bricks straight. Yossi taught him that building was prayer, every wall an argument against impermanence.
 
@@ -110,7 +110,7 @@ His father, practical, scanning the apartment with calculating eyes. "What about
 
 They couldn't see it, what he saw. Couldn't feel what had shifted. They saw Israel through American eyes—dangerous, difficult, irrational, foreign. He saw it through eyes that had witnessed October 7th, traveled through exile, returned to find home where home had always been waiting, difficult and dangerous and irrational and his.
 
-Sera made dinner, traditional Shabbat meal though it was Thursday, trying to show them something beyond politics, beyond practicality. His mother helped in the kitchen, the two women finding careful ground in food preparation, in the universal language of feeding family. His father read the English Jerusalem Post, shaking his head at every article, everything confirming his sense that his son had chosen insanity.
+Sera made dinner, traditional Shabbat meal though it was Thursday, trying to show them something beyond politics, beyond practicality. His mother helped in the kitchen, pausing to admire the challah Sera had braided, the two women finding careful ground in food preparation, in the universal language of feeding family. His father noticed the mezuzah screws were loose and quietly tightened them while reading the English Jerusalem Post, shaking his head at every article, everything confirming his sense that his son had chosen insanity.
 
 "The pregnancy," his mother finally said over dessert. "When?"
 
