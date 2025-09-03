@@ -1,6 +1,6 @@
 # Chapter 1: The Hollow Morning
 
-Eden Stone woke to his phone alarm at 7:18 AM and wondered, not for the first time, if this was what dying felt like—breathing but not living, moving but not going anywhere, existing between sleep and consciousness where nothing mattered and everything hurt in ways he couldn't name. His surname had never felt more accurate: Stone. Heavy, immovable, going nowhere. The notification sound from Slack pulled him from dreams he couldn't remember into a Tuesday morning that would be indistinguishable from Monday, from last Tuesday, from the endless procession of gray September days that made up his thirty-third year.
+Eden Stone woke to his phone alarm at 7:18 AM and wondered, not for the first time, if this was what dying felt like—breathing but not living, moving but not going anywhere, existing between sleep and consciousness where nothing mattered and everything hurt in ways he couldn't name. His surname had never felt more accurate: Stone. Heavy, immovable, going nowhere. The notification sound from Slack pulled him from dreams he couldn't remember into a Tuesday morning that would be indistinguishable from Monday, from last Tuesday, from the endless procession of gray late September days that made up his thirty-third year in 2023.
 
 He checked his phone before his feet touched the floor. Seventeen notifications. No one calling his name. Josh from engineering asking about "user journey optimization." Maya from design sharing wireframes that looked exactly like every other app interface he'd seen in the past five years. A calendar reminder for the 9:30 standup where they'd discuss metrics that measured engagement without asking engagement with what.
 
@@ -28,9 +28,15 @@ The questions felt like stones thrown across an ocean—each one sinking before 
 
 "I'm busy with a product launch."
 
+"Eden." His mother's voice carried the particular weight mothers use when they're about to say something important. "You haven't been the same since Sarah. It's been eight months. Maybe it's time to—"
+
+"I have to go, Mom."
+
+The phone died at exactly eight minutes and forty-one seconds into the call. Eden stared at the black screen, feeling something he couldn't name. He'd been on Wellbutrin for two years now, since the promotion that was supposed to make him happy instead made him realize happiness wasn't a metrics-driven outcome.
+
 Silence stretched between them, filled with everything neither had learned to say. His mother's breathing was audible—the particular rhythm of someone choosing words carefully.
 
-"Eden." Her voice softened. "Next week is the third anniversary of Grandma Rivka's passing. I thought... maybe we could light a candle together. Video call or something."
+"Eden." Her voice softened. "It's been almost a year since Grandma Rivka passed. The yahrzeit is coming up next month. I thought... maybe we could light a candle together. Video call or something."
 
 He caught his reflection in the steamed bathroom mirror—stubbled, hollow-eyed, carrying his grandmother's weight around his eyes.
 
@@ -40,13 +46,17 @@ He caught his reflection in the steamed bathroom mirror—stubbled, hollow-eyed,
 
 "I have to go."
 
-He hung up and immediately regretted it. The phone sat silent on the counter, accusatory as any mirror. October 7th. Three years since the woman who'd spoken to him in Yiddish and Hebrew died, taking with her the last thread connecting him to something older than his own understanding.
+He hung up and immediately regretted it. The phone sat silent on the counter, accusatory as any mirror. October 7th. One year since the woman who'd spoken to him in Yiddish and Hebrew died, taking with her the last thread connecting him to something older than his own understanding.
 
-The commute was a meditation in purposelessness. Subway car packed with people who looked exactly like him—educated, employed, empty. Everyone staring at screens, scrolling through lives more interesting than their own. An Orthodox family got on at 14th Street, the father's prayer fringes visible beneath his white shirt, the children switching between Hebrew and English like Eden had once done with his grandmother. Eden felt nothing looking at them, which surprised him. Shouldn't he feel something? Some connection to whatever they represented?
+The commute was a meditation in purposelessness. Subway car packed with people who looked exactly like him—educated, employed, empty. Everyone staring at screens, scrolling through headlines about tensions in the Middle East, Gaza crisis entering day thirty-six, news Eden scrolled past without absorbing. An Orthodox family got on at 14th Street, the father's prayer fringes visible beneath his white shirt, the children switching between Hebrew and English like Eden had once done with his grandmother. Eden felt nothing looking at them, which surprised him. Shouldn't he feel something? Some connection to whatever they represented?
+
+At Union Square, a homeless man with wild gray hair pointed directly at Eden through the window. "Israel!" he shouted as the train pulled away. "Wake up!" Eden assumed the man was schizophrenic, talking to voices, but something about the urgency made his stomach tighten.
+
+He stopped at the corner bodega near his office for his usual coffee. "$7.18," said the elderly Yemeni owner, the same price as always. Eden handed over exact change, never noticing how the number seemed to follow him—his wake-up time, his coffee price, the strange synchronicity of digits that would have meant something to his grandmother. "Have blessed day, brother," the owner said, and Eden nodded without hearing the words or recognizing the blessing being offered.
 
 His work badge read "Eden Stone, Senior Product Manager." No middle name. He'd stopped using "Israel" sometime in college, when introducing himself as "Eden Israel Stone" felt like carrying a flag for a country he'd never visited and a tradition he'd never understood. Now it was just Eden Stone, which sounded clean, professional, uncomplicated. Like a tech startup or a meditation app.
 
-The office building was glass and steel and artificial everything. Filtered air, controlled temperature, lighting designed to maximize productivity while minimizing awareness that there was a world outside with weather and seasons and actual time passing. His desk was on the fourteenth floor—the same floor number as the avenue where his grandmother had lived for fifty-one years, 541 East 14th Street—with a view of other glass buildings full of other people doing other jobs that probably felt exactly like his.
+The office building was glass and steel and artificial everything. Filtered air, controlled temperature, lighting designed to maximize productivity while minimizing awareness that there was a world outside with weather and seasons and actual time passing. His desk was on the eighteenth floor with a view of other glass buildings full of other people doing other jobs that probably felt exactly like his. The elevator had stopped at every floor on the way up, including an unusually long pause at the eighteenth—though he never noticed the significance of eighteen, the number that seemed to follow him everywhere.
 
 "Eden, good morning." Naomi Patel from UX dropped into the chair beside his desk, laptop already open, coffee in hand. "Did you see Josh's email about the conversion funnel optimization?"
 
@@ -70,7 +80,7 @@ By lunch, he'd answered fifty-one emails, attended two more meetings, and update
 
 The words from his mother's text echoed in his head: "Your grandmother would be disappointed." October 7th. The anniversary approaching like a storm he could see coming but couldn't prepare for.
 
-Rivka Stone. He closed his eyes and could almost smell her kitchen—challah rising, chicken soup simmering, the lingering scent of Shabbat candles that she lit every Friday evening for seventy years. She'd died on October 7th three years ago, leaving him feeling like the last thread connecting him to something older than his own understanding had been cut.
+Rivka Stone. He closed his eyes and could almost smell her kitchen—challah rising, chicken soup simmering, the lingering scent of Shabbat candles that she lit every Friday evening for seventy years. She'd died last October 7th, leaving him feeling like the last thread connecting him to something older than his own understanding had been cut.
 
 For a moment, standing in his sterile office, Eden felt something crack inside his chest. Not breaking—cracking. Like an egg before hatching, or ice on a frozen pond when spring comes too suddenly. The crack felt dangerous and necessary, filled with the possibility of drowning or breathing for the first time.
 
