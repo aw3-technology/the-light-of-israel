@@ -1,6 +1,6 @@
 # Chapter 1: The Hollow Morning
 
-Eden Stone woke to his phone alarm at 7:18 AM and wondered, not for the first time, if this was what dying felt like—breathing but not living, moving but not going anywhere, existing between sleep and consciousness where nothing mattered and everything hurt in ways he couldn't name. The notification sound from Slack pulled him from dreams he couldn't remember into a Tuesday morning that would be indistinguishable from Monday, from last Tuesday, from the endless procession of gray September days that made up his thirty-third year.
+Eden Stone woke to his phone alarm at 7:18 AM and wondered, not for the first time, if this was what dying felt like—breathing but not living, moving but not going anywhere, existing between sleep and consciousness where nothing mattered and everything hurt in ways he couldn't name. His surname had never felt more accurate: Stone. Heavy, immovable, going nowhere. The notification sound from Slack pulled him from dreams he couldn't remember into a Tuesday morning that would be indistinguishable from Monday, from last Tuesday, from the endless procession of gray September days that made up his thirty-third year.
 
 He checked his phone before his feet touched the floor. Seventeen notifications. No one calling his name. Josh from engineering asking about "user journey optimization." Maya from design sharing wireframes that looked exactly like every other app interface he'd seen in the past five years. A calendar reminder for the 9:30 standup where they'd discuss metrics that measured engagement without asking engagement with what.
 
@@ -8,9 +8,9 @@ The coffee maker had been programmed the night before—another optimization in 
 
 Eden's apartment reflected his internal architecture: expensive minimalism masking the fact that nothing inside had been chosen with love. The Herman Miller chair that hurt his back. The pristine kitchen island he never cooked on. The bedroom that felt more like a hotel room—clean, efficient, impersonal. Everything optimized for a life he wasn't actually living.
 
-He caught his reflection in the bathroom mirror and looked away immediately. Stubble that needed attention. Eyes that held no curiosity about what the day might bring. His father's jawline, his mother's cheekbones, and something harder to name that came from his grandmother—a weight around the eyes that suggested knowledge of older sorrows.
+He caught his reflection in the bathroom mirror and looked away immediately. Stubble that needed attention. Eyes that held no curiosity about what the day might bring. His father's jawline, his mother's cheekbones, and something harder to name that came from his grandmother—a weight around the eyes that suggested knowledge of older sorrows. Stone eyes in a Stone face, carrying the weight of foundations that had forgotten what they were supposed to support.
 
-The shower lasted exactly eighteen minutes—he'd timed it once, though he couldn't remember why eighteen had become his standard. The water was hot enough to fog the mirrors, creating a blessed absence of reflection. He stood under the spray and tried to remember the last time he'd felt genuinely excited about anything. The promotion six months ago? Maybe. Though that had felt more like relief than joy—one more rung on a ladder that seemed to lead only to more climbing.
+The shower lasted exactly eighteen minutes—he'd timed it once, though he couldn't remember why eighteen had become his standard. The water was hot enough to fog the mirrors, creating a blessed absence of reflection. Steam rose like prayers he'd forgotten how to say, and for a moment the flowing water reminded him of something—a ritual, a cleansing, a memory of his grandmother's hands over candles and the sound of Hebrew words that once felt like coming home. He stood under the spray and tried to remember the last time he'd felt genuinely excited about anything. The promotion six months ago? Maybe. Though that had felt more like relief than joy—one more rung on a ladder that seemed to lead only to more climbing.
 
 His phone buzzed against the marble countertop. Three missed calls from "Mom." He dismissed the notifications without listening to the voicemails. Whatever guilt or concern or family obligation she wanted to transmit could wait. Everything could wait.
 
@@ -46,9 +46,9 @@ The commute was a meditation in purposelessness. Subway car packed with people w
 
 His work badge read "Eden Stone, Senior Product Manager." No middle name. He'd stopped using "Israel" sometime in college, when introducing himself as "Eden Israel Stone" felt like carrying a flag for a country he'd never visited and a tradition he'd never understood. Now it was just Eden Stone, which sounded clean, professional, uncomplicated. Like a tech startup or a meditation app.
 
-The office building was glass and steel and artificial everything. Filtered air, controlled temperature, lighting designed to maximize productivity while minimizing awareness that there was a world outside with weather and seasons and actual time passing. His desk was on the fourteenth floor, with a view of other glass buildings full of other people doing other jobs that probably felt exactly like his.
+The office building was glass and steel and artificial everything. Filtered air, controlled temperature, lighting designed to maximize productivity while minimizing awareness that there was a world outside with weather and seasons and actual time passing. His desk was on the fourteenth floor—the same floor number as the avenue where his grandmother had lived for fifty-one years, 541 East 14th Street—with a view of other glass buildings full of other people doing other jobs that probably felt exactly like his.
 
-"Eden, good morning." Sarah Chen from UX dropped into the chair beside his desk, laptop already open, coffee in hand. "Did you see Josh's email about the conversion funnel optimization?"
+"Eden, good morning." Naomi Patel from UX dropped into the chair beside his desk, laptop already open, coffee in hand. "Did you see Josh's email about the conversion funnel optimization?"
 
 "Not yet." He opened his laptop, waited for it to boot, watched his face appear briefly in the black screen before the corporate login screen replaced it. He didn't recognize the person looking back.
 
@@ -66,7 +66,7 @@ Eden pulled up a slide he'd created at 11 PM the night before, a flowchart that 
 
 Everyone nodded. Someone said "Makes sense." Someone else said "Let's A/B test it." The meeting moved on to other topics, other metrics, other optimizations. Eden's mind drifted to a memory he couldn't quite grasp—his grandmother's hands lighting candles, whispering words in a language he'd once known but had forgotten.
 
-By lunch, he'd answered forty-seven emails, attended two more meetings, and updated three different spreadsheets tracking progress on initiatives he couldn't remember caring about. His phone showed a text from his mother: "Haven't heard from you in weeks. Your grandmother would be disappointed."
+By lunch, he'd answered fifty-one emails, attended two more meetings, and updated three different spreadsheets tracking progress on initiatives he couldn't remember caring about. Every number felt arbitrary, meaningless—unlike the numbers his grandmother had whispered in Hebrew during her evening prayers, numbers that seemed to mean something beyond themselves. His phone showed a text from his mother: "Haven't heard from you in weeks. Your grandmother would be disappointed."
 
 The words from his mother's text echoed in his head: "Your grandmother would be disappointed." October 7th. The anniversary approaching like a storm he could see coming but couldn't prepare for.
 
@@ -82,9 +82,9 @@ Eden sat at his desk after everyone else had left, laptop still open, cursor bli
 
 He thought about calling his mother back. About the voicemails he hadn't listened to. About the grandmother whose yahrzeit was coming up—October 7th, which he knew because it was written in his calendar but felt like information about a stranger's life.
 
-Instead, he closed his laptop and gathered his things. The elevator down to the lobby was empty, mirrored walls reflecting him from multiple angles until he looked like an infinity of identical tired men in identical expensive clothes carrying identical leather bags home to identical empty apartments.
+Instead, he closed his laptop and gathered his things. The elevator descended from the fourteenth floor like sinking through water, mirrored walls reflecting him from multiple angles until he looked like an infinity of identical tired men in identical expensive clothes carrying identical leather bags home to identical empty apartments. Each floor counted down felt like a stone dropping into an endless well.
 
-On the street, the evening air carried the scent of food trucks and car exhaust and something else—the faintest hint of autumn, of seasons changing, of time passing whether he participated in it or not. He walked to the subway entrance and descended into the underground, into the fluorescent-lit tunnel that would carry him home to Brooklyn, to another eighteen-minute shower, to another programmed coffee maker, to another morning that would begin at 7:18 AM with the same question he couldn't answer:
+On the street, the evening air carried the scent of food trucks and car exhaust and something else—the faintest hint of autumn, of seasons changing, of time passing whether he participated in it or not. The Hudson River was somewhere to his west, flowing toward the harbor, carrying the city's reflection toward the ocean like scattered light on moving water. Mountains rose beyond the city somewhere, patient and eternal, but Eden had forgotten how to lift his eyes that high. He walked to the subway entrance and descended into the underground, into the fluorescent-lit tunnel that would carry him home to Brooklyn, to another eighteen-minute shower, to another programmed coffee maker, to another morning that would begin at 7:18 AM with the same question he couldn't answer:
 
 What was the point?
 
