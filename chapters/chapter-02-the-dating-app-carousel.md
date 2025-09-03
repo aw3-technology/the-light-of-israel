@@ -2,158 +2,202 @@
 
 Ethan had been swiping for forty-five minutes and couldn't remember a single face.
 
-Left, left, left, right, left. The rhythm had become automatic, thumb moving across glass while Brooklyn dusk settled outside his window. Each profile blurred into the next—yoga instructors and startup founders, Brooklyn Museum selfies and Machu Picchu sunsets, declarations of loving both adventures and lazy Sundays. He'd matched with dozens this week alone. Their messages sat unread in his phone like small debts he'd never repay.
+Left, left, left, right, left, the rhythm becoming automatic while Brooklyn dusk settled outside his window and each profile blurred into the next—yoga instructors with sunset warrior poses and startup founders with Machu Picchu summits, all declaring love for both adventures and lazy Sundays in bios that felt copied from the same template, pasted into lives that looked identical from this distance, this forty-five minutes of swiping that had become every evening, every week, every month since Sarah had said he was "emotionally absent," which was true but knowing it was true didn't make him any more present.
 
-Rachel Klein would be his thirty-seventh first date since Sarah ended things eight months ago. Not that he was counting. Her profile had stood out only because she'd messaged first: "Your bio says you optimize user journeys. Can you optimize this awkward opening message?" Clever enough. Safe enough. The kind of humor that passed for personality on apps designed to compress human complexity into six photos and three prompts.
+Rachel Klein would be his thirty-seventh first date since Sarah ended things eight months ago—thirty-seven like double chai plus one, life doubled plus the loneliness of odd numbers, though he didn't recognize the significance, just felt the weight of repetition pressing against his sternum like accumulated rejections he hadn't even experienced yet. Her profile had stood out only because she'd messaged first: "Your bio says you optimize user journeys. Can you optimize this awkward opening message?" Clever enough. Safe enough. The kind of humor that passed for personality on apps designed to compress human complexity into six photos and three prompts.
 
-Ethan stood before his bathroom mirror, running fingers through hair that cost forty-eight dollars to cut but still looked accidentally disheveled. The dating uniform hung ready: dark jeans that suggested casual success, navy button-down that brought out eyes he'd been told were his best feature, though he couldn't remember who'd said it or when he'd stopped believing compliments. Everything calculated to seem uncalculated.
+Three blocks away, the Lubavitcher families were preparing for Shabbat, but Ethan only noticed the traffic they caused as he stood before his bathroom mirror, leaving the top button undone, rolling his sleeves to exactly mid-forearm, mussing his forty-eight-dollar haircut with studied carelessness that took longer to achieve than actual carelessness would have taken. The dating uniform hung ready: dark jeans that suggested casual success, navy button-down that brought out eyes Sarah had once called "beautifully vacant," though he'd chosen to hear only the first word.
 
-His reflection looked back, competent and empty. Somewhere in that face was Ethan Israel Stone, but tonight, like every Friday night for months, he'd be just Ethan—successful product manager, Brooklyn resident, cultural but not religious. The kind of Jewish that meant knowing about bagels and anxiety but nothing about why his grandmother had covered her eyes when lighting candles, whispering prayers in a language that had once made their apartment feel larger than its four rooms.
+His reflection looked back, competent and empty, a face that belonged in a WeWork lobby or a meditation app advertisement, anywhere but here in this moment of preparing to perform intimacy with a stranger who was probably standing before her own mirror performing the same preparations. Somewhere in that face was Ethan Israel Stone, but tonight, like every Friday night for months, he'd be just Ethan—successful product manager, Brooklyn resident, cultural but not religious, the kind of Jewish that meant knowing about bagels and anxiety but nothing about why his grandmother had covered her eyes when lighting candles, whispering prayers in Hebrew that had made their cramped apartment expand into something infinite, something he'd lost the coordinates for.
+
+The time on his phone read 7:18 PM. He didn't notice the pattern.
 
 The Uber driver's name was Abraham. Of course it was.
 
-"Going somewhere nice?" Abraham asked, pulling away from Ethan's building. His accent carried warmth Ethan couldn't place—Middle Eastern, maybe North African.
+"Going somewhere nice?" Abraham asked, pulling away from Ethan's building, his accent carrying warmth from a geography Ethan had never visited—Middle Eastern, maybe North African, the kind of place where Friday night meant something more than dinner and drinks.
 
 "Just meeting someone."
 
-"Ah." Abraham's eyes found Ethan's in the rearview mirror. "You'll find what you're looking for, my friend. Sometimes not where you expect."
+"Ah." Abraham's eyes found Ethan's in the rearview mirror, holding them for a moment longer than comfortable. "You'll find what you're looking for, my friend. Sometimes not where you expect."
 
-Ethan stared at his phone, refreshing Rachel's profile like studying for a test. Marketing manager at a wellness startup called Breathe. Northwestern undergraduate, Columbia MBA. Lived in Fort Greene. Listed "Culturally Jewish" under religion. Photos showed her at gallery openings, hiking somewhere that looked like Big Sur, laughing at a dinner table surrounded by friends who all looked successful in the same indefinable way.
+The ride took exactly 5 minutes and 41 seconds, though Ethan was too busy refreshing Rachel's profile to notice the number's significance—541, the gematria of Israel, his hidden middle name traversing Brooklyn while he studied her photos: marketing manager at a wellness startup called Breathe, Northwestern undergraduate, Columbia MBA, lived in Fort Greene, listed "Culturally Jewish" under religion, shown at gallery openings where everyone held wine glasses at the same angle, hiking somewhere that required flying to reach, laughing at dinner tables where the lighting was always golden hour.
 
-Terroir sat on a Park Slope corner, its Edison bulbs and exposed brick declaring its membership in the confederation of Brooklyn spaces that looked different but felt identical. Through the window, Ethan counted three other couples on what were obviously first dates—the posture too straight, laughter too quick, phones face-down in performed presence.
+As Ethan reached for the door of Terroir, three couples filed out in succession—finished with their meals, their conversations, their attempts at connection. The hostess smiled, her teeth reflecting the Edison bulbs. "Perfect timing. We just had a table open up."
 
-The address number caught his eye as he reached for the door: 613. Something about it seemed significant, but the thought dissolved as he stepped inside.
+The address number caught his eye as he entered: 613. Something about it hummed with significance, but the thought dissolved as he spotted Rachel in the second booth from the back, and she looked exactly like her photos, which somehow felt like both a relief and a disappointment, like ordering something online and receiving exactly what was advertised when what you really wanted was to be surprised by grace.
 
-Rachel was already there, second booth from the back, and she looked exactly like her photos, which somehow felt like both a relief and a disappointment. Shoulder-length brown hair with expensive highlights. Delicate gold jewelry that suggested taste without trying. She stood as he approached, that awkward dance of hug or handshake settling on a brief embrace that smelled of something French and understated.
+She stood as he approached—shoulder-length brown hair with highlights that cost more than his monthly coffee budget, delicate gold jewelry that whispered rather than declared, the kind of outfit that looked effortless but required three friends' opinions via text. Their embrace lasted exactly two seconds, long enough to establish intention, brief enough to maintain boundaries, scented with something French he'd smell on the subway for weeks and feel nothing.
 
 "Ethan! You made it through Friday traffic."
 
-"Brooklyn to Brooklyn, not too bad." He slid into the booth, noting how she'd chosen the seat facing the room. Strategic or coincidental? Everything on dates became evidence to analyze later.
+"Brooklyn to Brooklyn, not too bad." He slid into the booth, checking his phone: 7:18 PM again. Strange. She'd chosen the seat facing the room, watching the door like someone waiting for a better option to walk in.
 
-The server appeared—tattooed, perfectly friendly, probably an artist or musician serving wine to pay rent on a studio where she created things that mattered to her. "Can I start you with something to drink? We have some beautiful natural wines tonight."
+The server appeared—tattooed sleeves telling stories in languages he'd never learn, smile professionally warm, probably named Emma or Sage, definitely creating something authentic in Bushwick while serving overpriced wine to people creating nothing. "Can I start you with something to drink? We have some beautiful natural wines tonight."
 
-Rachel ordered orange wine before Ethan could fully parse the menu. "Trust me," she said, touching his wrist lightly. "It's having a moment."
+The hostess moved through the restaurant lighting tea candles at each table—secular flames that illuminated nothing sacred, casting shadows that made everyone look like they were in confession without the possibility of absolution.
 
-The touch was calculated but not unpleasant. Everything was calculated. Ethan ordered the same, wondering when he'd become someone who accepted recommendations about things having moments.
+Rachel ordered orange wine before Ethan could fully parse the menu. "Trust me," she said, her fingers resting on his wrist for exactly two seconds—long enough to signal interest, brief enough to maintain plausible deniability. "It's having a moment."
 
-"So," Rachel began, the universal first-date opening, "tell me about optimizing user journeys. Your profile made it sound less boring than it probably is."
+"So," Rachel began, leaning forward in practiced interest, "tell me about optimizing user journeys. Your profile made it sound less boring than it probably is."
 
-He laughed, the practiced laugh of someone who'd answered this question thirty-six times before. "It's exactly as boring as it sounds. I basically figure out why people abandon their shopping carts and try to make them abandon them less."
+He laughed, the laugh he'd perfected over thirty-six iterations. "It's exactly as boring as it sounds. I basically figure out why people abandon their shopping carts and try to make them abandon them less."
 
 "The hero capitalism needs."
 
 "That's me. Fighting the good fight against friction in checkout flows."
 
-She smiled, the kind of smile that involved the right amount of teeth. "I'm basically the same but for wellness. Trying to convince people that a meditation app will solve problems created by having too many apps."
+She smiled, and the votive candle between them flickered despite the absence of wind. "I'm basically the same but for wellness. Trying to convince people that a meditation app will solve problems created by having too many apps."
 
 "How's that working out?"
 
 "We just closed Series B funding, so apparently cognitive dissonance sells."
 
-The wine arrived, orange and cloudy in glasses that cost more than the liquid they held. Rachel raised hers. "To Friday night in Brooklyn."
+The sommelier appeared with their wine—orange and cloudy in glasses that cost more than the liquid they held, made from grapes grown in the Golan Heights, though neither Ethan nor Rachel recognized the significance—contested territory becoming fermented sweetness, conflict distilled into something palatable for Brooklyn consumption.
+
+Rachel raised her glass. "To Friday night in Brooklyn."
 
 "To Friday night in Brooklyn."
 
-The wine tasted like disappointment with hints of apricot. Around them, other couples performed similar rituals—the lean-in of feigned interest, the appreciative sip, the laugh that suggested depth without revealing any.
+The wine coated his tongue like disappointment mixed with apricot, the terroir of nowhere in particular pretending to be somewhere specific, while around them other couples performed identical rituals, the synchronized swimming of modern romance, everyone drowning at the same carefully controlled depth.
 
-"So what else?" Rachel asked. "Besides optimizing capitalism?"
+"So what else?" Rachel asked, her phone face-down between them like a threat. "Besides optimizing capitalism?"
 
-The question was an invitation to perform his personality. Ethan had a roster of anecdotes for this moment—the half-marathon he'd trained for but never run, the sourdough starter that died during the pandemic, the trip to Thailand where he'd found himself at a meditation retreat accidentally. All true, all meaningless, all designed to suggest depth without requiring any.
+"The usual Brooklyn clichés," Ethan said, tired of his own anecdotes. "Trying to read more, cook more, generally be more of an adult. You?"
 
-"The usual Brooklyn clichés," he said instead. "Trying to read more, cook more, generally be more of an adult. You?"
-
-"Same constellation of aspirations." She twisted the stem of her wine glass between manicured fingers. "Yoga teacher training that I'll definitely start next year. Learning Spanish on an app. Attempting to keep plants alive with mixed success."
+"Same constellation of aspirations." Her wine glass stem was sticky with someone else's fingerprints that the server had missed. "Yoga teacher training that I'll definitely start next year. Learning Spanish on an app. Attempting to keep plants alive with mixed success."
 
 "The Brooklyn trifecta."
 
 "We're all living the same life in different apartments."
 
-The observation hung between them, too honest for a first date. Rachel covered quickly: "Though I did just get back from Iceland. Have you been?"
+Rachel's wine glass stopped halfway to her lips. They both looked at the candle flame. Neither spoke for seven seconds.
 
-And they were back on script. Iceland led to travel stories—her Northern Lights, his Tokyo subway confusion. Each anecdote polished from retelling, deployed to suggest adventurousness without actual risk. The server returned. They ordered small plates with names that required explanation—burrata with something preserved, vegetables prepared in ways that justified their prices.
+"Though I did just get back from Iceland. Have you been?"
 
-"So, Ethan," Rachel said as their second round of wine arrived, this one natural and red and tasting of earth Ethan had never walked on. "That's an interesting name. Biblical, right?"
+Kitchen crashes punctuated their careful conversation as they returned to script—Iceland leading to travel stories, her Northern Lights, his Tokyo subway confusion, each anecdote polished from retelling like stones in a rock tumbler until all edges were gone and everything was smooth and looked exactly the same. The server returned. They ordered small plates with names that required explanation—burrata with something preserved, vegetables prepared in ways that justified their prices, bread that was called "artisanal" because it had bubbles and cost twelve dollars.
 
-"My parents were going through a thing." The dodge came automatically. Ethan Israel Stone becomes just Ethan, the middle name buried like something shameful. "You know how it is."
+"So, Ethan," Rachel said as their second round arrived. "That's an interesting name. Biblical, right?"
+
+"My parents were going through a thing." The dodge came automatically, Ethan Israel Stone compressed to just Ethan, the middle name buried like archaeological evidence of a civilization he'd abandoned.
 
 "Oh, totally. My parents named me Rachel after my great-grandmother who I never met. Very Jewish of them, considering we had a Christmas tree every year."
 
-She laughed. He was supposed to laugh too. He managed something that sounded like laughter.
+She laughed. He was supposed to laugh too. He managed something that involved showing teeth.
 
 "Are you... I mean, your last name's Klein, so..."
 
-"Jewish? Yeah, technically. Like, ethnically or whatever. But not, you know, Jewish Jewish." She gestured with her wine glass, encompassing some vast distance between Jewish and Jewish Jewish. "We did Passover sometimes. My dad would read from this children's Haggadah he got somewhere. Twenty minutes max, then dinner. You?"
+"Jewish? Yeah, technically. Like, ethnically or whatever. But not, you know, Jewish Jewish." 
 
-"Same." The lie came easily. It wasn't even really a lie. His family's Judaism had faded to something similar—High Holidays sometimes, bagels always, Israel never discussed, Hebrew forgotten. "Cultural but not religious."
+The candle flickered when she said "Jewish Jewish," again when Ethan agreed "Same here," creating shadows that made their faces look briefly unfamiliar, like strangers wearing masks of themselves.
 
-"The best kind," Rachel said, and something in Ethan's chest tightened.
+"We did Passover sometimes. My dad would read from this children's Haggadah he got somewhere. Twenty minutes max, then dinner. You?"
 
-The food arrived, beautiful and underseasoned. They photographed it without discussing why. Rachel posted to her story immediately. Ethan left his photos in his camera roll, evidence of a life he wasn't actually living.
+"Same." The lie came easily, though his family's Judaism had faded to something similar—High Holidays sometimes, bagels always, Israel never discussed, Hebrew forgotten except in dreams he didn't remember, his grandmother's Shabbat candles extinguished the day she died and never relit.
 
-"So what happened with your last relationship?" Rachel asked, cutting into burrata that bled white across the plate. "If you don't mind me asking."
+"The best kind," Rachel said, and something in Ethan's chest tightened like a fist around a yahrzeit candle.
 
-The question was inevitable, part of the first-date choreography. Ethan had his answer prepared—mutual decision, different life paths, remain friends. All technically true. He never mentioned that Sarah had said he was "emotionally absent," that she'd accused him of going through life like a ghost, present but not really there.
+Outside, through the restaurant window, a mezuzah on a closed shop door caught streetlight, but neither of them noticed, too focused on the performance of connection, the careful calibration of interest, the mathematics of modern intimacy where everything had to add up to something that looked like compatibility.
 
-"We wanted different things," he said. "What about you?"
+The food arrived, beautiful and underseasoned, arranged on plates like tiny Zen gardens of absence. They photographed it without discussing why, Rachel posting immediately to her story, adding a heart emoji and location tag, while Ethan left his photos in his camera roll, evidence of a life that looked lived from the outside.
 
-"He moved to San Francisco for a startup." Rachel rolled her eyes. "Because apparently New York doesn't have enough of those."
+"So what happened with your last relationship?" Rachel asked, cutting into burrata that bled white across the plate like spilled milk, like wasted seed, like all the potential connections that would never be made. "If you don't mind me asking."
 
-They both laughed, conspirators against ex-boyfriends who chose California. The conversation drifted to safer ground—Brooklyn neighborhoods, streaming shows, the couple at the next table who were definitely breaking up. Twice Rachel's phone lit up. Twice she apologized and flipped it over. Ethan's phone vibrated in his pocket. He didn't check.
+"We wanted different things," Ethan said, which was true if what he wanted was to feel nothing and what she wanted was for him to feel something, anything, even pain would have been better than his careful absence.
 
-"Want to know something weird?" Rachel said, wine making her edges softer. "I've been on probably fifty first dates this year."
+"What about you?"
+
+"He moved to San Francisco for a startup." Rachel rolled her eyes, and they both laughed, conspirators against ex-boyfriends who chose California, though secretly Ethan envied anyone who could choose anything with that much certainty.
+
+"So you're in product?" Rachel asked, already knowing from his profile.
+
+"Yeah, optimization stuff. Making sure people click where we want them to click."
+
+"God, that's literally what dating apps do to us."
+
+"Right? Except the conversion rate is terrible."
+
+"My therapist says I treat relationships like A/B tests."
+
+"Mine says I have 'avoidant attachment.' Forty dollars a session to learn I avoid things."
+
+They both laughed—the practiced laugh of people who'd made these jokes before, would make them again, a laugh that sounded like giving up.
+
+Rachel's phone lit up. She glanced, apologized, flipped it over. Ethan's phone vibrated in his pocket—probably his mother, definitely ignored. They both reached for their phones simultaneously, both pretended not to notice, both pulled their hands back like touching something hot.
+
+"Want to know something weird?" Rachel said, wine making her edges softer, her guard lower. "I've been on probably fifty first dates this year."
 
 "That's not weird. That's just dating now."
 
-"No, the weird part is I can barely remember any of them. Like, they happened, I was there, but they all blur together. Same bars, same conversations, same..." She gestured vaguely at the space between them.
+"No, the weird part is I can barely remember any of them. Like, they happened, I was there, but they all blur together. Same bars, same conversations, same..." She gestured vaguely at the space between them, the air full of nothing.
 
-Ethan felt something crack, just slightly, in the performance. "Same what?"
+"Same what?"
 
 "Same nothing. Pleasant nothing. Like we're all auditioning for roles in each other's lives but nobody knows what the play is about."
 
-The honesty lasted three seconds before Rachel laughed, bright and false. "Sorry, wine makes me philosophical. I promise I'm usually more fun."
+For a moment, something almost Hebrew wanted to escape Ethan's mouth—a word his grandmother used to say about searching, about wandering, about exile—but he swallowed it down with wine that tasted like nowhere.
 
-"No, I get it." And he did, but getting it and doing something about it were different things. "It's like we're all browsing for connection the same way we browse for everything else."
+"Sorry, wine makes me philosophical. I promise I'm usually more fun."
+
+"No, I get it." And he did get it, the way you get a terminal diagnosis, understanding without being able to change it. "It's like we're all browsing for connection the same way we browse for everything else."
 
 "Exactly! Swipe, click, consume, repeat."
 
-They were circling something real, but neither knew how to land there. The server appeared with dessert menus. Rachel demurred—"I'm trying to be good." Ethan agreed—"Same." They ordered another round instead.
+"Digital diaspora," he said without thinking.
 
-The wine made everything softer but not clearer. Rachel told a story about her boss that required extensive context. Ethan responded with his own workplace absurdity. They were matching each other's energy, calibrating their personalities to achieve optimal compatibility. It was working and it was exhausting.
+"What?"
 
-"This is nice," Rachel said, and meant it within the narrow parameters of what nice could mean on a Friday night in Brooklyn.
+"Nothing. Just... we're all wandering through profiles like..." He stopped, not knowing how to finish, not knowing why the word diaspora had surfaced from some depth he'd forgotten existed.
 
-"It is," Ethan agreed, and meant it even less.
+Rachel almost said something—her mouth opened, and for a second Ethan thought she might mention her own grandmother, might share something real, might crack the performance—but then she reached for her wine instead, and the moment dissolved like sugar in rain.
 
-The check arrived in a leather folder that suggested sophistication. Ethan reached for it—the gesture expected—and Rachel performed the wallet reach that wouldn't complete. They'd split dessert wine neither wanted. The math of modern dating.
+The server appeared with dessert menus. Rachel demurred—"I'm trying to be good." Ethan agreed—"Same." They ordered another round instead, choosing destruction over sweetness, which felt honest in its dishonesty.
 
-Outside, the September air carried hints of autumn. Couples passed in both directions, some beginning their nights, others ending them. Ethan and Rachel stood in that awkward space between goodbye and what comes next.
+"What time is it?" Rachel asked.
 
-"I had a really good time," Rachel said, the script requiring these words.
+Ethan checked: 9:11 PM. "Nine-eleven."
+
+They kissed then, as if the time was a signal, an emergency broadcast requiring immediate action, lips meeting across the table in a gesture that looked passionate to the other diners but felt to Ethan like pressing his mouth against glass—he could see through to something he wanted but couldn't touch, couldn't taste, couldn't swallow.
+
+"This is nice," Rachel said, pulling back, and meant it within the narrow parameters of what nice could mean when you were thirty-one and had been on fifty first dates and had forgotten what you were looking for in the first place.
+
+"It is," Ethan agreed, and meant nothing.
+
+The check arrived in a leather folder that suggested this meal had meant something. Ethan reached for it with the automatic gesture of a man who'd been taught to pay, and Rachel performed the wallet reach that wouldn't complete, a choreographed dance of modern equality that satisfied no one. The wine had cost more than groceries for a week. Neither of them would remember what it tasted like tomorrow.
+
+Outside, the September air carried hints of autumn and something else—somewhere, challah was being blessed, somewhere wine was being sanctified, somewhere candles were being lit to separate sacred from profane, but here on this Park Slope corner there was only the profane, only the ordinary, only Ethan and Rachel standing in that awkward space between goodbye and what comes next.
+
+"I had a really good time," Rachel said, because the script required these words.
 
 "Me too."
 
-The kiss was inevitable—brief, competent, tasting of wine and emptiness. It was the kind of kiss that suggested potential without promising anything, perfectly calibrated for a first date that went well enough.
+They kissed again—brief, competent, tasting of wine and resignation. Behind Rachel, three stories up, Ethan could see the faint glow of Shabbat candles in a window, a family gathering for Friday night dinner, children's voices carrying ancient melodies into Brooklyn air that had forgotten how to hold them.
 
 "Want to share an Uber?" Rachel asked.
 
-They sat in the backseat with careful space between them, watching Brooklyn pass in the darkness. Her phone illuminated her face in short bursts as she responded to messages. Ethan watched the driver's GPS count down to her address, relief and disappointment mixing in equal measure.
+They sat in the backseat with careful space between them, the driver's GPS showing 5 minutes and 41 seconds to her address—541 again, Israel again, everything pointing to something Ethan couldn't see. Her phone illuminated her face in short bursts—texts from friends asking about the date, already crafting tomorrow's debrief, already moving on.
 
-"This is me," she said as they pulled up to a brownstone that looked like every other aspirational Brooklyn building. Another kiss, lighter than the first. "Text me?"
+"This is me," she said as they pulled up to a brownstone that looked like every other aspirational Brooklyn building, brick and promise and eventual disappointment.
+
+Another kiss, lighter than air, lighter than meaning. "Text me?"
 
 "Definitely."
 
-He wouldn't. They both knew he wouldn't.
+He wouldn't. They both knew he wouldn't. She was already opening Hinge before her front door closed.
 
-The Uber continued toward his apartment, the driver silent now, perhaps sensing the peculiar loneliness of a passenger returning home alone on a Friday night. Ethan pulled out his phone, opened Hinge, began swiping without seeing. The faces blurred past—Amanda who loved tacos and travel, Jennifer who was fluent in sarcasm, Michelle who was looking for her partner in crime.
+The Uber continued toward his apartment, the driver silent, having witnessed this scene too many times to offer comfort. Ethan checked the time: 10:55 PM. The numbers meant nothing to him, though they added up to everything—his full name in gematria, unrecognized, unacknowledged, unknown even to himself.
+
+Back in his apartment, Ethan opened Hinge again. The faces blurred past—Amanda who loved tacos and travel, Jennifer who was fluent in sarcasm, Michelle looking for her partner in crime. His thumb moved automatically: left, left, left, right, left.
 
 His phone buzzed. A text from his mother: "Haven't heard from you in weeks. Your grandmother would be disappointed."
 
-The words hit like ice water. Ethan stared at the message, thumb hovering over the keyboard. He hadn't thought about his grandmother in months. Why did her name make his chest tighten? What would she be disappointed about—his dating life? His absence from family dinners? Or something deeper, something he'd lost so gradually he hadn't noticed it was gone?
+The words hit like ice water. His thumb stopped mid-swipe. He hadn't thought about his grandmother in months. Her yahrzeit was tomorrow—September 30th. She'd been gone a year, and he'd nearly forgotten.
 
-The Uber pulled up to his building. Ethan paid, tipped well—compensation for his emptiness—and climbed the stairs to his apartment. Inside, he stood at his window looking out at Brooklyn's lights, each one representing someone else's Friday night, someone else's attempt at connection.
+What would she be disappointed about? The dating? The emptiness? Or something deeper—something about Friday night in a wine bar instead of at a Shabbat table, something about Rachel Klein who didn't know her own traditions, something about Ethan himself, hiding his middle name like a shameful secret?
 
-He thought about Rachel, probably already in bed, scrolling through apps, queuing up tomorrow's matches. He thought about the thirty-six women before her, their faces blending into one composite of educated, attractive, culturally Jewish ambivalence. He thought about his grandmother, who'd met his grandfather at nineteen and loved him until she died, who'd never needed an algorithm to tell her what she was looking for.
+He set the phone down, screen still glowing with endless faces offering endless possibility of the same nothing he'd just experienced.
 
-Ethan opened his dating apps again, but this time he didn't swipe. He just stared at the grid of faces, all promising connection, all offering the same branded loneliness he was selling in return. 
+Outside, he could hear singing from the Chabad house three blocks away. They were welcoming the Sabbath while he was swiping through approximations of connection. The melody was familiar—something his grandmother used to hum while lighting candles, something that had once made him feel held by more than just her arms.
 
-Somewhere in Brooklyn, church bells chimed ten o'clock. Or maybe they were just wind chimes. He couldn't tell the difference anymore.
+Ethan pulled the blinds closed, shutting out the song, shutting out the Sabbath, shutting out everything except the glow of his phone screen where strangers' faces continued their infinite scroll, each one a door to the same empty room he'd just left, would enter again tomorrow, would keep entering until he forgot what he was looking for in the first place.
+
+Except now, with his grandmother's yahrzeit approaching like storm clouds, he was beginning to remember that once, he had known.
