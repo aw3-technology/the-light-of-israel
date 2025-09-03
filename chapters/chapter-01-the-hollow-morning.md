@@ -112,7 +112,7 @@ The train pulled into his station at 7:18 PM. He noticed the time and wondered i
 
 Eden Stone climbed the subway stairs into the Brooklyn evening, carrying his emptiness home like a briefcase full of work that would never be finished.
 
-His phone buzzed as he reached street level. 7:20 PM. A text from an unknown number:
+His phone buzzed as he reached street level. 7:19 PM. A text from an unknown number:
 
 *"The light you're looking for is closer than you think. Thursday evening. Congregation Beth Shalom, 7th Avenue. Ask for Rabbi Levi. Your grandmother spoke of you often."*
 
