@@ -1,20 +1,48 @@
 # Chapter 1: The Hollow Morning
 
-Eden Stone woke to his phone alarm at 7:18 AM and wondered, not for the first time, if this was what dying felt like—breathing but not living, moving but not going anywhere, existing in the space between sleep and consciousness where nothing mattered and everything hurt in ways he couldn't name or fix or escape. The notification sound from Slack pulled him from dreams he couldn't remember into a Tuesday morning that would be indistinguishable from Monday, from last Tuesday, from the endless procession of gray September days that made up his thirty-third year.
+Eden Stone woke to his phone alarm at 7:18 AM and wondered, not for the first time, if this was what dying felt like—breathing but not living, moving but not going anywhere, existing between sleep and consciousness where nothing mattered and everything hurt in ways he couldn't name. The notification sound from Slack pulled him from dreams he couldn't remember into a Tuesday morning that would be indistinguishable from Monday, from last Tuesday, from the endless procession of gray September days that made up his thirty-third year.
 
-He checked his phone before his feet touched the floor. Seventeen unread messages. Josh from engineering asking about "user journey optimization." Maya from design sharing wireframes that looked exactly like every other app interface he'd seen in the past five years. A calendar reminder for the 9:30 standup where they'd discuss metrics that measured engagement without asking engagement with what.
+He checked his phone before his feet touched the floor. Seventeen notifications. No one calling his name. Josh from engineering asking about "user journey optimization." Maya from design sharing wireframes that looked exactly like every other app interface he'd seen in the past five years. A calendar reminder for the 9:30 standup where they'd discuss metrics that measured engagement without asking engagement with what.
 
-The coffee maker had been programmed the night before—another optimization in a life built on efficiencies that somehow produced no actual results. Ethiopian single origin. $18 a bag. He drank it because caffeine was fuel and fuel kept the machine running, even when the machine had forgotten what it was supposed to do. The smell should have been rich, earthy, alive. Instead it registered as brown liquid. Bitter. Functional. Gone.
+The coffee maker had been programmed the night before—another optimization in a life built on efficiencies that somehow produced no actual results. Ethiopian single origin. $18 a bag. He drank it because caffeine was fuel and fuel kept the machine running, even when the machine had forgotten what it was supposed to do. The smell should have been rich, earthy, alive. Instead it registered as brown liquid. Everything hurt. The coffee was gone.
 
 Eden's apartment reflected his internal architecture: expensive minimalism masking the fact that nothing inside had been chosen with love. The Herman Miller chair that hurt his back. The pristine kitchen island he never cooked on. The bedroom that felt more like a hotel room—clean, efficient, impersonal. Everything optimized for a life he wasn't actually living.
 
 He caught his reflection in the bathroom mirror and looked away immediately. Stubble that needed attention. Eyes that held no curiosity about what the day might bring. His father's jawline, his mother's cheekbones, and something harder to name that came from his grandmother—a weight around the eyes that suggested knowledge of older sorrows.
 
-The shower lasted exactly eighteen minutes. He'd timed it once and somehow eighteen had become the standard, though he couldn't remember why. The water was hot enough to fog the mirrors, creating a blessed absence of reflection. He stood under the spray and tried to remember the last time he'd felt genuinely excited about anything. The promotion six months ago? Maybe. Though that had felt more like relief than joy—one more rung on a ladder that seemed to lead only to more climbing.
+The shower lasted exactly eighteen minutes—he'd timed it once, though he couldn't remember why eighteen had become his standard. The water was hot enough to fog the mirrors, creating a blessed absence of reflection. He stood under the spray and tried to remember the last time he'd felt genuinely excited about anything. The promotion six months ago? Maybe. Though that had felt more like relief than joy—one more rung on a ladder that seemed to lead only to more climbing.
 
 His phone buzzed against the marble countertop. Three missed calls from "Mom." He dismissed the notifications without listening to the voicemails. Whatever guilt or concern or family obligation she wanted to transmit could wait. Everything could wait.
 
-The commute was a meditation in purposelessness. Subway car packed with people who looked exactly like him—educated, employed, empty. Everyone staring at screens, scrolling through lives more interesting than their own. A Orthodox family got on at 14th Street, the father's tallit katan visible under his white shirt, the mother's sheitel perfectly styled despite the early hour. Their children chattered in what sounded like Hebrew mixed with English. Eden felt nothing looking at them, which surprised him. Shouldn't he feel something? Some connection to whatever they represented?
+The fourth call came as he was drying his hair. Eden stared at "Mom" flashing on the screen, thumb hovering over decline. On the sixth ring, muscle memory answered.
+
+"Eden? Finally. I was starting to worry."
+
+"I'm fine, Mom. Just getting ready for work."
+
+"You sound tired. Are you eating enough? Sleeping?"
+
+The questions felt like stones thrown across an ocean—each one sinking before reaching him. "I'm eating. I'm sleeping."
+
+"Your father thinks we should visit next month. Maybe take you to dinner somewhere nice."
+
+"I'm busy with a product launch."
+
+Silence stretched between them, filled with everything neither had learned to say. His mother's breathing was audible—the particular rhythm of someone choosing words carefully.
+
+"Eden." Her voice softened. "Next week is the third anniversary of Grandma Rivka's passing. I thought... maybe we could light a candle together. Video call or something."
+
+He caught his reflection in the steamed bathroom mirror—stubbled, hollow-eyed, carrying his grandmother's weight around his eyes.
+
+"I have to go, Mom. I'll be late."
+
+"October 7th, Eden. Just... remember her. She would have wanted—"
+
+"I have to go."
+
+He hung up and immediately regretted it. The phone sat silent on the counter, accusatory as any mirror. October 7th. Three years since the woman who'd spoken to him in Yiddish and Hebrew died, taking with her the last thread connecting him to something older than his own understanding.
+
+The commute was a meditation in purposelessness. Subway car packed with people who looked exactly like him—educated, employed, empty. Everyone staring at screens, scrolling through lives more interesting than their own. An Orthodox family got on at 14th Street, the father's prayer fringes visible beneath his white shirt, the children switching between Hebrew and English like Eden had once done with his grandmother. Eden felt nothing looking at them, which surprised him. Shouldn't he feel something? Some connection to whatever they represented?
 
 His work badge read "Eden Stone, Senior Product Manager." No middle name. He'd stopped using "Israel" sometime in college, when introducing himself as "Eden Israel Stone" felt like carrying a flag for a country he'd never visited and a tradition he'd never understood. Now it was just Eden Stone, which sounded clean, professional, uncomplicated. Like a tech startup or a meditation app.
 
@@ -40,7 +68,11 @@ Everyone nodded. Someone said "Makes sense." Someone else said "Let's A/B test i
 
 By lunch, he'd answered forty-seven emails, attended two more meetings, and updated three different spreadsheets tracking progress on initiatives he couldn't remember caring about. His phone showed a text from his mother: "Haven't heard from you in weeks. Your grandmother would be disappointed."
 
-The words hit like ice water. He hadn't thought about his grandmother in months. Why now? Rivka Stone—who'd kept kosher until the day she died, who'd spoken to him in Yiddish and Hebrew when he was small, who'd died on October 7th three years ago and left him feeling like the last thread connecting him to something older than his own understanding had been cut.
+The words from his mother's text echoed in his head: "Your grandmother would be disappointed." October 7th. The anniversary approaching like a storm he could see coming but couldn't prepare for.
+
+Rivka Stone. He closed his eyes and could almost smell her kitchen—challah rising, chicken soup simmering, the lingering scent of Shabbat candles that she lit every Friday evening for seventy years. She'd died on October 7th three years ago, leaving him feeling like the last thread connecting him to something older than his own understanding had been cut.
+
+For a moment, standing in his sterile office, Eden felt something crack inside his chest. Not breaking—cracking. Like an egg before hatching, or ice on a frozen pond when spring comes too suddenly. The crack felt dangerous and necessary, filled with the possibility of drowning or breathing for the first time.
 
 He stared at his mother's text, thumb hovering over the keyboard, unable to type a response. What would he say? That he was fine? That work was good? That he was living the American dream their family had sacrificed everything to achieve? All true. All lies.
 
@@ -69,3 +101,13 @@ Maybe tonight, he thought. Maybe tonight he'd finally find out what she'd wanted
 The train pulled into his station at 7:18 PM. He noticed the time and wondered if numbers like that were supposed to mean something, if the universe was trying to tell him something he wasn't smart enough to understand.
 
 Eden Stone climbed the subway stairs into the Brooklyn evening, carrying his emptiness home like a briefcase full of work that would never be finished.
+
+His phone buzzed as he reached street level. 7:18 PM. A text from an unknown number:
+
+*"The light you're looking for is closer than you think. Thursday evening. Congregation Beth Shalom, 7th Avenue. Ask for Rabbi Levi. Your grandmother spoke of you often."*
+
+Eden stared at the message, reading it three times. Nobody had his number who would know about his grandmother. Nobody knew he was looking for anything, least of all light.
+
+But Rivka Stone had always said that when God wanted your attention, coincidences stopped being coincidental.
+
+Eden pocketed his phone and walked toward his apartment, but for the first time in months, his steps carried the weight of purpose instead of just the weight of forward motion.
