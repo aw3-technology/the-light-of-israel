@@ -2,122 +2,116 @@
 
 The Zohar fell open to a page about hidden light, and Ethan felt his grandmother's presence in the room.
 
-Rabbi Levi's study had become familiar territory over the past two weeks—walls of Hebrew texts, the faint smell of old paper and leather bindings, the menorah casting shadows that seemed to dance between worlds. But tonight felt different. The air itself seemed charged, as if the October darkness pressing against the windows held electricity waiting to discharge.
+Rabbi Levi's study—walls of Hebrew texts, leather bindings cracking with age, menorah shadows dancing. But tonight the October darkness pressing against the windows held electricity.
 
-"You asked me why you feel so broken," Rabbi Levi said, not looking up from the ancient text spread between them. The candlelight caught the silver in his beard, making him look both ancient and timeless. "Let me tell you about the Breaking."
+"You asked why you feel broken." Rabbi Levi squinted at the text, his finger following right to left. "Shevirat HaKelim. The Breaking of the Vessels."
 
-Ethan shifted in his chair. His product manager mind wanted a direct answer, a clearly defined problem statement with actionable solutions. Instead, the rabbi was offering mysticism. Again.
+Ethan shifted. His product manager mind wanted a problem statement, not mysticism. "Rabbi, I need practical—"
 
-"Rabbi, with respect, I need practical—"
+"You design products, yes? First you create space. Withdraw other features."
 
-"Practical?" Rabbi Levi's eyes met his, and Ethan saw something there—not judgment, but infinite patience mixed with urgency. "You think the cosmos operates on different principles than your soul? You think the divine has no user interface?"
+"Yes, but—"
 
-The unexpected tech reference made Ethan sit back. Rabbi Levi smiled, that gentle expression that suggested he knew more about Ethan's world than his traditional appearance implied.
+"Tzimtzum." The rabbi's arthritic fingers struggled with the heavy Zohar, pages stuck together with centuries. "Divine contraction. Without withdrawal, nothing could exist."
 
-"Tell me," the rabbi continued, "when you design a product, do you not first create space for it? Do you not withdraw other features to make room?"
+Ethan helped separate the pages, feeling the paper's texture—rough, almost alive. A margin note in faded brown ink caught his eye: "The breaking is the beginning."
 
-"I... yes, but—"
+"Like depression is withdrawal?"
 
-"Tzimtzum," Rabbi Levi said, writing the Hebrew letters in the air with his finger. "Divine contraction. The Ein Sof—the Infinite—had to withdraw to create space for existence. Without that withdrawal, that deliberate absence, nothing could be."
+"Or making space for something new."
 
-Ethan's mind caught on something. "Like depression is withdrawal?"
-
-"Or," Rabbi Levi said carefully, "making space for something new."
-
-The words hit Ethan unexpectedly. He'd been thinking of his depression as pure negativity, a black hole consuming everything. But withdrawal to create space? That was... different.
-
-Rabbi Levi turned the Zohar toward Ethan, pointing to a passage. The Hebrew letters seemed to pulse in the candlelight, and Ethan had the strange sensation that they were more real than the table they rested on.
-
-"But the vessels," the rabbi continued, his voice dropping to barely above a whisper, "the vessels meant to contain the divine light—they shattered. Shevirat HaKelim. The Breaking of the Vessels."
+The rabbi traced ten circles on the table, connecting them with shaky lines. His hand trembled—age or intensity, Ethan couldn't tell. "The vessels meant to contain divine light—they shattered."
 
 "They weren't strong enough?"
 
-"They were exactly as strong as they needed to be." Rabbi Levi's finger traced a pattern on the table—ten circles connected by lines. "The breaking wasn't failure, Ethan. It was the beginning of the real work. The beginning of repair."
+"They were exactly as strong as needed." Coffee stains marked the diagram from previous lessons. Real stains, real paper, not the pristine PDFs Ethan was used to. "Breaking wasn't failure. It was the beginning of repair."
 
-Ethan stared at the diagram. It looked like an organizational chart, or maybe a network topology. Ten nodes—sefirot, Rabbi Levi had called them in an earlier lesson. Divine emanations. But also, Ethan was beginning to understand, a map of consciousness itself.
+Ethan tried reading the Hebrew beneath the diagram. Mem looked like Nun. Bet looked like Kaf. The letters swam. "I can't even read this properly."
 
-"Your breaking isn't failure," Rabbi Levi repeated, and now his voice carried an intensity that made Ethan's chest tighten. "It's the beginning of repair. Tikkun."
+"Good. Knowing you don't know is the beginning."
 
-"But I don't feel broken in a good way. I feel..." Ethan struggled for words. "Empty. Pointless. Like I'm performing life without living it."
+"But I feel empty. Like I'm performing life without—"
 
-"Yes," Rabbi Levi said simply. "Exile. Galut. The sparks of divine light scattered among the broken shards, hidden in the shells of mundane existence. Tell me, when you scroll through your phone at 2 AM, what are you looking for?"
+"Every dating app swipe, every late-night scroll—you're looking for light." Rabbi Levi's knowing look made Ethan squirm. "But looking through exile, as exile."
 
-The question caught Ethan off guard. "I don't know. Distraction, I guess."
+The rabbi stood with effort, knees cracking, and pulled down a book that shed leather flakes. "Your grandmother knew this. Rivka Stone. She brought you here once."
 
-"No." The rabbi shook his head. "You're looking for light. For connection. For the sparks hidden in the digital shells. But you're looking in exile, through exile, as exile."
+"When?"
 
-Ethan felt something shift in his chest. It was true. Every dating app swipe, every social media refresh, every late-night Wikipedia dive—he was searching for something transcendent in the most mundane places.
+"You were seven."
 
-Rabbi Levi stood and walked to a shelf, pulling down a book that looked older than America itself. "Your grandmother knew this," he said quietly, and Ethan's breath caught.
+Memory flickered—dark wood, his grandmother's hand sticky with summer heat. "I don't remember."
 
-"You knew her?"
+"She understood broken vessels. Every survivor does." The rabbi opened to a page. The binding cracked. "Try reading this."
 
-"Rivka Stone. She came here once, years ago. Brought you, actually. You were seven."
+Ethan struggled with the Hebrew. "Or... Or Ha..."
 
-Memory flickered—a vague impression of dark wood, strange smells, his grandmother's hand warm in his. "I don't remember."
+"Or HaGanuz. Hidden Light." Rabbi Levi corrected his pronunciation. "Again."
 
-"She wanted you to know where to find this place. When you were ready." Rabbi Levi opened the book he'd retrieved. It was handwritten, margin notes in multiple hands across centuries. "She understood about broken vessels. Every survivor does."
+"Or HaGanuz."
 
-The rabbi pointed to a passage, and though Ethan's Hebrew was rusty at best, one phrase jumped out: Or HaGanuz. The Hidden Light.
+"Better. The primordial light, hidden in the Torah, in souls, in moments of truth. In you, Ethan Israel."
 
-"The primordial light of creation," Rabbi Levi explained. "Too powerful for this world, so it was hidden. The mystics ask: where? And the answer is: in the Torah, in the souls of the righteous, in moments of truth. In you, Ethan Israel."
+"In me?" Ethan laughed, bitter. "I eat bacon. I haven't been to synagogue since—"
 
-"In me?" Ethan's voice came out cracked. "Rabbi, I'm the least righteous person I know. I haven't been to synagogue in years. I eat bacon. I date non-Jewish women. I—"
-
-"You carry your grandmother's light," Rabbi Levi interrupted. "Her hidden spark, waiting. Your name itself contains the map. Ethan—strength. Israel—wrestling with God. Stone—even, the foundation stone of the Temple. Even your secular name is a mystical instruction manual."
-
-Ethan's product manager mind kicked in. "That seems like retroactive pattern matching. You could make any name mean something if you—"
-
-"Seven-eighteen," Rabbi Levi said quietly.
+"Seven-eighteen."
 
 Ethan froze. "What?"
 
-"The numerical value of your name in gematria. Ethan Israel Stone. Seven-one-eight. The time you've been waking up every morning for the past year. The amount your coffee costs at that Brooklyn cafe you favor. The apartment number of the woman you'll meet but haven't yet."
+"Your name's gematria. The time you wake up. Your coffee price at that Brooklyn cafe."
 
-"How do you—"
+"That's just... pattern matching. Confirmation bias."
 
-"I don't know these things," Rabbi Levi said. "But the universe keeps trying to tell you who you are. You just haven't been listening in the right frequency."
+"Maybe." The rabbi drew the Tree of Life again, this time his hand shook worse. "Keter, Chochmah, Binah..." He stopped, rubbed his eyes. "I'm forgetting the order. Chesed next or—no, that's right. Chesed, Gevurah, Tiferet..."
 
-The rabbi drew the Tree of Life again, this time more elaborately. Ten spheres connected by twenty-two paths. As he drew, he spoke their names: Keter, Chochmah, Binah, Chesed, Gevurah, Tiferet...
+Ethan watched the old man struggle, suddenly seeing him as human, fallible. "Can I help?"
 
-"As above, so below," he murmured. "This isn't just a map of divine emanation, Ethan. It's a map of your own consciousness. Your depression? It's not darkness—it's light in exile. Gevurah without Chesed. Judgment without mercy. Severity without loving-kindness."
+"This isn't just divine emanation. It's your consciousness. Your depression—Gevurah without Chesed. Judgment without mercy."
 
-Ethan stared at the diagram, and suddenly he could see it—his own psychology mapped onto cosmic architecture. His harsh self-criticism was Gevurah run rampant. His inability to accept love was Chesed blocked. His sense of purposelessness was Keter—crown, purpose, will—disconnected from the rest of the tree.
+"This sounds like metaphor."
 
-"This sounds like metaphor," he said weakly.
+"How else could the Infinite speak to a Brooklyn product manager?"
 
-"Metaphor is how the infinite speaks to the finite," Rabbi Levi replied. "How else could the Ein Sof communicate with a product manager from Brooklyn?"
+Despite himself, Ethan almost smiled. Then: "My grandmother knew all this?"
 
-Despite everything, Ethan found himself almost smiling. Then a thought struck him. "My grandmother knew this? All of this?"
+"She knew about gathering sparks in darkness. Especially there."
 
-"All survivors know about broken vessels," Rabbi Levi repeated. "About light scattered in darkness. About the necessity of gathering sparks even in the deepest exile. Especially there."
+Rabbi Levi wrote out Hebrew letters, slowly, painfully. His handwriting was barely legible. "Study this before sleep. Friday—light Shabbat candles."
 
-The rabbi assigned him a passage to study, writing out the Hebrew letters carefully. "Every night before you sleep. And this Friday—light Shabbat candles."
+"I don't know the prayers."
 
-"But I don't know how—"
+"So learn. Or don't. The light doesn't care about perfect pronunciation."
 
-"The light knows," Rabbi Levi said simply. "Trust the light."
+Walking home, Ethan felt different. Not fixed. Just... oriented. Like holding a map in a language he couldn't read but his hands remembered.
 
-Walking home through the October night, Ethan felt different. Not fixed—definitely not fixed. But... oriented. As if someone had handed him a map in a language he couldn't quite read yet, but that his soul recognized.
+In his apartment, behind old cables and dust: his grandmother's candlesticks. Tarnished green-black at the joints. One was dented. Real damage on real brass.
 
-In his apartment, he found himself standing before his closet. Behind old running shoes and boxes of electronic cables he'd never use again, wrapped in yellowing tissue paper: his grandmother's brass candlesticks.
+He set them next to his coffee maker. Sacred beside mundane.
 
-He held them up to the light. They were tarnished, neglected, but solid. Real in a way that nothing in his apartment felt real. He set them on his kitchen counter, next to his coffee maker and his laptop charger. Sacred and mundane side by side.
+That night, studying Rabbi Levi's barely legible Hebrew, he had to guess half the letters. The passage was about gathering sparks. Or maybe about lifting fallen things. His Hebrew wasn't good enough to be sure.
 
-He didn't light them—it wasn't Friday yet. But they sat there, waiting. Like memory. Like tradition. Like something about to return.
+He tried to light a practice candle. The match broke. The second match burned his fingers. The third lit but the candle wouldn't catch—the wick was buried in wax.
 
-That night, he studied the passage Rabbi Levi had given him. The Hebrew letters swam before his eyes at first, then slowly resolved into meaning. It was about gathering sparks. About lifting the fallen. About repair that begins with recognizing what's broken.
+He dug it out with a kitchen knife, getting wax under his fingernails. Finally, a flame. It guttered, almost died, then steadied.
 
-At 2 AM, instead of reaching for his phone, Ethan found himself at his window, looking out at the city lights. Each one a spark. Each one a soul. Each one in exile, waiting to be gathered home.
+At 2 AM, instead of his phone, he stood at his window. Each city light a spark. Each one in exile.
 
 He texted Rabbi Levi: "I think I'm beginning to understand."
 
-The response came immediately, as if the rabbi had been waiting: "Understanding is the beginning. Next comes the work."
+No response. The rabbi was probably asleep, or couldn't find his phone, or had forgotten to charge it. Human limitations. Real world.
 
-Ethan stared at the candlesticks on his counter. Friday was two days away. For the first time in years, he found himself looking forward to sunset. Not as ending but as transformation. Not as darkness but as the moment when hidden light becomes revealed.
+Friday was two days away. He googled "Shabbat candle blessing." Fifteen different versions came up. Which was right? Did it matter?
 
-His grandmother's voice echoed in memory: "To remember. To not forget."
+His grandmother's voice in memory: "To remember. To not forget."
 
-But now he understood—it wasn't just about memory. It was about gathering light. His apartment, always so empty, felt suddenly inhabited. Not by ghosts but by possibility.
+But what exactly was he supposed to remember? The prayers? The traditions? Her?
 
-The sparks were everywhere, waiting. And maybe, just maybe, he was ready to start gathering them.
+The candlesticks sat on his counter, waiting. One still had old wax in it—his grandmother's? Someone else's? How many Friday nights had they held light?
+
+He scraped out the old wax, his fingernail blackening. Physical work. Actual cleaning. Not metaphorical. Not mystical. Just brass and wax and the effort to make space for new light.
+
+The sparks were everywhere, maybe. And maybe he was ready to start gathering them.
+
+Or maybe he'd just light candles badly and feel foolish.
+
+Either way, Friday was coming.
