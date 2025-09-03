@@ -48,24 +48,23 @@ Events that happened before the story begins but affect it:
 - Encounters homeless man: "Israel! Wake up!"
 - Receives mysterious text from Rabbi Levi at 7:18 PM
 
-### Chapter 2: The Dating App Carousel - September 27-28, 2023
-**Wednesday Evening**
-- Failed dating app date #1
+### Chapter 2: The Dating App Carousel - Tuesday evening, September 26, 2023
+**Tuesday Evening**
+- Failed dating app date with Rachel
 - Returns home more empty than before
-
-**Thursday**
-- Another shallow connection attempt
 - Growing awareness of spiritual void
 
-### Chapter 3: Slack and Spirits - Thursday, September 28, 2023
-**Evening**
+### Chapter 3: Slack and Spirits - Wednesday, September 27, 2023
+**Afternoon/Evening**
+- Work meeting in SoHo
 - Drinks with progressive friends in Williamsburg
 - Political discussions masking inner void
-- Feels disconnected from group identity
+- Aaron asks to meet for coffee tomorrow
 
-### Chapter 4: Family Distance - Friday, September 29, 2023
-**Morning/Afternoon**
-- Phone call with secular parents about Rosh Hashanah
+### Chapter 4: Family Distance - Thursday, September 28, 2023
+**Evening**
+- Phone call with secular parents
+- Discussion about grandmother's yahrzeit (in 2 days)
 - Parents in suburbs, discussing visiting
 - Emotional distance from family apparent
 

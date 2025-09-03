@@ -2,7 +2,7 @@
 
 His mother called three times before Ethan answered, and even then, he almost let it go to voicemail.
 
-Friday evening, September 29th, his apartment already dark though it was only 7:18 PM—chai reversed, life backwards, everything backwards including this weekly performance of familial connection that connected nothing. The phone vibrated against the coffee table where he'd placed it face down after getting home from work, each buzz a small earthquake of obligation he couldn't escape.
+Thursday evening, September 28th, his apartment already dark though it was only 7:18 PM—chai reversed, life backwards, everything backwards including this weekly performance of familial connection that connected nothing. The phone vibrated against the coffee table where he'd placed it face down after getting home from work, each buzz a small earthquake of obligation he couldn't escape.
 
 First call: ignored while he microwaved leftover Thai food that had been leftover for three days.
 
@@ -160,7 +160,7 @@ Of course she did. Even memorial had been optimized, grief made efficient, tradi
 
 He closed his eyes and tried to remember his grandmother's face, but all he could see was the contact photo from his mother's call—everyone arranged, everyone smiling, everyone pretending they were more connected than they were. Through the wall, the Hebrew music continued, rising and falling like breath, like prayer, like something that knew how to mourn properly, how to remember properly, how to be properly Jewish instead of whatever the Stones were—successful, assimilated, and absolutely lost.
 
-Tomorrow was Saturday, September 30th, the yahrzeit, the time of year, the anniversary of the last person in their family who actually knew what that meant. He should light a candle. His mother had ordered one from Amazon. It would arrive in two days, which would be too late, which was perfect, which was exactly how the Stones did everything—with the best intentions, arriving just after the moment had passed.
+The day after tomorrow was Saturday, September 30th, the yahrzeit, the time of year, the anniversary of the last person in their family who actually knew what that meant. He should light a candle. His mother had ordered one from Amazon. It would arrive in two days, which would be too late, which was perfect, which was exactly how the Stones did everything—with the best intentions, arriving just after the moment had passed.
 
 The music through the wall stopped abruptly, mid-phrase, like someone had suddenly remembered they weren't supposed to be playing it, weren't supposed to be feeling it, weren't supposed to be Jewish in a way that made sound, that took up space, that refused to assimilate into silence.
 
