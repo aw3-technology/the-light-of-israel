@@ -42,7 +42,7 @@ He caught his reflection in the steamed bathroom mirror—stubbled, hollow-eyed,
 
 "I have to go, Mom. I'll be late."
 
-"September 30th, Eden. Just... remember her. She would have wanted—"
+"September 27th, Eden. Just... remember her. She would have wanted—"
 
 "I have to go."
 
