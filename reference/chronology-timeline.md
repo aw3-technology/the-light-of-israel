@@ -30,19 +30,23 @@
   - Mysterious text from Rabbi Levi at 7:18 PM
 
 #### **Chapter 2: The Dating App Carousel**
-- **Date**: Wednesday-Thursday, September 27-28, 2023
-- **Events**: Failed dating app dates, shallow connections
-- **Note**: Building spiritual emptiness
+- **Date**: Tuesday evening, September 26, 2023
+- **Events**: Failed dating app date with Rachel, shallow connection
+- **Note**: Building spiritual emptiness, same day as Chapter 1
 
 #### **Chapter 3: Slack and Spirits**
-- **Date**: Thursday evening, September 28, 2023
-- **Events**: Drinks with progressive friends in Williamsburg
+- **Date**: Wednesday, September 27, 2023
+- **Events**: 
+  - Work meeting in SoHo afternoon
+  - Drinks with progressive friends in Williamsburg evening
+  - Aaron asks to meet for coffee
 - **Note**: Political discussions masking inner void
 
 #### **Chapter 4: Family Distance**
-- **Date**: Friday, September 29, 2023
+- **Date**: Thursday evening, September 28, 2023
 - **Events**: 
-  - Phone call with secular parents about Rosh Hashanah
+  - Phone call with secular parents
+  - Discussion about grandmother's yahrzeit (September 30)
   - Parents in suburbs, discussing visiting
 
 #### **Chapter 5: Flickers of Memory**
@@ -52,6 +56,7 @@
   - Ethan alone on yahrzeit day
   - Triggered memories of Hebrew school, bar mitzvah
   - Finds grandmother's box in closet
+- **Note**: Friday Sept 29 would include coffee with Aaron (between chapters)
 
 #### **Chapter 6: The Night Before**
 - **Date**: Friday night, October 6, 2023

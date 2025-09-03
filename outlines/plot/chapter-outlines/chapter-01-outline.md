@@ -11,7 +11,7 @@ Ethan Israel Stone wakes to another day of depression in Brooklyn, going through
 ## Setting
 - **Primary Location**: Ethan's Brooklyn apartment (morning)
 - **Secondary Location**: Commute to SoHo office
-- **Time**: Late September 2023, weekday morning
+- **Time**: Tuesday, September 26, 2023, morning
 - **Atmosphere**: Gray, routine, suffocating normalcy
 
 ## POV
