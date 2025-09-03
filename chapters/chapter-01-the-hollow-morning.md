@@ -36,17 +36,17 @@ The phone died at exactly eight minutes and forty-one seconds into the call. Ede
 
 Silence stretched between them, filled with everything neither had learned to say. His mother's breathing was audible—the particular rhythm of someone choosing words carefully.
 
-"Eden." Her voice softened. "It's been almost a year since Grandma Rivka passed. The yahrzeit is coming up next month. I thought... maybe we could light a candle together. Video call or something."
+"Eden." Her voice softened. "It's been almost a year since Grandma Rivka passed. The yahrzeit is next week. I thought... maybe we could light a candle together. Video call or something."
 
 He caught his reflection in the steamed bathroom mirror—stubbled, hollow-eyed, carrying his grandmother's weight around his eyes.
 
 "I have to go, Mom. I'll be late."
 
-"October 7th, Eden. Just... remember her. She would have wanted—"
+"September 30th, Eden. Just... remember her. She would have wanted—"
 
 "I have to go."
 
-He hung up and immediately regretted it. The phone sat silent on the counter, accusatory as any mirror. October 7th. One year since the woman who'd spoken to him in Yiddish and Hebrew died, taking with her the last thread connecting him to something older than his own understanding.
+He hung up and immediately regretted it. The phone sat silent on the counter, accusatory as any mirror. September 30th. Almost one year since the woman who'd spoken to him in Yiddish and Hebrew died, taking with her the last thread connecting him to something older than his own understanding.
 
 The commute was a meditation in purposelessness. Subway car packed with people who looked exactly like him—educated, employed, empty. Everyone staring at screens, scrolling through headlines about tensions in the Middle East, Gaza crisis entering day thirty-six, news Eden scrolled past without absorbing. An Orthodox family got on at 14th Street, the father's prayer fringes visible beneath his white shirt, the children switching between Hebrew and English like Eden had once done with his grandmother. Eden felt nothing looking at them, which surprised him. Shouldn't he feel something? Some connection to whatever they represented?
 
@@ -78,9 +78,9 @@ Everyone nodded. Someone said "Makes sense." Someone else said "Let's A/B test i
 
 By lunch, he'd answered fifty-one emails, attended two more meetings, and updated three different spreadsheets tracking progress on initiatives he couldn't remember caring about. Every number felt arbitrary, meaningless—unlike the numbers his grandmother had whispered in Hebrew during her evening prayers, numbers that seemed to mean something beyond themselves. His phone showed a text from his mother: "Haven't heard from you in weeks. Your grandmother would be disappointed."
 
-The words from his mother's text echoed in his head: "Your grandmother would be disappointed." October 7th. The anniversary approaching like a storm he could see coming but couldn't prepare for.
+The words from his mother's text echoed in his head: "Your grandmother would be disappointed." September 30th. The anniversary approaching like a storm he could see coming but couldn't prepare for.
 
-Rivka Stone. He closed his eyes and could almost smell her kitchen—challah rising, chicken soup simmering, the lingering scent of Shabbat candles that she lit every Friday evening for seventy years. She'd died last October 7th, leaving him feeling like the last thread connecting him to something older than his own understanding had been cut.
+Rivka Stone. He closed his eyes and could almost smell her kitchen—challah rising, chicken soup simmering, the lingering scent of Shabbat candles that she lit every Friday evening for seventy years. She'd died last September 30th, leaving him feeling like the last thread connecting him to something older than his own understanding had been cut.
 
 For a moment, standing in his sterile office, Eden felt something crack inside his chest. Not breaking—cracking. Like an egg before hatching, or ice on a frozen pond when spring comes too suddenly. The crack felt dangerous and necessary, filled with the possibility of drowning or breathing for the first time.
 
@@ -90,7 +90,7 @@ The afternoon dissolved into more meetings, more emails, more optimizations of s
 
 Eden sat at his desk after everyone else had left, laptop still open, cursor blinking in an empty email compose window. Outside, the sun was setting behind the glass canyon of SoHo, casting long shadows that made the city look momentarily beautiful, like something worth living in rather than just enduring.
 
-He thought about calling his mother back. About the voicemails he hadn't listened to. About the grandmother whose yahrzeit was coming up—October 7th, which he knew because it was written in his calendar but felt like information about a stranger's life.
+He thought about calling his mother back. About the voicemails he hadn't listened to. About the grandmother whose yahrzeit was coming up—September 30th, which he knew because it was written in his calendar but felt like information about a stranger's life.
 
 Instead, he closed his laptop and gathered his things. The elevator descended from the fourteenth floor like sinking through water, mirrored walls reflecting him from multiple angles until he looked like an infinity of identical tired men in identical expensive clothes carrying identical leather bags home to identical empty apartments. Each floor counted down felt like a stone dropping into an endless well.
 
@@ -100,9 +100,9 @@ What was the point?
 
 The train pulled into the station with a rush of hot air and screeching metal. Eden stepped inside, found a seat, and closed his eyes as Manhattan receded behind him. Tomorrow would be Wednesday. The metrics would still need optimizing. The user journey would still need smoothing. The meetings would still need attending.
 
-But tonight, for reasons he couldn't explain, he found himself googling "October 7" on his phone. Just the date. Just to see what came up. Just to see if the world had anything to say about the day his grandmother died, the day that marked the beginning of his forgetting who he was supposed to be.
+But tonight, for reasons he couldn't explain, he found himself googling "September 30" on his phone. Just the date. Just to see what came up. Just to see if the world had anything to say about the day his grandmother died, the day that marked the beginning of his forgetting who he was supposed to be.
 
-The search results were mostly news about other October 7ths, other years, other people's significant dates. Nothing about Rivka Stone, who had lit candles every Friday evening for seventy years and spoke to God in a language Eden had never learned to read.
+The search results were mostly news about other September 30ths, other years, other people's significant dates. Nothing about Rivka Stone, who had lit candles every Friday evening for seventy years and spoke to God in a language Eden had never learned to read.
 
 He put his phone away and watched Brooklyn approach through the subway car's scratched windows. Somewhere in his apartment, in a closet he rarely opened, was a box of his grandmother's things his parents had given him after the funeral. He'd never looked through it. Never felt ready to discover what she'd thought was worth keeping.
 
