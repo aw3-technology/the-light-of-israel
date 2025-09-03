@@ -34,7 +34,9 @@ A hand materialized holding a yahrzeit candle—thick glass, the kind you buy at
 
 She pressed something into his hand—a photocopied sheet with Hebrew songs transliterated into English. The paper was still warm from the copy shop. Someone near the fountain had started "Hatikvah," but a younger voice interrupted with "Od Yavo Shalom Aleinu," and for a moment the two melodies tangled, competed, before settling into an uneasy harmony.
 
-"Acheinu kol beit yisrael." The prayer for captives. An older man with a Zabar's tote bag was leading it, his voice cracking on the high notes. Behind him, someone muttered that this wasn't the right prayer, that they should be saying Kaddish, but the man kept going, stubborn or deaf or both.
+"Acheinu kol beit yisrael." The prayer for captives. An older man with a Zabar's tote bag was leading it, his voice cracking on the high notes. Behind him, someone muttered that this wasn't the right prayer, but the man kept going.
+
+Ethan found himself humming along, wordless but in rhythm, his throat tight with unfamiliar melody that felt like remembering.
 
 The speeches began late. Someone had brought a portable PA system that kept cutting out, making the speakers sound like they were broadcasting from underground. The mic cord was patched with silver duct tape that caught the candlelight.
 
@@ -52,15 +54,11 @@ The counter-protesters had been there all along, Ethan realized—he just hadn't
 
 Half the Jewish crowd turned to look. The other half deliberately didn't. A young woman in a Hebrew University sweatshirt shouted: "Today? Really? TODAY?"
 
-"They have a right to protest," said a woman with wire-rimmed glasses.
+"They have a right to protest," said someone.
 
 "Not today they don't."
 
-"Our people are still missing!"
-
-"And Palestinian bodies?"
-
-The argument rippled through the crowd, fracturing what had felt unified. A man stepped away from the vigil toward the protesters. Others pulled him back, a brief scuffle of elbows and harsh whispers. Someone called him a traitor. Someone else called the first someone a fascist. The word hung in the air like a struck match.
+The argument rippled through the crowd, fracturing what had felt unified. A man stepped toward the protesters. Others pulled him back. Someone called him a traitor. Someone else called the first someone a fascist.
 
 The rabbi's voice cracked through the PA system: "Please. Please. We're losing each other here." But his words were drowned out by competing chants—"Am Yisrael Chai" from one side, "Free Palestine" from the other, and in the middle, people just trying to say Kaddish for the dead who deserved better than becoming political props.
 
@@ -70,11 +68,11 @@ An elderly man with numbers tattooed on his forearm grabbed Ethan's elbow: "You 
 
 "Is that supposed to be comforting?"
 
-"Comfort?" The man laughed, bitter and fond simultaneously. "Who promised comfort? We argue because we care. Because we're alive. The dead—" he gestured toward the memorial photos someone had taped to a lamp post, "they don't get to argue anymore."
+"Comfort?" The man laughed, bitter and fond. "Who promised comfort? We argue because we care. The dead don't get to argue anymore."
 
 "I don't even know what I believe."
 
-"So believe in confusion. It's more honest than certainty." The man's grip tightened. "But show up confused. Don't stay home with your confusion. That's the only sin."
+"Good. Believe in that. Just don't stay home with it." His grip was surprisingly strong. "That's when it becomes a problem."
 
 The crowd was dissolving into factions—those heading to a shiva, those joining the protesters, those simply going home. Ethan stood between the streams of people, catching fragments: "...my therapist says..." "...never should have come..." "...what would the Rebbe say..." "...fucking Brooklyn gentrifiers..." The sacred and profane tangled together, inseparable.
 
@@ -86,9 +84,9 @@ A Parks Department employee in a reflective vest was sweeping up programs, his b
 
 The walk to the subway—past the closed falafel shop with its faded Hebrew lettering, past the NYU dorm where someone had already hung an Israeli flag from their window, past a homeless man who called out "Shalom aleichem" either in greeting or mockery, impossible to tell. His reflection in the bodega window showed wax on his sleeve, ash on his collar.
 
-He walked the Brooklyn Bridge instead of taking the train—needed the wind off the East River, the way it carried salt and diesel and something else, something ancient. The cables hummed above him at a frequency he felt in his molars. A cyclist passed, their spoke lights spelling out words in the darkness: NEVER AGAIN IS NOW. The Manhattan skyline looked like a menorah, each building a flame against the dark.
+He walked the Brooklyn Bridge instead of taking the train—needed the wind off the East River, the way it carried salt and diesel and something ancient. The cables hummed above him at a frequency he felt in his molars.
 
-His apartment building's door required three tries with the key—his hands were shaking. The hallway smelled like his neighbor's curry, usually comforting but tonight too alive, too present. On the second floor landing, Mrs. Chen's door was cracked open. She watched him pass, said nothing, but pressed her fingers to her lips then to her mezuzah—the one she'd insisted on installing despite being Buddhist.
+His apartment building's door required three tries with the key—his hands were shaking. The hallway smelled like his neighbor's curry, usually comforting but tonight too present.
 
 A piece of paper taped to his door. Not white—yellowed, like it had been saved from something else. His name in Hebrew letters, but also something else in the corner—a phone number with a 718 area code. Brooklyn. The tape was the medical kind, the kind his grandmother used to use for everything.
 
@@ -98,20 +96,14 @@ Inside, pencil marks—not pen, pencil, like someone wasn't sure they should be 
 
 Starting what? The paper smelled faintly of cigarettes and brisket. Real. Specific. Not mystical—just someone's grandmother or grandfather who'd been watching, waiting, knowing that crisis makes Jews remember they're Jews.
 
-His apartment was exactly as he'd left it except for the candlesticks—his grandmother's candlesticks that he used for holding mail. Tonight they looked like what they were: ritual objects waiting for Friday night, for hands that knew the motions, for words that turned gesture into meaning. One had a thumbprint in the tarnish. His? His grandmother's? Both?
+A piece of paper taped to his door. Not white—yellowed, like it had been saved from something else. His name in Hebrew letters, but also something else in the corner—a phone number with a 718 area code. Brooklyn. The tape was the medical kind, the kind his grandmother used to use for everything.
 
-Forty-three missed calls from his mother. The voicemails progressed from worried to angry to worried again. The last one: "Ethan, I saw you on TV. At the vigil. You looked... you looked like your grandfather at that age. Call me. No—actually, don't call. Come for Shabbos. This Friday. I'll make brisket. Don't argue."
+Inside, pencil marks—not pen, pencil, like someone wasn't sure they should be writing this. Hebrew he couldn't read, but also a map. Hand-drawn. His block, his building, but also other marks—six other buildings circled. At the bottom, in shaky English:
 
-He googled the phone number from the note. Nothing. Then the address from the hand-drawn map. A walk-up in Crown Heights that used to house something called "The Workers Circle."
+"Thursday 7pm. We're starting again."
 
-Used to.
+Starting what? The paper smelled faintly of cigarettes and brisket. Real. Specific. Not mystical—just someone's grandmother or grandfather who'd been watching, waiting.
 
-Past tense.
+His apartment was exactly as he'd left it except for the candlesticks—his grandmother's candlesticks that he used for holding mail. Tonight they looked like what they were: ritual objects waiting.
 
-But the note said "starting again."
-
-His laptop screen reflected his face blue-lit and strange. Behind him, the candlesticks threw shadows on the wall that looked like Hebrew letters, or like flames, or like both, or like neither, depending on how tired his eyes were, how ready he was to see what had always been there, waiting.
-
-Thursday was in four days. 
-
-The note lay on his coffee table next to his work laptop, his normal life and this new thing side by side, not fitting together yet but occupying the same space, the same table, the same moment that felt like an ending and a beginning and mostly just like 2 AM in Brooklyn with sirens in the distance and a decision to make that had maybe already been made, somewhere between the park and the bridge and this door with its message that someone—someone specific, someone real, someone with shaky handwriting and a Brooklyn phone number—thought he needed to receive.
+Thursday was in four days.

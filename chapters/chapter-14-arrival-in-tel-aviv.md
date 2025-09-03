@@ -94,11 +94,11 @@ He touched the water—warmer than the Atlantic in July. The Mediterranean didn'
 
 Was he crying? His face was wet—sea spray or sweat or the humidity that made Tel Aviv feel like breathing through grief.
 
-"You came for October 7th solidarity?"
+"You came after October 7th?"
 
-"I don't know what I came for."
+"I'm figuring it out."
 
-"Nobody knows why they come. But everyone knows when they arrive. You've arrived?"
+"Nobody knows why they come. But you can tell when someone's arrived. You arriving?"
 
 "I'm arriving."
 
@@ -110,32 +110,40 @@ Breakfast at Café Bucke—plastic chairs, fluorescent lights, the owner's grand
 
 "Yes."
 
-"But Jewish American. After October 7th. So not really American anymore, right? Now you're ours."
+"Jewish American, yeah? After October 7th..." He shrugged, wiped down glasses. "Different now. You feel it?"
 
-Ours. The word hung like humidity.
+Ethan nodded without thinking.
 
 The shakshuka came in a scratched skillet. Coffee in a glass, Turkish style with milk foam—the Israeli inability to choose between traditions.
 
+Ethan pointed at the Hebrew menu, attempted the words: "Ani rotzeh... shakshuka?"
+
+The waiter grinned. "Your Hebrew—terrible. But you tried. That's something."
+
 "How long you stay?"
 
-"I don't know."
+"Maybe a week? Not sure yet."
 
-"Nobody knows. Since October 7th, nobody makes plans past tomorrow. But tomorrow—see Jaffa. Old Jaffa, not the port. There's a Yemenite synagogue that survived everything. My grandfather used to say the whale remembers Jonah there."
+"Nobody makes plans past tomorrow now. But tomorrow—Abu Hassan's hummus in Jaffa. Best in the country. Cash only."
 
 Back in room 613, Ethan sat on his balcony as sun descended toward the Mediterranean. The muezzin's call from Jaffa, 5:47 PM. Church bells. Then the Shabbat siren. Sacred and profane coexisting, exhausted into strange truce.
 
-His notebook already filled with copied Hebrew letters. קפה הפוך—upside-down coffee.
+That afternoon, he bought Hebrew flashcards from a kiosk, practiced basic words while walking. שלום. תודה. סליחה. Hello. Thank you. Excuse me. His pronunciation was terrible, but he kept trying.
 
 The city lights flickered on—Dizengoff neon, Rothschild cafes, bars on Nahalat Binyamin already thumping. Everyone pretending Tuesday's rocket hadn't happened.
 
-Tomorrow, Jaffa. Tomorrow, the Yemenite synagogue. Tomorrow, Rabbi Levi's contact—the number written on hotel stationary.
+Tomorrow, Jaffa. Tomorrow, Rabbi Levi's contact—the number written on hotel stationary.
 
 Tonight, Ethan Israel Stone sat on a balcony in Tel Aviv, not fleeing from the wrestling. The Mediterranean holding light like memory. Tomorrow was possible because Jews had been practicing tomorrow for three thousand years.
 
 Below, delivery bikes ran red lights. Someone's grandmother watered geraniums. A cat colony gathered.
 
-He pulled out his phone, opened the message to his mother he'd been drafting for hours:
+He pulled out his phone, started typing to his mother: "Made it to Tel Aviv. It's..." He deleted that, tried again: "I'm here. More complicated than expected." Deleted that too.
 
-"I arrived."
+Finally: "I arrived."
+
+His thumb hovered over Send. The message sat there, cursor blinking.
+
+Outside his window, Tel Aviv's Thursday night becoming Friday. The Shabbat siren would sound soon.
 
 Send.

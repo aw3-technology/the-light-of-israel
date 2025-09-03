@@ -68,33 +68,27 @@ One note, pencil-faint: "For Eiden Israel when he is ready."
 
 "She knew I'd come back?"
 
-"She hoped." His mother's voice caught. "Even after everything. The Christmas tree you insisted on. The soccer games on Saturdays. The way you told everyone at college you were 'nothing.' She hoped."
+"She hoped." His mother's voice caught. "Even after the Christmas tree. The soccer on Saturdays. After you told people you were 'nothing.' She hoped."
 
-—
-
-*After the party. Guests leaving. His grandmother by the coat check, pressing the prayer book into his hands. He reeked of weed, eyes red, the rabbi pretending not to notice.*
+*After the party, his grandmother pressed the prayer book into his hands by the coat check. He reeked of weed, eyes red.*
 
 *"I don't read Hebrew, Grandma."*
 
 *"You will."*
 
-*"I'm done with this stuff."*
-
 *Her hand on his cheek, gentle despite everything. "No, bubbeleh. You're beginning."*
 
-*He'd shoved it under coats in the car. Josh had gotten an Xbox. Tyler, cash. The prayer book marked him as different.*
+*He'd shoved it under coats in the car. The prayer book marked him as different.*
 
-Now, Google Translate open, he tried to decipher her notes. One phrase recurring: "Dos pintele yid."
+Now, Google Translate open, he tried to decipher her notes. One phrase recurring: "Dos pintele yid." The Jewish spark that couldn't be extinguished.
 
-The Jewish spark that couldn't be extinguished.
-
-She'd been tending that spark while he extinguished everything else. While his parents scheduled Hebrew school around soccer. While he told girlfriends he was "culturally Jewish"—which meant nothing, which meant "don't ask."
+She'd been tending that spark while he extinguished everything else.
 
 His phone buzzed. Rabbi Levi: "Your portion was Lech-lecha, wasn't it?"
 
 "How did you know?"
 
-"It's always Lech-lecha for the ones who come back. Leave everything to find everything. Abraham's journey. Yours too."
+"It's always Lech-lecha for the ones who come back. Abraham's journey. Yours too."
 
 Outside: "Jews for Justice" on cardboard. "Never Forget" on another sign. The city holding all its contradictions at once.
 
@@ -104,23 +98,17 @@ Outside: "Jews for Justice" on cardboard. "Never Forget" on another sign. The ci
 
 —
 
-*The reception. His grandmother alone at a table while he and his friends requested Eminem from the DJ. She'd walked to him slowly. Her good dress. Her special shoes.*
+*The reception. His grandmother walked to him slowly, good dress, special shoes.*
 
 *"Dance with me, Eiden Israel?"*
-
-*"Maybe later, Grandma."*
 
 *Josh laughing. "Eiden Israel? What kind of name is that?"*
 
 *"It's nothing. Just some Hebrew thing."*
 
-*His grandmother's face. The quiet devastation.*
+*His grandmother's face. The quiet devastation. "I understand," she'd said. In English.*
 
-*"I understand," she'd said.*
-
-*In English.*
-
-*She always spoke to him in Yiddish or Hebrew, trying to keep the languages alive in his mouth. But that night, after that betrayal: English.*
+*She always spoke to him in Yiddish or Hebrew. But that night, after that betrayal: English.*
 
 She'd died two years later. He'd been at college, missing her calls, too busy with normal American life to return them.
 
@@ -130,25 +118,13 @@ He hadn't.
 
 Not for twenty years.
 
-Outside, the protesters passed. Inside, Ethan sat surrounded by evidence of a heritage he'd thrown away with both hands. The prayer book open to a page his grandmother had marked: the Shema.
+Outside, the protesters passed. Inside, Ethan traced his grandmother's handwriting with his finger, following Hebrew letters he was finally beginning to recognize. The prayer book open to a page she'd marked: the Shema.
 
-Hear, O Israel.
+"Shema Yisrael," he whispered, the words foreign on his tongue but somehow familiar in his bones.
 
-But he'd made himself deaf.
-
-On purpose.
-
-With determination.
+Hear, O Israel. But he'd made himself deaf. On purpose.
 
 His phone lit up—Jake about tomorrow's security situation. Ethan let it ring.
-
-But that was the thing—the past and present weren't separate. His grandmother knew that.
-
-Every Shabbat candle was against returning darkness.
-
-Every prayer was resistance.
-
-Every remembered word, victory.
 
 He picked up the photo again. Thirteen-year-old Ethan, terrified and faking it. Thirty-three-year-old Ethan, terrified and finally admitting it.
 
@@ -158,16 +134,12 @@ Go forth.
 
 Twenty years late, but the command still stood.
 
-His grandmother had known he'd come back. Not hoped—known.
+Had his grandmother known he'd come back? Or had she just hoped, desperately, against twenty years of evidence?
 
-The way you know morning will come.
-
-The way you know the spark survives, even under ashes twenty years deep.
+The prayer book lay open. Her notes like breadcrumbs through forest—but breadcrumbs could be eaten by birds, could disappear.
 
 Tomorrow: security threats, client concerns.
 
 Tonight: the boy he'd been, the man he'd refused to become, the possibility of who he might still be.
 
-The prayer book lay open. His grandmother's notes like breadcrumbs through forest.
-
-Marking the path home.
+The path home, if it existed at all.

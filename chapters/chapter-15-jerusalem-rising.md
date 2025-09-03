@@ -1,8 +1,8 @@
 # Chapter 15: Jerusalem Rising
 
-The sherut climbed through the Judean Hills like a prayer ascending, and Ethan pressed his forehead against the window, watching Tel Aviv's secular sprawl give way to something older, heavier, inevitable.
+The sherut climbed through the Judean Hills, and Ethan pressed his forehead against the window, watching Tel Aviv's sprawl give way to something older.
 
-Friday afternoon, the shared taxi packed with last-minute pilgrims—soldiers heading home for Shabbat, their rifles casual as backpacks; Orthodox families with children bouncing between Hebrew and English; a woman in designer sunglasses texting beside him, her phone screen reflected in the window—heart emojis and Hebrew mixing like modern hieroglyphs against ancient stone. The driver played Mizrahi music that competed with someone's Bluetooth speaker leaking American pop, the cacophony somehow perfect, somehow exactly what ascending to Jerusalem should sound like in 2023.
+Friday afternoon. Soldiers heading home for Shabbat, rifles casual as backpacks. Orthodox families, children bouncing between Hebrew and English. A woman texting beside him, Hebrew mixing with heart emojis on her screen. The driver's Mizrahi music competed with someone's Bluetooth speaker—American pop against ancient stone. The cacophony felt right for 2023 Jerusalem.
 
 "First time?" The soldier across from him asked in accented English, having marked him immediately as foreign, as searching, as lost.
 
@@ -10,13 +10,13 @@ Friday afternoon, the shared taxi packed with last-minute pilgrims—soldiers he
 
 "You'll feel it when we enter. Everyone feels it the first time."
 
-The road sign appeared like prophecy: ירושלים JERUSALEM 10 KM, and something shifted in Ethan's chest, tectonic plates of identity grinding against each other. The air changed—thinner but somehow denser, charged with three thousand years of devotion and destruction, every molecule heavy with history no one could escape.
+The road sign: ירושלים JERUSALEM 10 KM. Something shifted in Ethan's chest—panic or recognition, he couldn't tell. The air felt different. Thinner. His breathing came shallow.
 
 Then the city rose before them.
 
 Jerusalem stone everywhere—that particular shade of limestone that existed nowhere else, golden-white in the afternoon sun, every building by law wrapped in the same ancient color, as if the entire city was carved from a single mountain of memory. A plastic bag caught on razor wire fluttered like a flag of surrender. The walls of the Old City appeared and disappeared between modern apartments and ancient graves, between shopping centers and churches, between what was and what is and what might be. Traffic backed up near a checkpoint, drivers honking with ancient impatience.
 
-The sherut deposited him near Jaffa Gate—easier for tourists, the driver said. The moment his feet touched Jerusalem stone, he understood what the soldier meant. The ground itself felt different—not just pavement but palimpsest, every footstep pressing down through layers of conquest and return, Roman roads over Herodian stones over David's city over Jebusite foundations, all of it somehow present at once.
+The sherut stopped near Jaffa Gate. "Easier for tourists," the driver said. The moment Ethan's feet touched Jerusalem stone, he understood. The ground felt different—every step pressing through layers of history. His grandmother had walked stones like these, somewhere.
 
 He entered through the massive Ottoman portal, its stones worn smooth by millions of pilgrims, traders, conquerors, seekers. A kid in a Messi jersey kicked a crushed Coke can against walls that had seen the Crusades. Inside the Old City, time collapsed. An Armenian priest argued with an Arab merchant over the price of SIM cards while Israeli soldiers bought ice cream from a Palestinian vendor, their M16s slung over shoulders like students' bookbags. Church bells competed with the muezzin's call to prayer competed with someone's ringtone playing "Hava Nagila," the whole thing impossible, impossible that it existed, impossible that it worked, impossible that he was here. The smell of shawarma mixed with incense, both fighting the diesel fumes from tour buses.
 
@@ -28,7 +28,7 @@ He was lost within minutes.
 
 She replied in rapid Hebrew, pointing up stairs he hadn't noticed, through an arch he couldn't see until she showed him, the Old City revealing itself only to those who already knew its secrets.
 
-The apartment building rose like a medieval tower modernized just enough for electricity, the stairs worn into curves by centuries of climbing. On the third landing, a mezuzah tilted at precisely the angle of uncertainty, and Ethan found himself reaching toward it, then stopping, hand suspended between touching and not touching, between belonging and performing, between who he was and who he might be.
+The apartment building rose like a medieval tower modernized just enough for electricity, the stairs worn into curves by centuries of climbing. Third landing. A mezuzah tilted on the doorframe. Ethan reached toward it, then stopped. His hand hovered, uncertain. What if someone saw him? What if they asked questions he couldn't answer? His palm sweated.
 
 The door opened before he could knock.
 
@@ -124,25 +124,25 @@ He looked at her, surprised. "How did you—"
 
 "Names?"
 
-She smiled, mysterious. "My full name is Seraphina. My parents wanted me to fit in, so they called me Sera. But here—" she gestured at the city spread below, "—here I can be both. The American who knows how to navigate the modern world and the Jew who knows why Shabbat matters. The secular and the sacred. The exile and the return."
+She smiled, mysterious. "My full name is Seraphina. My parents—they wanted me to fit in, you know? So, Sera. But here..." She gestured at the city. "Here I don't have to choose. American and Jewish and—I don't know. Both things at once."
 
 "Seraphina," he repeated, the name feeling important on his tongue. "Like the angels."
 
-"The burning ones," she corrected. "Six wings—two covering their faces from God's brightness, two covering their feet in humility, two for flight. Always suspended between hiding and seeking."
+"The burning ones. Six wings, two for—" She stopped. "Sorry, I get weird about my name. Too much Hebrew school."
 
 "That's beautiful."
 
 "It's terrible," she laughed, but not unkindly. "Do you know what it's like being named after beings made of fire? The pressure to burn bright enough?"
 
-"My middle name is Israel," he said suddenly, the secret spilling out like water through cupped hands. "Ethan Israel Stone. But I never use it. Never tell anyone."
+"My middle name is Israel." The words came out before he could stop them. His throat felt tight. "Ethan Israel Stone. But I never—I don't use it. Haven't told anyone in years." He was speaking too fast now. "Not since college. Maybe high school. It felt like—like carrying a flag for a country I'd never seen."
 
 She studied him in the moonlight, and he could see her understanding reshaping itself, recognizing something in him that he hadn't known was showing.
 
-"Israel," she said softly. "The one who wrestles with God. The one who struggles and prevails. The name of someone who refuses to let go until he receives a blessing, even if it leaves him limping."
+"Israel." She was quiet for a moment. "Wrestling with God. That's what it means, right? My Hebrew's rusty but—that's heavy. For a middle name."
 
-"I've been limping my whole life," he said. "I just didn't know why."
+"I feel like I've been limping my whole life. Just—I don't know why I said that."
 
-"Maybe," she said, "you've been preparing. Sometimes we need to break before we can become."
+"Maybe you needed to break first. Before you could—I don't know. Become whatever you're becoming."
 
 Below them, the Western Wall plaza emptied and filled in waves, the eternal rhythm of approach and retreat, of seeking and finding and losing and seeking again. A cat crossed between shadows, indifferent to the holiness it walked through. Somewhere, church bells rang. Somewhere else, a baby cried and was comforted.
 
@@ -156,23 +156,17 @@ Below them, the Western Wall plaza emptied and filled in waves, the eternal rhyt
 
 They descended through stone passages that seemed to rearrange themselves with each turn, Sera navigating by instinct or memory or something deeper than either. At a corner where four streets met at impossible angles, she stopped.
 
-"That way," she pointed down steps that disappeared into darkness. "Count three arches, turn left at the fountain that doesn't work, straight until you smell cardamom, then follow the lights."
+"That way." She pointed down dark steps. "Three arches, left at the broken fountain, follow the cardamom smell."
 
-"Will I see you again?" The question came out desperate.
+He almost asked to see her again, then caught himself. Too desperate.
 
-"Maybe. I'm usually at the Saturday night gathering at Simcha's place. After Shabbat." She seemed to be deciding something. "You could come. If you want. It's not a date," she added quickly. "Just... people. Music. Jerusalem stuff."
+"There's this thing tomorrow night. After Shabbat. At Simcha's—" She stopped. "Actually, forget that. Too crowded. The Wall's better. Nine o'clock? We could walk. Or just—I don't know. See what happens."
 
-"I'd like that."
-
-"Good. Maybe. I mean—" She looked flustered for the first time. "It's on Hillel Street. Ask anyone, they'll know."
-
-She turned to leave, then turned back. "Actually, forget Simcha's. Too much... scene. Meet me at the Wall. Nine tomorrow night. We can just walk. Or not. Whatever."
+She spilled wine on her shirt while reaching for her jacket. "Shit. Sorry. I mean—" She laughed, embarrassed. "I don't usually curse in front of—whatever. It's late."
 
 "The Wall? To pray?"
 
-"God, no. I mean—" she caught herself. "Not no. Just... I go there to argue mostly. With God. Or myself. Same thing maybe."
-
-She was already walking away, nearly tripping on an uneven stone.
+"Not really. I go there to think. Argue with God, maybe. Or myself." She stepped backward, nearly tripping. "Same thing."
 
 Ethan watched her vanish into the Old City's geometry, then found his way back through passages that felt different now, charged with possibility. The hostel room was bare and small and perfect, with a window that faced the Wall—he'd requested it specifically, needing to wake to that view, that reminder of why he'd come. He watched people approach that ancient remnant all night, each one carrying their own version of what it meant, their own wrestling match with presence and absence.
 
@@ -186,4 +180,12 @@ Here, with her, he might be becoming himself.
 
 The Wall glowed in the darkness, patient as stone, waiting for tomorrow's wrestlers, tomorrow's prayers, tomorrow's woman arguing with God about things that mattered more than anything had ever mattered before.
 
-He fell asleep sitting up, watching the eternal city refuse to choose between its contradictions, and dreamed of angels with six wings, burning without being consumed, suspended between earth and heaven, between exile and return, between who he had been and who he might become if he was brave enough to wrestle until dawn, even if it left him limping, even if it changed his name.
+He fell asleep sitting up, watching the city that never quite slept. Somewhere out there, Sera was in her own room, under the same moon.
+
+Tomorrow night. The Wall. Nine o'clock.
+
+His phone buzzed—three missed calls from his mother. But they felt like messages from another life, the one where he was just Ethan Stone.
+
+Here, he might be something else. Someone else.
+
+The Wall glowed in the darkness, patient as stone, waiting for tomorrow's wrestlers.

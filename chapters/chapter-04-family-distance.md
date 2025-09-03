@@ -26,9 +26,9 @@ Through the phone: dishwasher hum, news voices, ice against glass.
 
 The 'really' hung in the air like a door held open exactly three inches—enough to suggest entrance, not enough to actually enter.
 
-"I'm good. Busy with work. The usual."
+"Working late, as always. You know me."
 
-His stomach tightened with each lie. On the muted TV, the subtitles scrolled: "[DRAMATIC PAUSE]" then "[SIGHS HEAVILY]" then "[FOOTSTEPS RETREATING]."
+The lie came easier each time. On the muted TV, the subtitles scrolled: "[DRAMATIC PAUSE]" then "[SIGHS HEAVILY]."
 
 "That girl you mentioned? Rachel?"
 
@@ -38,7 +38,7 @@ His stomach tightened with each lie. On the muted TV, the subtitles scrolled: "[
 
 "We had nothing in common."
 
-Like the thirty-three years he'd been searching for something neither of them could name.
+Like the thirty-three years they'd all been searching.
 
 "Speaking of dinner, Rosh Hashanah was last week. Rabbi Goldberg asked about you."
 
@@ -50,7 +50,7 @@ She said 'minyan' like it rhymed with 'onion.'
 
 "I've been meaning to come visit."
 
-"Your sister came with the kids. Rebecca thinks Henry might be gifted."
+"Your sister came with the kids. Henry's reading already at four."
 
 Rebecca, who'd married Brad, whose kids had stockings at Christmas and chocolate eggs at Easter.
 
@@ -60,7 +60,6 @@ Rebecca, who'd married Brad, whose kids had stockings at Christmas and chocolate
 
 Static crackled on the line, the connection wavering.
 
-His phone showed 18% battery—always the same when his mother called.
 
 "How's work?" His father's voice suddenly in stereo, probably having picked up the extension in his study, the room where he managed other people's money with spreadsheets that measured everything except what mattered.
 
@@ -108,7 +107,7 @@ Static surged on the word 'Israel.'
 
 "Maybe that's why they named me after it," Ethan said. "A problem that won't go away."
 
-"We named you after hope," his father said suddenly. Another throat clear. "We thought it meant you'd be a fighter."
+"We named you after hope," his father said suddenly. Another throat clear. "Your grandmother... she said it meant you'd fight for what mattered. I never knew if we were right to burden you with that name."
 
 "How's that working out?"
 
@@ -140,7 +139,7 @@ The vase. Cobalt blue with a crack down one side that his grandmother said made 
 
 Of course she did. Two-day shipping for a memorial.
 
-The call ended at 7:36 PM. His battery had dropped to 10%.
+The call ended at 7:36 PM.
 
 He unmuted Netflix. The episode resumed, but the subtitles had glitched—different characters now, almost familiar. One word appeared repeatedly: "Teshuvah." His thumb hovered over Google, then withdrew.
 
@@ -156,12 +155,17 @@ The Thai food sat congealed on his coffee table, untouched after that first bite
 
 His mother had ordered a yahrzeit candle from Amazon. It would arrive too late.
 
-The Netflix subtitles still showed that strange word: "Teshuvah." The man on screen was walking somewhere, the subtitles reading "[WALKING WITH PURPOSE]" in characters that seemed to shift when he wasn't looking directly at them.
+Ethan opened his kitchen drawer, found the emergency candles from last winter's blackout. He pulled one out, held it up to the light. Found matches in the same drawer.
 
-Ethan sat in his dark apartment, the only light from screens, waiting for something he couldn't name from a grandmother whose yahrzeit candle would arrive two days too late.
+He struck a match. The flame caught, steady and warm. He held it over the candle's wick, watching wax begin to soften.
+
+Then blew it out.
+
+The Netflix subtitles still showed that strange word: "Teshuvah." The man on screen was walking somewhere.
+
+Ethan sat in his dark apartment, the only light from screens, the smell of sulfur fading.
 
 In the attic in Westchester, in a box marked "Mom's Things," a blue vase with a crack down its side waited with her Hebrew books and photographs.
 
 The music through the wall whispered those words again—"Shema Yisrael."
-The sound pressed against his eardrums from inside.
 Tomorrow was the yahrzeit.

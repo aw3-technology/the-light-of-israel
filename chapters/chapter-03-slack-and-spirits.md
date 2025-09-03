@@ -66,19 +66,11 @@ Sarah looked up from her phone, dark circles under her eyes from staring at scre
 
 "World's ending and we're drinking cocktails," Marcus said, sipping his mezcal.
 
-"Everything's content now," Marcus said with his practiced shoulder roll. "Even the—"
+"My editor wants me to write about millennial extinction anxiety," he added. "Memes and medication. What else is there?"
 
-"—apocalypse," Sarah finished. "We know."
+Sarah looked up from her phone, where a message from David glowed unread—six weeks and counting. "We're the most informed, least effective generation in history."
 
-"Shit. I'm a rerun."
-
-"My editor wants me to write about millennial extinction anxiety," Marcus added, swirling his mezcal. "Like, what else is there? Memes and medication."
-
-"We're the most informed and least—" Sarah started.
-
-"—effective generation in history," Aaron and Marcus said in unison.
-
-"Now who's having reruns?" Sarah smiled.
+"Self-awareness isn't action," Marcus said, then caught himself repeating his own column. "Shit. I'm becoming my own rerun."
 
 Music played overhead—something indie, forgettable. Behind the bar, glasses clinked in the washer.
 
@@ -90,7 +82,7 @@ Music played overhead—something indie, forgettable. Behind the bar, glasses cl
 
 "I mean, she was fine. It was fine. Everything was fine."
 
-A woman at the next table wore a Star of David necklace. Aaron's eyes caught it, slid away, returned. His hand moved to his throat, fingers brushing where his collar met skin.
+A woman at the next table wore a Star of David necklace. Aaron's eyes caught it, slid away, returned. His hand moved to his throat, fingers brushing where his collar met skin—touching something hidden beneath the fabric, the ghost of a chai pendant he'd tucked away years ago.
 
 "You need to get back out there," Sarah said, three unread messages from David glowing on her screen.
 
@@ -100,19 +92,17 @@ A woman at the next table wore a Star of David necklace. Aaron's eyes caught it,
 
 The conversation drifted. Netflix shows. Weekend plans. Aaron ordered another round—his fifth. He always stopped at seven when something was eating him.
 
-"Did you see Jerusalem?" Marcus asked, scrolling. "More settlements."
+"Did you see Jerusalem?" Marcus asked, scrolling through news. "More settlements."
 
-Aaron's jaw tightened—his courtroom face. "Netanyahu's using Judaism as cover for—" He stopped. His knuckles went white around his glass.
+Aaron's jaw tightened. "Netanyahu's using Judaism as cover for—" He stopped, knuckles white around his glass.
 
-"For what?" Marcus prompted.
+"For what?"
 
-"For destroying what it means." The words came out raw, unpracticed.
+"For destroying what it means." The words came out broken. "My grandmother didn't survive so Israel could become—" He couldn't finish.
 
-"It's complicated—" Sarah started.
+The table went silent. Aaron never mentioned his grandmother. His hand found his collar, fingers touching the hidden chain.
 
-"It's not complicated." Aaron's voice cracked. "My grandmother didn't survive the Holocaust so Israel could—" He stopped. Sweat beaded on his forehead despite the AC.
-
-The table went silent. Aaron never mentioned his grandmother. Never mentioned being Jewish except to criticize Israel. His hand moved to his collar again, fingers finding the hidden chain.
+Ethan felt something shift in his chest—recognition, the pull of shared secrets. He almost spoke, almost said: *My grandmother too. Her stories, her candles, the prayers I never learned.* The words formed in his throat, then died there.
 
 "Another round?" Gabriel appeared. Behind him, the clock showed 7:07.
 
@@ -124,11 +114,11 @@ He checked the time: 8:36 PM.
 
 Around them: startup pitches at the next table, muffled crying from the bathroom, prosecco toasts and iPhone flashes.
 
-"I'm so tired of living through historical events."
+"I'm so tired of living through historical events," Sarah said, finally opening David's message, then immediately closing it.
 
-Everyone laughed. It wasn't funny.
+Everyone laughed because it wasn't funny.
 
-"Remember when it was just regular capitalism?" Marcus asked. "Not late-stage, not climate, just regular?"
+"Remember regular capitalism?" Marcus asked. "Before late-stage, before climate collapse?"
 
 "I was at that protest last week. Union Square."
 
@@ -188,9 +178,10 @@ Brooklyn night sounds: sirens, laughter, faint singing from somewhere close. His
 
 Tomorrow Aaron would tell him something real. Tomorrow was Thursday, September 28th. Two days before his grandmother's yahrzeit.
 
-He closed his eyes. What had his grandmother wished for him? Something better than this.
+He closed his eyes, remembering his grandmother's hand squeezing his at 11:11. Her wish for him: something whole.
 
 Aaron's hidden chain.
-The stopped clock at 7:07.
-October approaching.
-Tomorrow.
+Seven drinks like seven days of mourning.
+11:11 like a portal to what was lost.
+
+Tomorrow would bring whatever Aaron needed to say. Tonight, Ethan carried the weight of almost speaking, almost connecting, almost choosing to be known.

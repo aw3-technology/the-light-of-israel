@@ -82,21 +82,21 @@ He'd pulled back. The rabbi passed. Her hand loosened.
 
 Next year: bathroom. Year after: stopped going. Year after: dead.
 
-Memory: Disturbing. Age eight, finding her crying in the bathroom at Thanksgiving. Ugly, body-shaking sobs. She was holding a photograph: three children in matching sailor suits.
+Age eight, Thanksgiving. He'd found her crying in the bathroom—not gentle tears but body-shaking sobs. She held a photograph: three children in sailor suits with yellow stars on their coats.
 
 *"My brothers. My sister."*
 
 *"Where are they?"*
 
-The look she gave him—empty. Like looking into a room where all the furniture had been removed.
+The look she gave him—not sad, not protective. Empty.
 
-*"Gone. Go play, Ethan."*
+*"Gone."*
 
-He'd backed away. Never asked again. Never saw the photo again.
+He'd never seen the photo again. But sometimes caught her looking at him with that same empty expression, as if she was seeing through him to those other children who didn't get to grow up and forget.
 
 Outside a Chase bank on Houston Street. A man holding a cardboard sign: "Jewish. Hungry. Today is still today." Davening slightly, sign swaying.
 
-Hebrew singing from somewhere. A food truck—"Moishe's Kosher Tacos"—the owner singing along to Israeli radio while assembling orders. *Hava Nagila* mixed with diesel exhaust and cilantro.
+Hebrew singing from somewhere. He couldn't locate the source. The melody familiar but unplaceable, like hearing your name called in a crowd.
 
 Shanghai, 1941—the candlesticks had been there. She'd told him once, offhand while polishing them. *"These saw more than silver should see."* Now they sat in his closet.
 
@@ -108,19 +108,15 @@ Shanghai, 1941—the candlesticks had been there. She'd told him once, offhand w
 
 Someone will remember. But no one had. The candlesticks were in his closet, behind shoes he never wore, wrapped in the same yellowed tissue paper.
 
-11:47 AM. Phone buzzing: Marcus from work. "Bro, where are you?"
+His phone buzzed. Work. He didn't look.
 
-Great Neck Assisted Living, September 2009. She'd shrunk—not just height but presence.
+The last time: Great Neck Assisted Living, September 2009. She'd shrunk, as if something essential had been extracted.
 
-*"It's just Ethan, Grandma."*
+*"It's just Ethan now, Grandma."*
 
-*"Names don't just disappear, Ethan."*
+*"You go by Ethan. But where do you go?"*
 
-*"I go by Ethan now."*
-
-*"You go. But where?"*
-
-Two weeks later: dead.
+Two weeks later she was dead. Her yahrzeit candle had burned illegally in her room for twenty-four hours before staff noticed. Small rebellion. Last light.
 
 Delancey Street. Two Orthodox boys arguing about Pokemon cards.
 
@@ -138,24 +134,28 @@ Lyrics gone. His grandmother had tried to teach him, Friday after Friday, but he
 
 Home. The door stuck. The Thai container had leaked overnight. Through his window: his neighbor's kid practicing violin. Wrong notes. Starting over.
 
-The closet. Past running shoes worn twice. Past the Patagonia vest every tech worker owned.
+The closet door was stuck. He yanked it open. Behind shoes and jackets he'd forgotten about, the tissue paper from his grandmother's things.
 
-The tissue paper crumbled at his touch. The candlesticks inside: tarnished black, one base dented, heavier than memory. They smelled of metal and age and Murphy's oil soap and boiled chicken.
+The tissue paper crumbled at his touch—forty years of waiting had made it brittle. The candlesticks inside: tarnished black, one base dented, heavier than he remembered. They smelled of metal and age and his grandmother's apartment—Murphy's oil soap and boiled chicken and something else she'd never been able to scrub away.
 
-Kitchen counter. He set them next to his Nespresso machine. One wobbled—uneven base. In the overhead light: scratches in the silver. Random damage from decades of Friday nights. Or from the journey: Poland to Shanghai to New York. Hidden in flour sacks, she'd said.
+He set them on the kitchen counter next to his coffee maker. One wobbled—the dented base. In the overhead light, scratches in the silver looked almost like Hebrew letters. Almost.
 
-He didn't have candles. His mother's Amazon order wouldn't arrive until Sunday. The yahrzeit would pass unmarked except by this—by holding the candlesticks, by remembering.
+No candles. He checked the junk drawer anyway—birthday candles from years ago, a lavender aromatherapy candle from an ex. Nothing that belonged.
 
-Outside: Brooklyn's Friday night beginning. Sirens. Music. Someone rolling a shopping cart with one broken wheel.
+Outside, Brooklyn's Friday night was beginning. Through the walls, that Hebrew melody again, clearer now. A child's voice joining in, learning the words.
 
-The candlesticks caught the last light of day, threw shadows on his wall that looked like Hebrew letters.
+From somewhere below: a child's voice. *"Mommy, why do we light candles?"*
 
-From the apartment below: a child's voice. *"Mommy, why do we light candles?"*
-
-*"Because Bubbe did."*
+Muffled response: *"Because Bubbe did."*
 
 *"But why did Bubbe?"*
 
-Silence. Or an answer too quiet to hear through floors.
+Silence. Or an answer too quiet to hear.
 
-Ethan's candlesticks stood empty on his counter. The dented one caught the streetlight, threw a small bright spot on his ceiling. Like the first point of light before creation, when everything was void and without form, when the only choice was whether to begin.
+Ethan stood in his kitchen, holding his grandmother's candlesticks. Empty, waiting. He opened the drawer, found matches left from winter blackouts. Struck one. The flame caught, steady and warm.
+
+He held it over the candlestick, watching wax begin to pool in the base from some long-ago candle.
+
+Then blew it out.
+
+The smell of sulfur faded. The candlesticks remained.

@@ -10,15 +10,13 @@ The chants hit him from blocks away—"Never Again" colliding with "Free Palesti
 
 The pro-Israel demonstration filled the eastern curve. Blue and white flags rippling like prayer shawls in the wind. "Bring Them Home" banners with faces of hostages—real faces, real names. A woman held a photo of her nephew, twenty-three, taken from the music festival. Her hand shook. Small details that broke through the noise: trembling fingers, tears cutting tracks through makeup, the way she kept touching the photo like it might dissolve.
 
-He recognized her immediately—Rachel from synagogue, from Shabbat services he'd been attending for two weeks now, from the careful conversations over wine and challah where everyone talked around the horror, through it, beneath it, but never directly at it because looking straight at it would mean admitting something about the world that made regular life impossible.
+He recognized her immediately—Rachel from synagogue, from Shabbat services he'd been attending for two weeks now, from the careful conversations over wine and challah where everyone talked around the horror without ever naming it directly.
 
 She held a sign in Hebrew he couldn't read. Dark circles under her eyes, her voice hoarse from chanting or crying or both. When she saw him, something shifted in her expression—relief, maybe, at seeing another familiar face in the chaos.
 
-"Am Yisrael Chai"—the people of Israel live. But next to Rachel, an older Jewish man held a different sign: "Not In My Name." He wore a kippah and a Palestinian solidarity pin. The contradiction made Ethan's head spin. The man caught his stare.
+"Am Yisrael Chai"—the people of Israel live. But the crowd held contradictions: an older Jewish man nearby wore both a kippah and a Palestinian solidarity pin. The sight made Ethan's head spin.
 
-"You can be Jewish and oppose occupation," the man said quietly. "My grandfather didn't survive the camps so we could become what we fled."
-
-Rachel turned away, jaw tight.
+Rachel caught his stare, turned away with a tight jaw.
 
 He walked the perimeter, caught between worlds. The police barriers felt both protective and divisive—keeping the crowds apart but also keeping something else separate. Understanding, maybe. Or the possibility of it.
 
@@ -32,11 +30,11 @@ His best friend since freshman year at NYU, his roommate through law school appl
 
 Aaron wearing a keffiyeh.
 
-The same Aaron who'd gone with him to that first protest together—Occupy Wall Street, 2011, both of them twenty-two and certain they could change everything. "We're on the right side of history," Aaron had said then, arm around Ethan's shoulder, both of them drunk on possibility.
+The same Aaron who'd gone with him to that first protest together—Occupy Wall Street, 2011, both of them twenty-two and certain they could change everything. "We're on the right side of history," Aaron had said then, arm around Ethan's shoulder, both of them drunk on possibility. They'd gotten arrested together that night, called Ethan's grandmother from jail because Aaron's parents would have killed him. She'd brought them soup the next day.
 
 "From the River to the Sea, Palestine Will Be Free."
 
-The chant rose as their eyes met—eighteen years of friendship compressed into three seconds of recognition, evaluation, disappointment.
+The chant rose as their eyes met—eighteen years of friendship compressed into three seconds of recognition, evaluation, loss.
 
 "Ethan! Thank God. I've been texting you for days."
 
@@ -54,9 +52,9 @@ Aaron flushed, adjusted his keffiyeh.
 
 "It's complex—"
 
-"Complex?" Aaron's voice sharpened. "They're murdering children, Ethan."
+Aaron's voice went raw. "They're murdering children, Ethan."
 
-"I know. I saw the videos from Gaza. I also saw—" Ethan's voice cracked. "The babies from the kibbutz. The—"
+"I know. I saw the videos from Gaza. I also saw—" Ethan's voice cracked. "The babies from the kibbutz."
 
 "That's different—"
 
@@ -68,35 +66,39 @@ Aaron's face went white. The woman walked away before either of them could respo
 
 "I didn't know," Aaron said quietly.
 
-"There's a lot we don't know." Ethan's voice came out tired. "October 7th—"
+"There's a lot we don't know." Ethan felt exhausted. "October 7th—"
 
-"Don't." Aaron's defenses snapped back up. "One tragedy doesn't excuse—"
+"Don't." Aaron's walls went back up. "One tragedy doesn't excuse—"
 
-"I'm not excusing anything. I'm just—" Ethan looked at his oldest friend, seeing a stranger in a keffiyeh. "When did we stop being able to hold two truths at once?"
+"I'm not excusing anything." Ethan looked at his oldest friend, seeing a stranger in a keffiyeh. "When did we stop being able to hold two truths?"
 
-"When one truth requires ignoring genocide."
+"When one truth means ignoring genocide."
 
-"Or when the other requires ignoring massacres."
+"Or when the other means ignoring massacres."
 
 They stood there, eighteen years of friendship fracturing in real time. Behind Aaron, the CNN ticker showed the death toll climbing on both sides.
 
-"You've gone full Zionist," Aaron said, but it sounded more like a question than an accusation.
+"You've gone full Zionist," Aaron said, but it sounded more like a question.
 
-"I don't even know what that word means anymore. Does it mean I think Jews deserve a homeland? That my cousins in Tel Aviv deserve to live? Or does it mean supporting every policy, every settlement, every—"
+"I don't even know what that word means anymore. Does it mean I think Jews deserve a homeland? That my cousins in Tel Aviv deserve to live? Or supporting every settlement, every—"
 
-"It means choosing tribalism over justice."
+"It means choosing tribe over justice."
 
-The Jewish man with the "Not In My Name" sign approached them. "Young man," he said to Aaron, "I've been fighting for Palestinian rights for thirty years. But throwing around 'Zionist' like it's a slur? That's not helping anyone. Especially not Palestinians."
+Ethan stepped closer. "And what does Palestine mean to you? Justice or just another way to hate yourself?"
 
-Aaron flushed deeper. "I'm Jewish too. My grandmother—"
+Aaron flushed. "My grandmother survived—"
 
-"Survived the camps?" The man's voice was gentle. "So did mine. That's why I fight occupation. But it's also why I won't let anyone tell me Jews don't deserve safety somewhere."
+"Mine too." Ethan's voice turned hard. "But I'm done apologizing for taking up space in my own story."
 
-"Safety built on someone else's catastrophe?"
+They stared at each other across the divide. Ethan remembered Aaron crying in his dorm room junior year, reading about Darfur. "How do we just watch?" Aaron had asked. "How do we live normal lives while this happens?"
 
-"Every nation is built on someone's catastrophe. The question is what we do now." The man looked between them. "You two are friends?"
+Now Aaron was watching Gaza. Ethan was watching Aaron.
 
-"Were," Aaron said at the same moment Ethan said, "Are."
+"Remember what you said about Darfur?" Ethan asked quietly. "About how we couldn't just watch?"
+
+Aaron's face cracked. "This is different."
+
+"No," Ethan said. "It's exactly the same. Except now you think you have to choose sides to stop watching."
 
 A bottle flew—glass shattering against police shields. Then the surge: bodies pressing forward from both sides, horses rearing, batons out. The smell of pepper spray cut through everything.
 
@@ -108,35 +110,39 @@ The crowd compressed, bodies pressing from all directions. Ethan couldn't breath
 
 "ARE YOU A ZIONIST?"
 
-A young activist, maybe nineteen, phone out, hunting for content. Behind them, the woman whose nephew was a hostage had collapsed, sobbing. No one filmed that.
-
-"Are you a Zionist?" Louder now, performative.
+A young activist, maybe nineteen, phone out, hunting for content. 
 
 "I'm a human being watching other human beings suffer," Ethan said.
 
 "That's not an answer."
 
-"It's the only answer that matters."
+Ethan looked past the phone, directly at the kid. "It's the only answer that matters."
 
-The activist spit near his feet, moved on to easier targets. But the Palestinian mother from earlier caught Ethan's eye, gave him the slightest nod. Not agreement, exactly. Maybe just recognition that nothing here was as simple as the chants pretended.
+The activist moved on to easier targets. But the Palestinian mother from earlier caught Ethan's eye, gave him the slightest nod. Not agreement. Just recognition that nothing here was simple.
 
 "Ethan!"
 
-Rachel's voice, her hand on his arm, pulling him away from the center, from the conflict, from the space between spaces toward something that might have been safety or might have been choosing sides, he couldn't tell anymore, couldn't think through the sound of chanting, of sirens, of his own heart breaking for Aaron who was already gone, swallowed by his crowd, his cause, his certainty that made him free from the complexity Ethan couldn't escape.
+Rachel's voice, her hand on his arm, pulling him away from the chaos. But this time, Ethan stopped. Pulled back.
+
+"No," he said. "I'm not running."
+
+He looked across the divide at Aaron, still wrapped in his keffiyeh, still certain. Then at Rachel, exhausted and torn. Then at the Palestinian mother, walking away with her daughter.
 
 "Your people need you," Rachel said, but her voice was uncertain.
 
 "Which people?" 
 
-"I don't know anymore." She looked exhausted. "My brother's in the IDF. My cousin works for B'Tselem documenting violations. Family dinners are..." She laughed bitterly. "We're all Jews. We all want to survive. We can't agree on what that means."
+Rachel looked exhausted. "My brother's in the IDF. My cousin works for B'Tselem. Family dinners are impossible. We're all Jews. We all want to survive. We just can't agree what that means."
 
-"The ones asking the same question," she said finally. "Those are your people."
+She paused. "The ones asking the same question—those are your people."
 
-She left him there, returning to her sign, her vigil, her absolutely certain uncertain position that being Jewish meant something, meant everything, meant nothing if it didn't mean survival, solidarity, the ancient stubborn insistence on continuing despite the world's regular suggestions otherwise.
+She left him there, returning to her sign, her vigil, her stubborn insistence on continuing despite everything.
 
-Ethan walked away, the protests still audible behind him. By the reservoir, a Jewish father taught his son to skip stones while wearing a "Ceasefire Now" button. Life continuing despite everything.
+Ethan walked away, the protests still audible behind him. By the reservoir, a Jewish father taught his son to skip stones while wearing a "Ceasefire Now" button. Life continuing.
 
-He already knew he would book a flight to Tel Aviv. Had known since seeing Aaron in the keffiyeh, since the Palestinian mother's story about her cousin, since realizing that understanding required proximity to pain, not distance from it.
+Something was crystallizing. Maybe it had started with seeing Aaron in the keffiyeh. Maybe with the Palestinian mother's story. Maybe just from standing between two crowds and refusing to choose a corner.
+
+He might book a flight to Tel Aviv. Or he might not. But he wouldn't decide from here, from this distance, from this American safety.
 
 His phone buzzed with texts:
 

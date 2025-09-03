@@ -8,7 +8,7 @@ Friday morning, November 17th, the rental car descending through landscapes that
 
 The Dead Sea appeared like mercury spilled across the landscape, too still to be water, more mirror than sea, reflecting sky so perfectly that heaven and earth became indistinguishable—the kind of unity mystics spent lifetimes seeking but which existed here naturally, chemically, the lowest point on earth somehow closest to heaven.
 
-"We're entering the earth's wound," Sera said, the words liturgical, necessary.
+"We're entering the earth's—" Sera stopped, shook her head. "Sounds too mystical when I say it out loud. But there's something about going this far down, you know?"
 
 Ein Bokek beach materialized—hotels and spas clustered around the impossible water, Russian immigrants laughing in the shallows, their bodies bobbing like corks. Thirty-four percent salinity, she'd explained, so dense that drowning was physically impossible, forcing you to float whether you trusted it or not.
 
@@ -20,7 +20,7 @@ The water's first touch was wrong—oil-thick, coating his feet with mineral den
 
 "Only at first." Sera was already deeper, her body tilting back into the water's impossible embrace. "Stop fighting. Just be."
 
-But fighting was all he knew. His body refused to trust the water, muscles tensing against the unnatural buoyancy, feet kicking for purchase that didn't exist.
+But fighting was all he knew. His body refused to trust the water, muscles tensing against the unnatural buoyancy, feet kicking for purchase that didn't exist. *What if this is just another thing I'm bad at?* The thought came unbidden. *What if I can't even float properly?*
 
 "You can't drown here," she called. "It's physically impossible. Let go."
 
@@ -28,27 +28,29 @@ He let his legs rise.
 
 The sensation was alien—his body horizontal without effort, the dense water supporting him like hands, like prayers. His back touched the surface and suddenly he was floating, truly floating, suspended between mirrors.
 
-Tears came without warning—salt meeting salt, his body's ocean mingling with the earth's. The Dead Sea took his tears without judgment, absorbed them into its billion-year collection.
+Tears came without warning—salt meeting salt. He tried to wipe them away but his hands were wet, slippery. *Crying in the Dead Sea,* he thought. *That's either poetic or pathetic.*
 
-"This is what letting go feels like," Sera's voice close now, her body floating beside his. "The Dead Sea teaches you to stop fighting gravity."
+"This is what letting go feels like," Sera's voice close now. "Though honestly, first time I came here, I panicked. Thought I was going to flip over and die somehow. Took my dad twenty minutes to convince me to try again."
 
 Time dissolved. They floated while the sun moved across the sky in ways that didn't matter when you were suspended in water older than religion, older than names.
 
 "Come," she finally said, leading him to shore where a Bedouin vendor sold bags of Dead Sea mud, black as history, thick as truth.
 
-She began with his back, her hands spreading the mud in movements that felt ceremonial, each stroke erasing who he'd been, preparing who he might become. The mud was warm from the sun, cool against his salt-tightened skin.
+She began with his back, her hands spreading the mud. The texture was weird—gritty but smooth, like expensive face cream mixed with sand.
 
-"Like Adam from clay," she murmured, covering his shoulders, his arms, his chest. The mud dried in the desert air, cracking, revealing patterns across his skin like rivers, like maps, like Hebrew letters he was still learning to read but which his skin seemed to remember.
+"Like Adam from clay," she murmured, then laughed. "Sorry, occupational hazard. Tour guide brain. But seriously, doesn't it feel like becoming someone else?"
+
+The mud dried in the desert air, cracking across his skin. He caught his reflection in her sunglasses—completely covered, unrecognizable. *If my mother could see me now.*
 
 They stood there covered in primordial mud, two golems waiting for animation. She caught his eye and burst out laughing. "We look ridiculous. Like failed spa treatments. My mother would have opinions."
 
 "Your mother?"
 
-"She thinks the Dead Sea is tourist nonsense. Prefers the Mediterranean. More practical for actual swimming, she says."
+"She thinks the Dead Sea is tourist nonsense. 'Why pay money to be uncomfortable?' she says. She's not wrong. It does smell weird, and your skin feels sticky for hours."
 
-"And you?"
+"So why do you come?"
 
-"I think we need both. The sea that lets you swim and the sea that makes you float."
+"Because sometimes you need to be uncomfortable. Sometimes comfortable isn't enough."
 
 "Rinse," she said, and they walked back into the water, the mud dissolving, carrying away dead skin, dead thoughts, dead versions of himself.
 
@@ -60,9 +62,9 @@ The cable car rose through history—Roman camps still visible below, the siege 
 
 "They chose death over slavery," she said in the reconstructed synagogue, the oldest he'd ever stood in.
 
-He broke there. Completely. The weight of it—the Jews who'd stood here and decided, the Jews who stood here now swearing "Masada shall not fall again," the continuity and the breaks, the survival and the cost, the whole impossible history of a people who kept choosing to continue despite the world's regular suggestions otherwise.
+He broke there. Completely. It came from nowhere—one minute he was reading about the zealots, the next he was doubled over, sobbing like a child. *This is embarrassing,* some part of him noted. *Crying at a tourist site like I'm in a movie.* But the tears wouldn't stop.
 
-Sera held him while he sobbed—not romantic holding but human holding, the kind that understood that sometimes you needed to break in places where breaking had happened before.
+Sera held him—awkwardly at first, then with more certainty. "Hey," she said, "hey, it's okay. First time I brought someone here, he threw up. You're doing better than that."
 
 "We're still here," she whispered. "They're gone—Rome, the empire, all of it dust. But we're still here. That's the miracle. Not the dying but the continuing."
 
@@ -76,23 +78,25 @@ Both of them covered in salt residue—the Dead Sea didn't let you go completely
 
 Her hand found his across the gear shift—not romantic but necessary, the completion of a circuit that had been building since that first Shabbat.
 
-At a red light, she turned to him. "You taste like the Dead Sea," she said, then kissed him—the first kiss that was really a first kiss, not accident but choice. Salt on salt, the taste of the lowest point on earth teaching them to rise.
+At a red light, she turned to him. "You've got salt—" she started to say, then stopped, wiped something from his cheek. "Everywhere, actually."
+
+The kiss was sudden, imperfect—both of them covered in mineral residue, tasting like the sea, bumping teeth slightly before finding the right angle. When they broke apart, she made a face. "Okay, that was saltier than expected."
 
 Jerusalem embraced them with Friday afternoon urgency—everyone rushing to prepare before sunset divided sacred from ordinary. Her apartment was small but high, windows facing the Old City where the walls caught last light like vessels.
 
-The apartment was cramped with books in three languages, a guitar in the corner covered in dust. "I keep meaning to play again," she said, noticing his glance. "Since the army, I haven't... Some things you leave behind."
+The apartment was cramped with books in three languages, a guitar in the corner covered in dust. "I keep meaning to play again," she said, noticing his glance. "Haven't touched it since... well. Some things you put down and can't pick back up."
 
 She lit candles while he watched, still unsure of his place in this ritual.
 
-"The salt won't come out for days," she said, examining her hands in the candlelight. "Gets under your nails, in the cracks of your skin."
+"The salt won't come out for days," she said, examining her hands in the candlelight. "Gets everywhere."
 
 "Is that scientifically accurate?"
 
-"Nothing here is scientifically accurate. We're lighting candles to separate time. Science left the building." She paused, then grinned. "Though actually, the mineral composition does bond with keratin, so technically..."
+"Probably not. But it feels true." She lit the candles, one flame catching, the other taking three tries. "Shit. Sorry, that's not—I mean, these candles are old."
 
-"Now who's being scientific?"
+"It's fine. I like that it's not perfect."
 
-"Shut up and drink your wine."
+"Good. Because nothing about this is perfect."
 
 They lit the candles as sirens announced Shabbat across the city—not emergency but invitation, the whole city breathing, transforming.
 
@@ -118,6 +122,6 @@ His soul was on—that was the only way to describe it, the sensation of being f
 
 She raised her glass. The Jerusalem stone glowed gold in the candlelight.
 
-"L'chaim," she said. "To life, even when it's complicated."
+"L'chaim," she said, then paused. "Though honestly, after today, I feel more like 'to whatever the hell this is.'"
 
-"Especially then," he answered, and found he meant it.
+He laughed, raised his glass. The wine was too warm, the bread slightly stale. The salt was still gritty between his teeth. "To whatever this is," he agreed, and realized he'd never meant anything more.

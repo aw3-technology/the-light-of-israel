@@ -10,7 +10,7 @@ Before his bathroom mirror: dark jeans, navy button-down. Sarah had called it hi
 
 His reflection looked competent and hollow. Somewhere in that face was Ethan Israel Stone, but tonight he'd be just Ethan—product manager, Brooklyn resident, the kind of Jewish that meant knowing about bagels and anxiety but nothing about why his grandmother had covered her eyes when lighting candles, whispering prayers that made their cramped apartment expand into something infinite.
 
-The time read 7:18 PM. Three days until her yahrzeit. He hadn't lit a candle last year.
+Three days until her yahrzeit. He hadn't lit a candle last year.
 
 The Uber driver's name was Abraham. Of course it was.
 
@@ -20,21 +20,19 @@ The Uber driver's name was Abraham. Of course it was.
 
 "Ah." Abraham's eyes found his in the mirror. "You'll find what you're looking for, my friend. Sometimes not where you expect."
 
-The ride took 5 minutes and 41 seconds while Ethan studied Rachel's profile: marketing at a wellness startup, Northwestern, Columbia MBA, Fort Greene. In her photos she held wine glasses at gallery openings where the lighting was always golden hour.
+The ride took exactly the time it always took—long enough to study Rachel's profile, short enough to avoid real conversation. Marketing at a wellness startup, Northwestern, Columbia MBA, Fort Greene. In her photos she held wine glasses at gallery openings where the lighting was always golden hour.
 
 Three couples exited as he arrived. Perfect timing.
 
-Rachel sat in the second booth, exactly like her photos—both relief and disappointment. Expensive highlights, delicate gold jewelry, studied effortlessness. A small scar above her left eyebrow that her fingers kept finding.
+Rachel sat in the second booth, exactly like her photos—both relief and disappointment. Expensive highlights catching restaurant light, delicate gold jewelry, studied effortlessness. A small scar above her left eyebrow that her fingers kept finding.
 
-Brief embrace. Bergamot and ginger.
+Brief embrace. Bergamot and something sharper—ginger root, maybe turmeric. The scent of someone who shopped at Whole Foods and read articles about adaptogens.
 
 "You made it through Brooklyn traffic."
 
-"Not too bad." She'd taken the seat facing out, watching the door.
+"Not too bad." She'd taken the seat facing out, watching the door like she was expecting someone better to walk in.
 
-"Can I start you with something?"
-
-Rachel ordered orange wine before he'd opened the menu. "Trust me," she said, fingers on his wrist for exactly two seconds. "It's having a moment."
+Rachel ordered orange wine before he'd opened the menu. "Trust me," she said, fingers grazing his wrist. "It's having a moment."
 
 "So tell me about optimizing user journeys," she said, leaning forward. "Your profile made it sound almost interesting."
 
@@ -46,25 +44,13 @@ Rachel ordered orange wine before he'd opened the menu. "Trust me," she said, fi
 
 "Real is dangerous on first dates."
 
-The wine arrived—orange, cloudy, from the Golan Heights though neither knew the significance.
-
-"To Wednesday night in Brooklyn."
-
-Apricot and dust. Around them, identical rituals.
-
-"Besides the thrilling world of abandoned carts," Rachel said, "what else?"
-
-"The usual. Trying to read more, cook more. You?"
-
-"Yoga teacher training I'll never start. Spanish on an app. Attempting to keep a fiddle-leaf fig alive. It's winning."
-
-She pulled her sleeves over her hands when she talked, suddenly younger.
+The wine arrived—orange, cloudy, from the Golan Heights though neither knew the significance. They toasted Wednesday night in Brooklyn. The wine tasted like apricot and dust. Around them, identical rituals played out at other tables.
 
 "So, Ethan—biblical name."
 
 "My parents were going through a phase."
 
-"My parents named me after my great-grandmother. She escaped Poland in '39, last boat out of Gdańsk. Twenty years old, everything in one suitcase, your entire family waving goodbye forever."
+"My parents named me after my great-grandmother. She escaped Poland in '39, last boat out of Gdańsk." Rachel's fingers found the scar again. "Twenty years old, everything in one suitcase, your entire family waving goodbye forever."
 
 Something tightened in Ethan's chest. His grandmother had been twenty-two when she left Berlin.
 
@@ -74,11 +60,7 @@ Rachel's face closed like a door. "Right. Sorry. Wine makes me weird."
 
 "No, I didn't mean—"
 
-"It's fine. Let's talk about Iceland. Have you been?"
-
-Safer ground: Northern Lights, Tokyo confusion. Small plates with precious names. Rachel photographing, posting. Beautiful food that tasted like nothing.
-
-"What happened with your last relationship?" Rachel asked, cutting into burrata that bled white across the plate.
+"It's fine." She reached for her phone, then stopped herself. "Tell me about your last relationship instead."
 
 "We wanted different things."
 
@@ -86,9 +68,7 @@ Safer ground: Northern Lights, Tokyo confusion. Small plates with precious names
 
 The accuracy stung. "What about you?"
 
-"He moved to San Francisco. Said I was too much and not enough simultaneously."
-
-Her phone lit up. She glanced, turned it over. His phone vibrated—his mother, ignored. 
+"He moved to San Francisco. Said I was too much and not enough simultaneously." She pulled her sleeves over her hands when she talked, suddenly younger. "Math I'm still trying to solve."
 
 "Want to know something?" Rachel said, wine softening her edges. "I've been on probably fifty first dates this year. They all blur together. Same conversations, same—" She gestured at the space between them.
 
@@ -102,46 +82,46 @@ Her phone lit up. She glanced, turned it over. His phone vibrated—his mother, 
 
 "Nothing. Just... wandering."
 
-Rachel studied him. "My grandmother used to say we were all in exile until we found our way home. Never knew what she meant." Bitter laugh. "Probably Israel."
+Rachel studied him with new interest. "My grandmother used to say we were all in exile until we found our way home. Never knew what she meant." Bitter laugh. "Probably Israel."
 
-Ethan's grandmother had said the same thing. Had died saying it.
+Ethan's grandmother had said the same thing. Had died saying it. The words hung between them, heavy with possibility.
 
 "Anyway." Rachel reached for her wine. "That's enough family trauma for one appetizer course."
 
-The server brought dessert menus. They ordered another round instead.
+They ordered another round instead of dessert. The conversation drifted through safe waters—work complaints, Netflix recommendations, the eternal New York question of neighborhood loyalty. Rachel photographed their food, posted immediately, the blue light of her phone reflecting in her wine glass.
 
 "What time is it?" Rachel asked.
 
-"Nine-eleven."
+"Nine-fifteen."
 
-They kissed then, across the table—urgent but empty, pressing mouths against glass.
+They kissed then, across the table—urgent but empty, pressing mouths against the possibility of connection and finding only performance.
 
 "This is nice," Rachel said, pulling back.
 
 "It is."
 
-The check arrived. Ethan reached for it automatically; Rachel did the wallet dance. Outside, September air carried hints of autumn and somewhere, distant singing—maybe from the Chabad house, maybe just Brooklyn ambient noise.
+The check arrived. Ethan reached for it automatically; Rachel did the wallet dance. Outside, September air carried hints of autumn and somewhere, distant singing—from the Chabad house down the block, or maybe just Brooklyn's ambient noise.
 
 "I had a good time," Rachel said, because the script required it.
 
-Another kiss—brief, final. The Uber: 5 minutes 41 seconds, careful space between them. Her face lit by her phone screen.
+Another kiss—brief, final. The Uber ride back: careful space between them, her face lit by her phone screen as she checked messages, already back in the app.
 
 "This is me." A brownstone like every other. Another kiss, lighter than air. "Text me?"
 
 "Definitely."
 
-Through her window: the blue glow of her phone, thumb already swiping. He watched her disappear into the same carousel they'd both just performed in person.
+He watched through her window as she disappeared upstairs, saw the blue glow of her phone screen, thumb already swiping. The same carousel they'd both just performed in person.
 
-Back home, the app opened itself. The same faces from this morning, rearranged.
+Back home, Ethan's thumb hovered over his phone. He could text Rachel now. Tell her about Berlin, about his grandmother's train, about candles and forgetting. The message started itself: "Your grandmother and mine..." but he deleted it before the second word.
 
-His mother: "Three days until Grandma's yahrzeit. Will you light a candle this year?"
+His mother had texted: "Three days until Grandma's yahrzeit. Will you light a candle this year?"
 
-His thumb stopped mid-swipe. Rachel's grandmother, last boat from Gdańsk. His grandmother, train from Berlin. Both women planting themselves in American soil, whispering prayers their grandchildren wouldn't understand.
+Rachel's grandmother, last boat from Gdańsk. His grandmother, train from Berlin. Both women carrying prayers their grandchildren wouldn't understand, planting themselves in American soil with nothing but hope and terror.
 
-He could text Rachel. Tell her about Berlin, about candles, about forgetting.
+He opened the dating app. The same faces from this morning, rearranged. His thumb moved automatically—left, left, right, left. Each face a door to the same empty room.
 
-Instead, he closed the blinds against the Chabad house singing. Against the Brooklyn night. Against everything except strangers' faces, each one a door to the same empty room.
+But somewhere between swipes, he stopped. Listened to the Chabad house singing drifting through his window. Felt the weight of three days, the unlit candle waiting in his drawer, the conversation he'd walked away from.
 
-October 13th. Three days.
+October 13th. The yahrzeit his grandmother had observed for her parents, that his parents had observed for her, that waited now for him.
 
-Somewhere in this apartment was a yahrzeit candle he'd bought last year and never lit.
+Tomorrow he'd swipe again. Tonight, he sat in the space between forgetting and remembering, between the person he'd pretended to be and the person he'd never learned to become.

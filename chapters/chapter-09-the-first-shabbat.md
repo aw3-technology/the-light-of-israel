@@ -12,7 +12,7 @@ Friday night, October 13th. One week since the world broke. The limestone façad
 
 Everything you need. As if return could be supplied like party favors.
 
-The lobby hummed with arrival energy—families corralling children, young professionals with loosened ties, elderly couples arm in arm. The air carried old books and furniture polish, someone's grandmother's White Shoulders perfume, the sweetness of grape juice already being poured somewhere deeper in the building.
+The lobby hummed with arrival energy—families corralling children, young professionals with loosened ties, elderly couples arm in arm. The air carried old books and furniture polish, the sweetness of grape juice already being poured somewhere deeper in the building.
 
 "Welcome!" A woman materialized at his elbow—seventy-something, silver hair precisely arranged, eyes that had seen enough returns to recognize another. "I'm Ruth. First time at BJ?"
 
@@ -20,9 +20,7 @@ BJ. The congregation had a nickname. Everything belonged here except him.
 
 "I haven't—it's been a while since—"
 
-"Since October 7th?" Her hand found his arm, squeeze that said everything. "Here." She pressed a burgundy kippah into his hand, bobby pins materialized from her purse. "The books are inside. Sit anywhere except the first three rows—those are for regulars who get territorial. Page 36 to start."
-
-Page 36. GPS coordinates for the lost.
+"Since October 7th?" Her hand found his arm, squeeze that said everything. "Here." She pressed a burgundy kippah into his hand, bobby pins materialized from her purse. "The books are inside. Sit anywhere except the first three rows—those belong to the regulars. Page 36 to start."
 
 The sanctuary doors opened and sound poured out—not music yet but the hum of gathering, voices layering in frequencies that made harmonics without trying. The temperature dropped five degrees. Old building, stone walls, October seeping through stained glass.
 
@@ -34,13 +32,13 @@ The prayer book opened backwards—Hebrew, right to left, his hands remembering 
 
 "Lecha dodi likrat kallah..."
 
-The cantor's voice rose and three hundred bodies moved as one—standing, facing the door, greeting the Sabbath like a bride. Ethan stood late, turned wrong, found himself facing the congregation instead of the door. He tried to mouth along—"Lecha DOH-dee"—accent on the wrong syllable.
+The cantor's voice rose and three hundred bodies moved as one—standing, facing the door, greeting the Sabbath like a bride. Ethan stood late, turned wrong, found himself facing the congregation instead of the door. He tried to mouth along—"Lecha DOH-dee"—accent on the wrong syllable. Heat flooded his face. Even his pronunciation marked him as outsider.
 
 A woman beside him shifted her book toward him, finger under the Hebrew, peripheral kindness of congregants who know when someone's drowning in return.
 
 "Barchu et Adonai hamvorach..."
 
-His body bent—muscle memory of bowing his thirteen-year-old self swore he'd never perform again. Protestant bow, corporate conference room bow, not the full fluid bend of practiced Jews.
+His body bent—muscle memory of bowing his thirteen-year-old self swore he'd never perform again. Protestant bow, corporate conference room bow, not the full fluid bend of practiced Jews. Some things the body remembered even when the mind refused.
 
 "Shema Yisrael..."
 
@@ -70,7 +68,7 @@ The mourner's prayer and suddenly everyone was standing—too many, October 7th 
 
 "Yitgadal v'yitkadash sh'mei raba..."
 
-Ethan stood too, though he wasn't technically a mourner. The woman beside him whispered "You don't stand unless—" but he was already standing.
+Ethan stood too, though he wasn't technically a mourner. The woman beside him whispered "You don't stand unless—" but he was already standing. Standing for his grandmother though it had been over a year. For the 1,400 though he didn't know them. For something in himself that had died before October 7th but was being mourned only now.
 
 "You stand if you need to stand," the rabbi said gently. "These days, we all need to stand."
 
@@ -86,9 +84,9 @@ Everyone turned to neighbors, saying "Shabbat Shalom," the greeting that was wis
 
 "Since my bar mitzvah."
 
-"The muscle memory returns. The body remembers even when the mind forgets. You'll see. Next week will be easier."
+"Ah." She nodded, understanding. "Body remembers, even when..." She gestured vaguely at his fumbling with the prayer book. "It gets easier."
 
-Next week. She assumed he'd return.
+Next week. She assumed he'd return. Assumed this wasn't tourism but beginning.
 
 The service ended with Adon Olam—the song every Jewish child learns, the same words his grandmother sang.
 
@@ -96,20 +94,22 @@ The service ended with Adon Olam—the song every Jewish child learns, the same 
 
 But Ethan fled.
 
-The voices were too many, too warm, too ready to fold him into conversations he wasn't ready for. The smell of challah made his throat close—his grandmother's Friday table suddenly present in the absence. He needed air that wasn't thick with belonging he hadn't earned yet.
+Not dramatically—just sideways through the crowd, backwards through the lobby. The voices were too warm, too ready to fold him in. The smell of challah made his throat close—his grandmother's Friday table suddenly present, unbearably so. He needed air that wasn't thick with belonging he hadn't earned.
 
-He slipped sideways through the crowd, out past security still saying "Shabbat Shalom," past the opportunity for connection that felt too much like drowning.
+Past security still saying "Shabbat Shalom," past the opportunity for connection that felt like drowning.
 
 On Broadway, he stopped, hand finding the kippah still on his head—forgotten, worn into the world. He pulled it off, held it like evidence of something beginning.
 
 His phone buzzed—Aaron texting about weekend plans, about bars, about the normal October that existed parallel to Jewish October. Ethan typed: "Can't make it. I have... something."
 
-At home, his grandmother's candlesticks waited on the counter where they'd been since October 7th. He googled "Shabbat candle blessing," found videos, the digital diaspora teaching itself how to remember. Not tonight but next Friday, October 20th, the second Sabbath of return.
+At home, his grandmother's candlesticks waited on the counter where they'd been since October 7th. He googled "Shabbat candle blessing," found videos, the digital diaspora teaching itself how to remember. His phone showed 8:47 PM—too late for candles anyway, but next Friday, October 20th. Maybe next Friday.
 
 He set the candlesticks on his kitchen table—not the counter but the table, where meals became moments, where brass became ritual.
 
-The kippah went in his pocket—not thrown away but carried like possibility, like return that could be retrieved.
+The kippah went in his pocket—not thrown away but carried.
 
-Outside, Manhattan performed its Friday night. But in apartments scattered through the city, candles were being lit, time sanctified by Jews who remembered how, Jews who were learning how, Jews who were returning to how.
+Outside, Manhattan performed its Friday night. But in apartments scattered through the city, candles were being lit by Jews who remembered how, Jews who were learning how, Jews who were returning.
 
-Shabbat Shalom, he thought but didn't say, practice for next week when he'd say it better, mean it more, become someone who could say it without feeling like a fraud, one Friday at a time.
+"Shabbat Shalom," he whispered to his empty apartment, the words strange on his tongue. Practice for next week, if he had the courage. If next week came and he didn't lose his nerve.
+
+His reflection in the window showed someone he almost recognized—the same face but holding itself differently, carrying something new. Or maybe something very old, finally surfacing.
