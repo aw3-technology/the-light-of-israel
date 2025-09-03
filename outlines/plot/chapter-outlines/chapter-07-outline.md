@@ -1,19 +1,19 @@
 # Chapter 7: The Breaking News
 
 ## Chapter Summary
-October 7th shatters Eden's world. As news of the Hamas attacks floods in, something deeper than politics cracks open in Eden - a wound he didn't know he carried. This is the catalyst that begins his spiritual awakening.
+October 7th shatters Ethan's world. As news of the Hamas attacks floods in, something deeper than politics cracks open in Ethan - a wound he didn't know he carried. This is the catalyst that begins his spiritual awakening.
 
 ## Setting
-- **Primary Location**: Eden's Brooklyn apartment
+- **Primary Location**: Ethan's Brooklyn apartment
 - **Secondary Location**: SoHo office
 - **Time**: October 7, 2023 (Saturday morning into afternoon)
 - **Atmosphere**: Shock, digital chaos, world tilting
 
 ## POV
-Third person intimate, Eden's visceral experience
+Third person intimate, Ethan's visceral experience
 
 ## Characters
-- **Eden Stone**: Experiencing spiritual rupture
+- **Ethan Stone**: Experiencing spiritual rupture
 - **Aaron Gold**: Progressive friend, civil rights lawyer applying legal framework to tragedy
 - **Miriam Stone**: Mother, calling repeatedly
 - **Slack colleagues**: Distant, analytical responses
@@ -44,13 +44,13 @@ Third person intimate, Eden's visceral experience
 - "My clients face violence every day - institutional violence is still violence"
 - "Colonial violence begets violence" 
 - Aaron building case even now, hiding his own pain
-- Eden realizes Aaron's legalism is defense mechanism
+- Ethan realizes Aaron's legalism is defense mechanism
 - "Why is he making arguments instead of mourning?"
 
 ### Scene 5: The Crying Child
 - One video that breaks through all defenses
 - A child calling "Ima! Ima!" (Mommy in Hebrew)
-- Eden sobbing unexpectedly, choking on Hebrew word he understands
+- Ethan sobbing unexpectedly, choking on Hebrew word he understands
 - "Why does this feel personal? These aren't my people... are they?"
 - Hebrew words "Baruch Dayan HaEmet" escape his lips without permission
 - He doesn't know he just recited blessing said upon hearing of death
@@ -70,7 +70,7 @@ Third person intimate, Eden's visceral experience
 - The return of the repressed
 
 ## Important Details
-- Eden hasn't been to synagogue since bar mitzvah
+- Ethan hasn't been to synagogue since bar mitzvah
 - Doesn't know anyone in Israel personally, yet feels they're family
 - His middle name "Israel" burns in his chest like brand
 - Time distortion - hours passing in minutes, day becomes night without notice
@@ -83,13 +83,13 @@ Third person intimate, Eden's visceral experience
 - Aaron (deleted draft): "I'm scared too but justice doesn't have exceptions"
 - Mother: "Your grandmother would be heartbroken"
 - Colleague: "Geopolitically complex situation"
-- Eden (not sent): "Why do I feel like I'm dying?"
+- Ethan (not sent): "Why do I feel like I'm dying?"
 
 ## Internal Monologue
 - "This isn't about politics"
 - "Something ancient is screaming"
 - "I don't know these people but they're mine"
-- "Eden Israel Stone - Israel - it's in my name"
+- "Ethan Israel Stone - Israel - it's in my name"
 
 ## Symbolism
 - October 7 = Simchat Torah (joy turned to mourning)
@@ -122,7 +122,7 @@ Normal Saturday → first news → escalating horror → ideological crisis → 
 - Respect real tragedy, don't exploit
 - Show physical response to trauma
 - Progressive friends aren't villains, just limited
-- Eden's response is beyond rational
+- Ethan's response is beyond rational
 
 ## Technical Elements
 - Use real-time formatting
@@ -131,7 +131,7 @@ Normal Saturday → first news → escalating horror → ideological crisis → 
 - Fragment sentences during shock
 
 ## Ending
-Eden at window, looking at Brooklyn at night. Lights in windows - wondering who else is feeling this. Opens laptop, searches "synagogue Upper West Side." Closes laptop. Opens again.
+Ethan at window, looking at Brooklyn at night. Lights in windows - wondering who else is feeling this. Opens laptop, searches "synagogue Upper West Side." Closes laptop. Opens again.
 
 ## Connection to Next Chapter
 Leads directly to attending vigil (Chapter 8) - first step toward community
@@ -139,6 +139,6 @@ Leads directly to attending vigil (Chapter 8) - first step toward community
 ## Revision Considerations
 - Handle real tragedy with care
 - Don't make political statements
-- Focus on Eden's internal experience
+- Focus on Ethan's internal experience
 - Avoid exploiting real suffering
 - Make spiritual awakening felt, not explained

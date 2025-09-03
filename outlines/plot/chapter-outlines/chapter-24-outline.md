@@ -2,11 +2,11 @@
 
 ## Opening Line Options
 1. "At Auschwitz, the birds sang, and that was the most obscene thing of all."
-2. "Eden stood where the tracks ended, at the place where his family's story stopped and his began."
-3. "The sign still read 'Arbeit macht frei,' and Eden finally understood that some lies are so big they become monuments."
+2. "Ethan stood where the tracks ended, at the place where his family's story stopped and his began."
+3. "The sign still read 'Arbeit macht frei,' and Ethan finally understood that some lies are so big they become monuments."
 
 ## Chapter Summary
-Eden visits Auschwitz-Birkenau, then travels to his grandmother's shtetl (now empty). Discovers the void where Jewish Poland existed for 1,000 years. Meets last Jew in grandmother's town. Says Kaddish at mass grave. Understands what was lost beyond the people.
+Ethan visits Auschwitz-Birkenau, then travels to his grandmother's shtetl (now empty). Discovers the void where Jewish Poland existed for 1,000 years. Meets last Jew in grandmother's town. Says Kaddish at mass grave. Understands what was lost beyond the people.
 
 ## Setting
 - **Primary Location**: Auschwitz-Birkenau
@@ -15,10 +15,10 @@ Eden visits Auschwitz-Birkenau, then travels to his grandmother's shtetl (now em
 - **Atmosphere**: Absence so present it has weight
 
 ## POV
-Third person intimate, Eden at the end of the world
+Third person intimate, Ethan at the end of the world
 
 ## Characters
-- **Eden Stone**: Walking through family's erasure
+- **Ethan Stone**: Walking through family's erasure
 - **Polish guide Magda**: Young, knowledgeable, somehow cheerful
 - **Stanisław**: 89, last Jew in Brzeziny
 - **Israeli teenagers**: On heritage trip, singing
@@ -29,7 +29,7 @@ Third person intimate, Eden at the end of the world
 ### Scene 1: Auschwitz Gate
 - "Work makes free"
 - Tour groups everywhere
-- Eden separates, walks alone
+- Ethan separates, walks alone
 - Cannot comprehend scale
 
 ### Scene 2: The Barracks
@@ -42,7 +42,7 @@ Third person intimate, Eden at the end of the world
 - Where selections happened
 - Track ending at crematorium
 - Israeli teens singing "Ani Ma'amin"
-- Eden joins, surprising himself
+- Ethan joins, surprising himself
 
 ### Scene 4: Kraków's Jewish Quarter
 - Kazimierz, now hipster district
@@ -60,18 +60,18 @@ Third person intimate, Eden at the end of the world
 - Last Jew, hidden during war
 - Maintains invisible cemetery
 - "I stay so someone remembers"
-- Shows Eden grandmother's house
+- Shows Ethan grandmother's house
 
 ### Scene 7: The Forest
 - Mass grave from 1942
 - Whole town's Jews shot
-- Eden says Kaddish alone
+- Ethan says Kaddish alone
 - Wind stops completely
 
 ### Scene 8: The Mikvah
 - Stanisław shows hidden ritual bath
 - Filled with rainwater still
-- Eden immerses fully clothed
+- Ethan immerses fully clothed
 - Emerges changed
 
 ## Themes
@@ -85,14 +85,14 @@ Third person intimate, Eden at the end of the world
 - 90% death rate
 - 1,000 years erased
 - Grandmother only survivor from town
-- Eden carrying their names
+- Ethan carrying their names
 
 ## Dialogue Highlights
 - Guide: "One million murdered here"
-- Eden: "Numbers mean nothing. One name means everything."
+- Ethan: "Numbers mean nothing. One name means everything."
 - Stanisław: "Your grandmother—I remember her smile"
 - Israeli teen: "We sing because they wanted silence"
-- Eden: "How do you stay?" Stanisław: "How could I leave?"
+- Ethan: "How do you stay?" Stanisław: "How could I leave?"
 
 ## Internal Monologue
 - "This is where the world ended"
@@ -148,7 +148,7 @@ Arrival → Incomprehension → Personal connection → Deeper horror → Living
 - Avoid redemptive narrative
 
 ## Ending
-Leaving Poland. Eden carries bag of earth from mass grave, permission from Stanisław. "Take them home," he said. At Warsaw airport, security questions the earth. "It's my family," Eden says in Polish he didn't know he knew. They let him pass. Boards plane to Cairo. Through window, watches Poland disappear. Texts Sera: "I found them. I found the absence of them." She responds with just a heart. He understands. Some things have no words.
+Leaving Poland. Ethan carries bag of earth from mass grave, permission from Stanisław. "Take them home," he said. At Warsaw airport, security questions the earth. "It's my family," Ethan says in Polish he didn't know he knew. They let him pass. Boards plane to Cairo. Through window, watches Poland disappear. Texts Sera: "I found them. I found the absence of them." She responds with just a heart. He understands. Some things have no words.
 
 ## Connection to Next Chapter
 Leads to Chapter 25 - Egypt, the original exile
@@ -157,5 +157,5 @@ Leads to Chapter 25 - Egypt, the original exile
 - Maximum sensitivity required
 - Avoid Holocaust tourism
 - Don't appropriate suffering
-- Focus on Eden's specific journey
+- Focus on Ethan's specific journey
 - Let silence speak

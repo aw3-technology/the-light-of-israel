@@ -1,12 +1,12 @@
 # Chapter 30: The Day of At-One-Ment
 
 ## Opening Line Options
-1. "On Yom Kippur, the entire country stopped breathing, and Eden Israel Stone finally understood what it meant to be one."
-2. "Fasting with twins climbing on him, Eden discovered that affliction of the soul meant something different as a father."
-3. "The streets of Jerusalem empty of cars, full of children on bicycles, and Eden realized: this is what redemption looks like."
+1. "On Yom Kippur, the entire country stopped breathing, and Ethan Israel Stone finally understood what it meant to be one."
+2. "Fasting with twins climbing on him, Ethan discovered that affliction of the soul meant something different as a father."
+3. "The streets of Jerusalem empty of cars, full of children on bicycles, and Ethan realized: this is what redemption looks like."
 
 ## Chapter Summary
-Eden experiences his first full Yom Kippur as an Israeli. The country stops, even secular Jews fast, and Eden has a profound spiritual experience during Ne'ilah (closing service). Reconciliation with his full identity. Vision of his grandmother. At-one-ment achieved.
+Ethan experiences his first full Yom Kippur as an Israeli. The country stops, even secular Jews fast, and Ethan has a profound spiritual experience during Ne'ilah (closing service). Reconciliation with his full identity. Vision of his grandmother. At-one-ment achieved.
 
 ## Setting
 - **Primary Location**: Jerusalem - empty streets, synagogue
@@ -15,10 +15,10 @@ Eden experiences his first full Yom Kippur as an Israeli. The country stops, eve
 - **Atmosphere**: National pause, collective introspection
 
 ## POV
-Third person intimate, Eden transcendent
+Third person intimate, Ethan transcendent
 
 ## Characters
-- **Eden Stone**: Fasting, praying, integrating
+- **Ethan Stone**: Fasting, praying, integrating
 - **Sera Mizrahi**: Fasting while mothering
 - **Rabbi Levi**: Leading services
 - **The twins**: Too young to understand
@@ -28,7 +28,7 @@ Third person intimate, Eden transcendent
 
 ### Scene 1: Kol Nidre Eve
 - All vows annulled
-- Eden in tallit for first time
+- Ethan in tallit for first time
 - Surrounded by men praying
 - Weight of the moment
 
@@ -46,7 +46,7 @@ Third person intimate, Eden transcendent
 
 ### Scene 4: Afternoon Service
 - Jonah story read
-- Eden sees himself in it
+- Ethan sees himself in it
 - Running from calling
 - Swallowed and reborn
 
@@ -59,20 +59,20 @@ Third person intimate, Eden transcendent
 ### Scene 6: Ne'ilah - The Closing
 - Gates closing metaphor
 - Last chance for teshuvah
-- Eden's full confession
+- Ethan's full confession
 - Using complete name
 
 ### Scene 7: The Shofar
 - Single long blast
 - Fast ending
 - Everyone says "Next year in Jerusalem"
-- Eden: "This year in Jerusalem"
+- Ethan: "This year in Jerusalem"
 
 ### Scene 8: Breaking Fast
 - Simple food, profound gratitude
 - Neighbors sharing meals
 - Twins finally eating
-- Eden changed again
+- Ethan changed again
 
 ## Themes
 - Individual and collective atonement
@@ -84,13 +84,13 @@ Third person intimate, Eden transcendent
 - 73% of Israeli Jews fast
 - Even secular respect it
 - No TV, radio, cars
-- Eden's first full fast
+- Ethan's first full fast
 - Rabbi Levi watching him
 
 ## Dialogue Highlights
 - Rabbi: "Today you return to yourself"
 - Sera: "The boys will remember this"
-- Eden: "I am Eden Israel Stone, and I have returned"
+- Ethan: "I am Ethan Israel Stone, and I have returned"
 - Grandmother (vision): "The circle is complete"
 - Neighbor: "Your Hebrew is perfect today"
 
@@ -145,7 +145,7 @@ Preparation → Fasting begins → Deepening → Vision → Climax at Ne'ilah �
 - Make vision subtle not melodramatic
 - Community and individual balance
 - Keep mystical grounded
-- Show Eden's complete transformation
+- Show Ethan's complete transformation
 
 ## The At-One-Ment
 - With himself (all names integrated)
@@ -155,7 +155,7 @@ Preparation → Fasting begins → Deepening → Vision → Climax at Ne'ilah �
 - With God (YHWH recognized)
 
 ## Ending
-Stars appearing, fast broken, Eden on balcony with sons sleeping on his chest. Sera beside him, both depleted and full. Jerusalem beginning to hum again—cars starting, life resuming. But Eden remains in the pause, the moment between breath. He whispers to his sons: "You are Ari Yosef and Lev Mordechai Stone. You are Israeli. You are Jewish. You are mine. You are free." Below, someone starts their car. Above, stars that Abraham counted. Eden Israel Stone, thirty-four years old, finally, fully, simply, one.
+Stars appearing, fast broken, Ethan on balcony with sons sleeping on his chest. Sera beside him, both depleted and full. Jerusalem beginning to hum again—cars starting, life resuming. But Ethan remains in the pause, the moment between breath. He whispers to his sons: "You are Ari Yosef and Lev Mordechai Stone. You are Israeli. You are Jewish. You are mine. You are free." Below, someone starts their car. Above, stars that Abraham counted. Ethan Israel Stone, thirty-four years old, finally, fully, simply, one.
 
 ## Connection to Next Chapter
 Leads to Chapter 31 - Temple Mount vision

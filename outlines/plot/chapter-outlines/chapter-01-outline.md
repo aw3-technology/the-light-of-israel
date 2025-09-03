@@ -1,32 +1,32 @@
 # Chapter 1: The Hollow Morning
 
 ## Opening Line Options
-1. "Eden Stone woke to his phone alarm and wondered, not for the first time, if this was what dying felt like—breathing but not living."
-2. "The notification sound from Slack pulled Eden from dreams he couldn't remember into a day he wouldn't."
-3. "At thirty-three, Eden Israel Stone had optimized everything in his life except the only thing that mattered: the reason for living it."
+1. "Ethan Stone woke to his phone alarm and wondered, not for the first time, if this was what dying felt like—breathing but not living."
+2. "The notification sound from Slack pulled Ethan from dreams he couldn't remember into a day he wouldn't."
+3. "At thirty-three, Ethan Israel Stone had optimized everything in his life except the only thing that mattered: the reason for living it."
 
 ## Chapter Summary
-Eden Israel Stone wakes to another day of depression in Brooklyn, going through the motions of his successful but empty life as a Product Manager in tech. The chapter establishes his spiritual exile and disconnection from his Jewish identity.
+Ethan Israel Stone wakes to another day of depression in Brooklyn, going through the motions of his successful but empty life as a Product Manager in tech. The chapter establishes his spiritual exile and disconnection from his Jewish identity.
 
 ## Setting
-- **Primary Location**: Eden's Brooklyn apartment (morning)
+- **Primary Location**: Ethan's Brooklyn apartment (morning)
 - **Secondary Location**: Commute to SoHo office
 - **Time**: Late September 2023, weekday morning
 - **Atmosphere**: Gray, routine, suffocating normalcy
 
 ## POV
-Third person intimate, deep in Eden's consciousness
+Third person intimate, deep in Ethan's consciousness
 
 ## Characters
-- **Eden Israel Stone**: Protagonist, 33, depressed, going through motions
+- **Ethan Israel Stone**: Protagonist, 33, depressed, going through motions
 - **Slack colleagues**: Josh (engineering lead), Maya (designer) - brief digital interactions
 - **Subway strangers**: Anonymous faces, including Hasidic family he avoids eye contact with
-- **Building doorman**: Carlos, cheerful greeting Eden can't match
+- **Building doorman**: Carlos, cheerful greeting Ethan can't match
 
 ## Key Scenes
 
 ### Scene 1: Waking to Emptiness
-- Eden's phone alarm at **7:18 AM** (gematria of his full name, though he doesn't know it)
+- Ethan's phone alarm at **7:18 AM** (gematria of his full name, though he doesn't know it)
 - Checking Slack before getting out of bed
 - The weight of another meaningless day
 - Avoiding his reflection in phone screen showing time **7:18**
@@ -42,16 +42,16 @@ Third person intimate, deep in Eden's consciousness
 - Surrounded by people, utterly alone
 - Seeing Orthodox Jews on train, feeling nothing (divine family unrecognized)
 - Train mysteriously held for **3** minutes at **14th** St (3+14=17, then +1 for unity = **18** chai/life - divine pause)
-- Homeless man says "Israel, wake up" - Eden assumes he's crazy
-- Work badge: "Eden Stone" (middle name hidden)
+- Homeless man says "Israel, wake up" - Ethan assumes he's crazy
+- Work badge: "Ethan Stone" (middle name hidden)
 
 ### Scene 4: Office Arrival
 - Open-plan tech office, exposed brick, ping pong table unused
 - Product standup meeting at 9:30
 - Discussion of "user engagement metrics" and "Q4 OKRs"
-- Eden presenting wireframes he doesn't believe in
+- Ethan presenting wireframes he doesn't believe in
 - Internal monologue: "Is this what I'm for?"
-- Coworker mentions weekend plans, Eden lies about having some
+- Coworker mentions weekend plans, Ethan lies about having some
 
 ## Themes
 - Modern alienation
@@ -65,20 +65,20 @@ Third person intimate, deep in Eden's consciousness
 - Depression as weight, not sadness - physical heaviness (divine absence manifesting)
 - Tech-speak masking inner void
 - Takes Wellbutrin, been on it two years
-- LinkedIn shows "Eden Stone" - 500+ connections
+- LinkedIn shows "Ethan Stone" - 500+ connections
 - Last relationship ended 8 months ago
 - Phone mysteriously dies at exactly **8 minutes, 41 seconds** into mother's call (8:41 reversed = **18:4** - chai calling)
 - Elevator stops at floor **18** (chai/life) - he doesn't notice the significance
 - Coffee costs exactly **$7.18** at corner shop - same as his wake-up time
 
 ## Dialogue Highlights
-- Slack message: "Eden, can you optimize the onboarding flow?"
+- Slack message: "Ethan, can you optimize the onboarding flow?"
 - His response: "On it" (while thinking: "Optimize. Everything needs optimizing except my actual life")
 
 ## Internal Monologue
 - "Thirty-three years old and I feel like I'm drowning in my own success"
 - "When did I become this person? When did I stop being a person?"
-- Remembering grandmother saying his full name: "Eden Israel Stone" - cringing
+- Remembering grandmother saying his full name: "Ethan Israel Stone" - cringing
 
 ## Symbolism
 - Morning light through windows = false dawn
@@ -101,7 +101,7 @@ Opens with unconsciousness (sleep) → mechanical awakening → performing succe
 ## Writing Notes
 - Show depression through action, not explanation
 - Tech/corporate language as spiritual void
-- Eden competent but hollow
+- Ethan competent but hollow
 - Establish "Israel" shame early
 - No heavy-handed symbolism yet
 
@@ -110,7 +110,7 @@ Opens with unconsciousness (sleep) → mechanical awakening → performing succe
 - Product manager jargon: "synergy," "leverage," "optimize"
 
 ## Ending
-Chapter ends with Eden at his desk, opening his laptop, seeing his reflection in the black screen before it boots up - not recognizing himself. Slack notification breaks the moment.
+Chapter ends with Ethan at his desk, opening his laptop, seeing his reflection in the black screen before it boots up - not recognizing himself. Slack notification breaks the moment.
 
 ## Connection to Next Chapter
 Sets up contrast with failed dating (Chapter 2) - professional success vs. personal emptiness
@@ -119,4 +119,4 @@ Sets up contrast with failed dating (Chapter 2) - professional success vs. perso
 - Ensure depression feels authentic, not melodramatic
 - Balance specificity with universality
 - Don't telegraph October 7th too obviously
-- Make Eden sympathetic despite his privilege
+- Make Ethan sympathetic despite his privilege

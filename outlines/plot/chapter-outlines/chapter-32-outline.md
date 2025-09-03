@@ -1,12 +1,12 @@
 # Chapter 32: The Teaching
 
 ## Opening Line Options
-1. "Rabbi Levi listened to Eden's vision without interrupting, then said, 'Now you're ready to teach.'"
-2. "The study group had grown—Russians, Ethiopians, Americans, Israelis—all seeking what Eden had found."
-3. "Eden opened the Zohar to teach, but found himself speaking from his own experience: 'The middle kingdom isn't a place. It's a way of being.'"
+1. "Rabbi Levi listened to Ethan's vision without interrupting, then said, 'Now you're ready to teach.'"
+2. "The study group had grown—Russians, Ethiopians, Americans, Israelis—all seeking what Ethan had found."
+3. "Ethan opened the Zohar to teach, but found himself speaking from his own experience: 'The middle kingdom isn't a place. It's a way of being.'"
 
 ## Chapter Summary
-Eden begins teaching what he's learned. Small study group in Jerusalem. Shares the concept of the middle kingdom—Israel as bridge consciousness. His parents visit for twins' second birthday, finally understanding. Eden becomes teacher while remaining student.
+Ethan begins teaching what he's learned. Small study group in Jerusalem. Shares the concept of the middle kingdom—Israel as bridge consciousness. His parents visit for twins' second birthday, finally understanding. Ethan becomes teacher while remaining student.
 
 ## Setting
 - **Primary Location**: Rabbi Levi's study, full circle
@@ -15,10 +15,10 @@ Eden begins teaching what he's learned. Small study group in Jerusalem. Shares t
 - **Atmosphere**: Wisdom transmitting, generations connecting
 
 ## POV
-Third person intimate, Eden as teacher
+Third person intimate, Ethan as teacher
 
 ## Characters
-- **Eden Stone**: Teacher and student
+- **Ethan Stone**: Teacher and student
 - **Rabbi Levi**: Proud mentor
 - **Study group**: Diverse seekers
 - **Parents**: Final visit, understanding
@@ -34,7 +34,7 @@ Third person intimate, Eden as teacher
 
 ### Scene 2: First Teaching
 - Six people show up
-- Eden nervous, stammering
+- Ethan nervous, stammering
 - Shares his journey honestly
 - Connection immediate
 
@@ -48,7 +48,7 @@ Third person intimate, Eden as teacher
 - For twins' second birthday
 - Eighteen months of gradual learning
 - Miriam attempts Hebrew blessing over cake
-- David wearing kippah Eden has never seen
+- David wearing kippah Ethan has never seen
 - They've been attending adult education classes
 
 ### Scene 5: Birthday Party
@@ -58,7 +58,7 @@ Third person intimate, Eden as teacher
 - Father crying at blessing
 
 ### Scene 6: Parents at Teaching
-- Attend Eden's Thursday group as beginners themselves
+- Attend Ethan's Thursday group as beginners themselves
 - Father's questions show months of study
 - Mother's Hebrew pronunciation still American but eager
 - "We're still learning, but we understand why this matters now"
@@ -86,13 +86,13 @@ Third person intimate, Eden as teacher
 - Teaching in Hebrew and English
 - Parents considering aliyah
 - Twins speaking first sentences
-- Eden still working tech
+- Ethan still working tech
 
 ## Dialogue Highlights
 - Rabbi: "The student has become teacher"
 - Father: "You found what we lost"
 - Student: "How do you know this?"
-- Eden: "I walked through it"
+- Ethan: "I walked through it"
 - Mother: "Your grandmother would be proud"
 
 ## Internal Monologue
@@ -138,7 +138,7 @@ Third person intimate, Eden as teacher
 - American lawyer
 - Israeli artist
 - All finding their way
-- Eden just further along path
+- Ethan just further along path
 
 ## Teaching Style
 - Stories not lectures
@@ -154,7 +154,7 @@ Reluctance → First attempt → Finding voice → Parents arriving → Recognit
 - Show teaching as learning
 - Parents' change must feel real
 - Keep mysticism grounded
-- Eden humble not guru
+- Ethan humble not guru
 - Community not hierarchy
 
 ## The Middle Kingdom Teaching
@@ -165,13 +165,13 @@ Reluctance → First attempt → Finding voice → Parents arriving → Recognit
 - Every Jew carries this potential
 
 ## Ending
-Thursday night ending. Students leaving, energized. Parents helping clean up. Father stacking chairs, mother washing cups. Like they belong. Twins asleep in corner. Sera watching Eden with pride. Rabbi Levi nods approval, leaves quietly. Eden last to go, turning off lights. Study room becomes ordinary. But Torah has been transmitted. Outside, Jerusalem night sounds. Inside, Eden Israel Stone, teacher now, still learning. Parents ask to attend next week. "Of course," he says. "It's never too late to return." Walking home together, four generations under stars. The teaching continues.
+Thursday night ending. Students leaving, energized. Parents helping clean up. Father stacking chairs, mother washing cups. Like they belong. Twins asleep in corner. Sera watching Ethan with pride. Rabbi Levi nods approval, leaves quietly. Ethan last to go, turning off lights. Study room becomes ordinary. But Torah has been transmitted. Outside, Jerusalem night sounds. Inside, Ethan Israel Stone, teacher now, still learning. Parents ask to attend next week. "Of course," he says. "It's never too late to return." Walking home together, four generations under stars. The teaching continues.
 
 ## Connection to Next Chapter
 Leads to Chapter 33 - Final integration, the light revealed
 
 ## Revision Considerations
-- Don't make Eden perfect teacher
+- Don't make Ethan perfect teacher
 - Parents' change gradual
 - Keep teaching accessible
 - Show struggle in teaching

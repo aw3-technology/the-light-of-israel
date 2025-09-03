@@ -2,11 +2,11 @@
 
 ## Opening Line Options
 1. "The smell hit him first—brisket and something else, something that had no translation from childhood to now."
-2. "Eden passed a kosher bakery on his way to work and suddenly he was seven years old, holding his grandmother's hand."
+2. "Ethan passed a kosher bakery on his way to work and suddenly he was seven years old, holding his grandmother's hand."
 3. "Memory ambushed him in the cereal aisle of Whole Foods, between the organic granola and the ancient grains."
 
 ## Chapter Summary
-Walking through Brooklyn triggers unexpected memories of Eden's grandmother and his abandoned Jewish childhood. These fragments of the past begin cracking open his carefully constructed secular identity.
+Walking through Brooklyn triggers unexpected memories of Ethan's grandmother and his abandoned Jewish childhood. These fragments of the past begin cracking open his carefully constructed secular identity.
 
 ## Setting
 - **Primary Location**: Brooklyn streets, various locations throughout the day
@@ -18,16 +18,16 @@ Walking through Brooklyn triggers unexpected memories of Eden's grandmother and 
 Third person intimate, weaving between present and memory
 
 ## Characters
-- **Eden Stone**: 33, experiencing involuntary remembering
+- **Ethan Stone**: 33, experiencing involuntary remembering
 - **Grandmother Rivka** (in memory): His father's mother, Holocaust survivor, keeper of traditions
-- **Young Eden** (in memory): Age 7-13, curious but increasingly resistant
+- **Young Ethan** (in memory): Age 7-13, curious but increasingly resistant
 - **Present-day triggers**: Hasidic family, bakery owner, elderly woman on subway
 
 ## Key Scenes
 
 ### Scene 1: Morning Coffee Shop
 - Hasidic man davening in corner
-- Eden pretending not to notice
+- Ethan pretending not to notice
 - Suddenly remembers grandfather's tallit
 - Coffee tastes wrong
 
@@ -40,7 +40,7 @@ Third person intimate, weaving between present and memory
 ### Scene 3: Subway Encounter
 - Elderly woman with number tattoo
 - Could be anyone's grandmother
-- Eden gives up his seat
+- Ethan gives up his seat
 - She nods, knows he's Jewish somehow
 
 ### Scene 4: Flashback - The Bar Mitzvah
@@ -74,16 +74,16 @@ Third person intimate, weaving between present and memory
 - Sacred interrupting secular
 
 ## Important Details
-- Grandmother died when Eden was 19
+- Grandmother died when Ethan was 19
 - He didn't go to shiva
 - Her candlesticks in his closet
 - She never taught him Hebrew prayers fully
 - Parents treated her traditions as "Old Country stuff"
-- Eden realizes he's same age she was when she fled Europe
+- Ethan realizes he's same age she was when she fled Europe
 
 ## Dialogue Highlights (Remembered)
 - Grandmother: "You have my father's eyes"
-- Young Eden: "Why do you light candles?"
+- Young Ethan: "Why do you light candles?"
 - Grandmother: "To remember. To not forget."
 - Mother (to grandmother): "We're Americans now"
 - Grandmother: "The soul doesn't have a passport"
@@ -102,7 +102,7 @@ Third person intimate, weaving between present and memory
 - Friday = threshold day
 
 ## Subtle Divine Elements
-- Hasidic man finishes prayer exactly as Eden looks
+- Hasidic man finishes prayer exactly as Ethan looks
 - Wind carries Hebrew song from somewhere
 - Grandmother's yahrzeit today (September 30)
 - Seven memories surface (completion number)
@@ -128,7 +128,7 @@ Normal morning → Memory intrusion → Resistance → More memories → Overwhe
 - Memory as physical experience
 
 ## Ending
-That night, Eden finds himself at his closet. Behind old shoes, wrapped in yellowed tissue: his grandmother's brass candlesticks. He holds them, sets them on his kitchen counter. Doesn't light them. Can't throw them away. They sit there, waiting. Like memory. Like tradition. Like something about to return.
+That night, Ethan finds himself at his closet. Behind old shoes, wrapped in yellowed tissue: his grandmother's brass candlesticks. He holds them, sets them on his kitchen counter. Doesn't light them. Can't throw them away. They sit there, waiting. Like memory. Like tradition. Like something about to return.
 
 ## Connection to Next Chapter
 Chapter 6 (The Night Before) - October 6th, dreams intensify, spiritual pressure building
@@ -138,4 +138,4 @@ Chapter 6 (The Night Before) - October 6th, dreams intensify, spiritual pressure
 - Keep grandmother complex
 - Don't explain memories, let them breathe
 - Balance past and present scenes
-- Make Eden's resistance believable
+- Make Ethan's resistance believable

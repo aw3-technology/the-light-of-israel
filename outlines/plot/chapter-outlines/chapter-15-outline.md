@@ -1,7 +1,7 @@
 # Chapter 15: Jerusalem Rising
 
 ## Chapter Summary
-Eden enters Jerusalem for the first time, overwhelmed by the ancient city's layers of sacred and profane. At a Shabbat dinner, he meets Seraphina "Sera" Mizrahi, whose presence promises both challenge and healing.
+Ethan enters Jerusalem for the first time, overwhelmed by the ancient city's layers of sacred and profane. At a Shabbat dinner, he meets Seraphina "Sera" Mizrahi, whose presence promises both challenge and healing.
 
 ## Setting
 - **Primary Location**: Jerusalem - journey from Tel Aviv, Old City, Shabbat dinner
@@ -9,10 +9,10 @@ Eden enters Jerusalem for the first time, overwhelmed by the ancient city's laye
 - **Atmosphere**: Ancient weight, golden stone, sacred anticipation
 
 ## POV
-Third person intimate, Eden's sensory overload
+Third person intimate, Ethan's sensory overload
 
 ## Characters
-- **Eden Stone**: Overwhelmed, opening
+- **Ethan Stone**: Overwhelmed, opening
 - **Seraphina "Sera" Mizrahi**: Late 20s, grounded, luminous
 - **Host family**: The Rosenbergs, American-Israeli
 - **Other guests**: Mix of seekers and natives
@@ -42,7 +42,7 @@ Third person intimate, Eden's sensory overload
 - Mrs. Rosenberg: "You're just in time!"
 - Other guests arriving
 - Kitchen chaos, warmth
-- Eden helping, feeling useless
+- Ethan helping, feeling useless
 
 ### Scene 5: Sera's Entrance
 - She arrives with homemade challah
@@ -53,18 +53,18 @@ Third person intimate, Eden's sensory overload
 ### Scene 6: Shabbat Begins
 - Candle lighting
 - Sera sings blessings naturally
-- Eden stumbling through Kiddush
+- Ethan stumbling through Kiddush
 - Her smile - not mocking, encouraging
 
 ### Scene 7: Dinner Conversation
 - Sera works with trauma survivors
 - Mix of Hebrew and English
 - Discussion of October 7th impact
-- Eden admits he's searching
+- Ethan admits he's searching
 
 ### Scene 8: After Dinner
 - Roof terrace overlooking Temple Mount, Jerusalem stone glowing silver
-- Sera and Eden alone, others inside singing zemirот (Shabbat songs)
+- Sera and Ethan alone, others inside singing zemirот (Shabbat songs)
 - "Why did you really come to Jerusalem?"
 - "I don't know. I had to. Like something was calling me."
 - "And now that you're here?"
@@ -78,15 +78,15 @@ Third person intimate, Eden's sensory overload
 - Shabbat as return
 
 ## Important Details
-- Eden still hiding middle name
+- Ethan still hiding middle name
 - Sera's mixed heritage (Moroccan/Polish)
 - Old City's impossible geography
 - Three religions' calls to prayer
 
 ## Dialogue Highlights
 - Sera: "First time in Jerusalem?"
-- Eden: "First time anywhere that matters"
-- Sera: "You look lost" / Eden: "I am"
+- Ethan: "First time anywhere that matters"
+- Sera: "You look lost" / Ethan: "I am"
 - Sera: "Being lost is the beginning"
 
 ## Internal Monologue
@@ -104,7 +104,7 @@ Third person intimate, Eden's sensory overload
 ## Foreshadowing
 - Sera mentions the "middle kingdom"
 - Discussion of names at dinner
-- Eden almost says "Israel" but stops
+- Ethan almost says "Israel" but stops
 - Sera's knowing look
 
 ## Chapter Arc
@@ -124,7 +124,7 @@ Arrival → overwhelm → Shabbat preparation → meeting Sera → recognition �
 - Taste of sweet wine
 
 ## Ending
-Walking back through Old City at night. Sera: "I'll show you the real Jerusalem tomorrow, if you want." Eden: "Yes." They part at corner. He watches her disappear into ancient streets, feeling something shift inside.
+Walking back through Old City at night. Sera: "I'll show you the real Jerusalem tomorrow, if you want." Ethan: "Yes." They part at corner. He watches her disappear into ancient streets, feeling something shift inside.
 
 ## Connection to Next Chapter
 Next day, she'll take him to Western Wall (Chapter 16)

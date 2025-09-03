@@ -1,7 +1,7 @@
 # Archetypal Characters
 
 ## Overview
-Throughout Eden's journey, he encounters characters who embody different religious, philosophical, and ideological worldviews. These aren't caricatures but complex individuals who challenge and expand Eden's understanding.
+Throughout Ethan's journey, he encounters characters who embody different religious, philosophical, and ideological worldviews. These aren't caricatures but complex individuals who challenge and expand Ethan's understanding.
 
 ---
 
@@ -10,24 +10,24 @@ Throughout Eden's journey, he encounters characters who embody different religio
 ### Progressive Friends
 - **Archetype**: Secular Progressive Judaism
 - **Appears**: Chapters 3, 7, 13
-- **Role**: Represent Eden's initial worldview, later become foils
+- **Role**: Represent Ethan's initial worldview, later become foils
 - **Key Traits**: Well-meaning, educated, politically engaged, spiritually disconnected
 - **Conflict**: See Israel/Palestine through political lens only
 - **Sample Dialogue**: "It's complicated, but we have to acknowledge the occupation..."
 
-### Eden's Parents
+### Ethan's Parents
 - **Archetype**: Assimilated American Jews
 - **Appears**: Chapter 4, phone calls throughout
 - **Role**: Represent complete assimilation, suburban comfort
 - **Key Traits**: Liberal, successful, embarrassed by "too much" Jewishness
-- **Conflict**: Worried Eden is becoming "too religious"
+- **Conflict**: Worried Ethan is becoming "too religious"
 
 ### Orthodox Jews at Protests
 - **Archetype**: Traditional Diaspora Judaism
 - **Appears**: Chapter 8, 13
-- **Role**: Show Eden committed Jewish life exists
+- **Role**: Show Ethan committed Jewish life exists
 - **Key Traits**: Publicly Jewish, politically engaged, spiritually grounded
-- **Conflict**: Make Eden aware of his disconnection
+- **Conflict**: Make Ethan aware of his disconnection
 
 ---
 
@@ -52,7 +52,7 @@ Throughout Eden's journey, he encounters characters who embody different religio
 ### Mystical Jerusalem Rabbi
 - **Archetype**: Kabbalistic Judaism
 - **Appears**: Chapter 19
-- **Role**: Deepens Eden's mystical understanding
+- **Role**: Deepens Ethan's mystical understanding
 - **Key Traits**: Sees beyond politics to spiritual reality
 - **Teaching**: "Every conflict in this world reflects a conflict in the upper worlds"
 
@@ -61,7 +61,7 @@ Throughout Eden's journey, he encounters characters who embody different religio
 - **Appears**: Chapter 14
 - **Role**: Shows Israel's modern, secular side
 - **Key Traits**: Innovative, dismissive of religion, focused on future
-- **Conflict**: Represents what Eden was - successful but spiritually empty
+- **Conflict**: Represents what Ethan was - successful but spiritually empty
 
 ---
 
@@ -104,7 +104,7 @@ Throughout Eden's journey, he encounters characters who embody different religio
 ### American Christian Zionist
 - **Archetype**: Evangelical Support for Israel
 - **Appears**: Chapter 15 or 16
-- **Role**: Shows Eden a disturbing mirror of support
+- **Role**: Shows Ethan a disturbing mirror of support
 - **Problem**: Loves Israel for apocalyptic reasons, not for Jews themselves
 
 ---
@@ -112,19 +112,19 @@ Throughout Eden's journey, he encounters characters who embody different religio
 ## Recurring Archetypal Tensions
 
 ### The Seekers
-- Other spiritual seekers Eden meets in synagogue and Jerusalem
+- Other spiritual seekers Ethan meets in synagogue and Jerusalem
 - Show him he's not alone in his journey
 - Each at different stages of return
 
 ### The Cynics
 - Israelis who've given up on peace
 - Palestinians who've given up on justice
-- Represent despair Eden must not fall into
+- Represent despair Ethan must not fall into
 
 ### The Idealists
 - Young peace activists (Jewish and Palestinian)
 - Still believe in coexistence
-- Challenge Eden's growing particularism
+- Challenge Ethan's growing particularism
 
 ### The Witnesses
 - Holocaust survivors (glimpsed or mentioned)
@@ -136,9 +136,9 @@ Throughout Eden's journey, he encounters characters who embody different religio
 ## Character Development Notes
 
 - Each archetypal character should be fully human, not just representing their worldview
-- They should surprise Eden (and readers) with unexpected depths
-- Their encounters should leave Eden changed, carrying pieces of each
-- By the end, Eden integrates aspects of all he's met without losing his Jewish core
+- They should surprise Ethan (and readers) with unexpected depths
+- Their encounters should leave Ethan changed, carrying pieces of each
+- By the end, Ethan integrates aspects of all he's met without losing his Jewish core
 
 ## Dialogue Patterns
 
@@ -150,4 +150,4 @@ Throughout Eden's journey, he encounters characters who embody different religio
 
 ## Key Principle
 
-Each character Eden meets is a teacher, even those he disagrees with. They all contribute to his understanding that truth is multifaceted but not relative - there is a light that shines through all authentic seeking.
+Each character Ethan meets is a teacher, even those he disagrees with. They all contribute to his understanding that truth is multifaceted but not relative - there is a light that shines through all authentic seeking.

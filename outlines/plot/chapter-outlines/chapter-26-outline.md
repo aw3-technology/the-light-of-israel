@@ -1,12 +1,12 @@
 # Chapter 26: Return as Arrival
 
 ## Opening Line Options
-1. "The Israeli customs officer looked at his passport stamps—Athens, Rome, Berlin, Warsaw, Cairo—and said, 'Welcome home, Eden Israel.'"
-2. "Sera stood at arrivals holding a sign that read 'Eden Israel Stone,' using his full name for the first time."
-3. "Landing in Tel Aviv after forty days of exile, Eden understood that return and arrival were the same word in Hebrew: shuv."
+1. "The Israeli customs officer looked at his passport stamps—Athens, Rome, Berlin, Warsaw, Cairo—and said, 'Welcome home, Ethan Israel.'"
+2. "Sera stood at arrivals holding a sign that read 'Ethan Israel Stone,' using his full name for the first time."
+3. "Landing in Tel Aviv after forty days of exile, Ethan understood that return and arrival were the same word in Hebrew: shuv."
 
 ## Chapter Summary
-Eden returns to Israel transformed after his 40-day journey through exile. Sera meets him at airport. He brings gifts from each place, understanding now what he couldn't before. Rabbi Levi performs a ritual of return. Eden decides to stay in Israel permanently.
+Ethan returns to Israel transformed after his 40-day journey through exile. Sera meets him at airport. He brings gifts from each place, understanding now what he couldn't before. Rabbi Levi performs a ritual of return. Ethan decides to stay in Israel permanently.
 
 ## Setting
 - **Primary Location**: Ben Gurion Airport, Jerusalem
@@ -15,10 +15,10 @@ Eden returns to Israel transformed after his 40-day journey through exile. Sera 
 - **Atmosphere**: Homecoming, integration, choosing
 
 ## POV
-Third person intimate, Eden transformed
+Third person intimate, Ethan transformed
 
 ## Characters
-- **Eden Stone**: Returned, carrying history
+- **Ethan Stone**: Returned, carrying history
 - **Sera Mizrahi**: Receiving him changed
 - **Rabbi Levi**: Completing his teaching
 - **Immigration officer**: Significant moment
@@ -29,7 +29,7 @@ Third person intimate, Eden transformed
 ### Scene 1: The Landing
 - Hebrew announcements bring tears
 - Other passengers clapping
-- Eden understanding the joy
+- Ethan understanding the joy
 - "I'm not visiting anymore"
 
 ### Scene 2: Immigration
@@ -83,16 +83,16 @@ Third person intimate, Eden transformed
 ## Important Details
 - 40 days exactly (biblical transformation)
 - Hanukkah = rededication happening
-- Eden's Hebrew suddenly fluent
+- Ethan's Hebrew suddenly fluent
 - Visa expires but doesn't matter
 - Parents' shock and confusion
 
 ## Dialogue Highlights
-- Sera: "You left as Eden. You returned as Eden Israel Stone."
+- Sera: "You left as Ethan. You returned as Ethan Israel Stone."
 - Rabbi: "Every Jew must gather their own sparks"
-- Eden: "I understand now—exile was preparation"
+- Ethan: "I understand now—exile was preparation"
 - Mother (phone): "But your job! Your apartment!"
-- Eden: "Those were never mine. This is."
+- Ethan: "Those were never mine. This is."
 
 ## Internal Monologue
 - "Every place I visited lives in me now"
@@ -135,7 +135,7 @@ Third person intimate, Eden transformed
 - Complete incomprehension
 - "Is this about that girl?"
 - "What about your career?"
-- Eden's patient explanation
+- Ethan's patient explanation
 - "I'll visit. You'll visit. But I'm home."
 
 ## Chapter Arc
@@ -156,7 +156,7 @@ Landing → Recognition → Reunion → Integration → Ritual → Decision → 
 - Moving like he belongs
 
 ## Ending
-That night, fifth Hanukkah candle burning, Eden and Sera on her balcony overlooking Jerusalem. Old City lit below. "I need to tell you my full name," he says. "I know it," she responds. "Eden Israel Stone. I've always known it." They stand together, planning tomorrow's visit to absorption center, beginning aliyah process. His phone buzzes with work emails from New York. He doesn't check them. Through window, grandmother's candlesticks glow next to Hanukkah candles. Two lights becoming one. Outside, Jerusalem pulses eternal. Inside, Eden Israel Stone is finally home.
+That night, fifth Hanukkah candle burning, Ethan and Sera on her balcony overlooking Jerusalem. Old City lit below. "I need to tell you my full name," he says. "I know it," she responds. "Ethan Israel Stone. I've always known it." They stand together, planning tomorrow's visit to absorption center, beginning aliyah process. His phone buzzes with work emails from New York. He doesn't check them. Through window, grandmother's candlesticks glow next to Hanukkah candles. Two lights becoming one. Outside, Jerusalem pulses eternal. Inside, Ethan Israel Stone is finally home.
 
 ## Connection to Next Chapter
 Leads to Chapter 27 - Beginning the aliyah process, practical integration

@@ -18,16 +18,16 @@
 A depressed, secular Jewish product manager in New York undergoes a spiritual awakening after October 7th, leading him on a pilgrimage through Israel and the cradles of Western civilization to discover the deeper truth behind faith, history, and identity.
 
 ## Elevator Pitch
-Eden Stone, 33, is drowning in the hollow success of secular New York life when the October 7th attacks shatter his worldview. Guided by a mystical rabbi, he embarks on a transformative journey through Israel, Greece, Rome, Germany, and Egypt, confronting the archetypal forces of history—Judaism, Christianity, Islam, philosophy, empire, and destruction—before returning to Jerusalem to integrate the profound truth he's discovered.
+Ethan Stone, 33, is drowning in the hollow success of secular New York life when the October 7th attacks shatter his worldview. Guided by a mystical rabbi, he embarks on a transformative journey through Israel, Greece, Rome, Germany, and Egypt, confronting the archetypal forces of history—Judaism, Christianity, Islam, philosophy, empire, and destruction—before returning to Jerusalem to integrate the profound truth he's discovered.
 
 ## Synopsis
-Eden Stone is a 33-year-old product manager living in Brooklyn, successful on paper but spiritually empty. Progressive, depressed, and disconnected from his Jewish heritage, he drifts through dating apps and work meetings until October 7, 2023, when Hamas attacks Israel. The news triggers something deeper than politics—a spiritual rupture that sends him searching for meaning.
+Ethan Stone is a 33-year-old product manager living in Brooklyn, successful on paper but spiritually empty. Progressive, depressed, and disconnected from his Jewish heritage, he drifts through dating apps and work meetings until October 7, 2023, when Hamas attacks Israel. The news triggers something deeper than politics—a spiritual rupture that sends him searching for meaning.
 
-He begins attending synagogue, where a rabbi becomes his mentor, teaching him Kabbalah and Jewish mysticism. As he witnesses protests in New York and struggles to understand the Israel-Palestine conflict, Eden realizes he must see the truth for himself. 
+He begins attending synagogue, where a rabbi becomes his mentor, teaching him Kabbalah and Jewish mysticism. As he witnesses protests in New York and struggles to understand the Israel-Palestine conflict, Ethan realizes he must see the truth for himself. 
 
 In Israel, he encounters the living contradictions: the Western Wall and Al Aqsa Mosque, Israeli soldiers and Palestinian families, ancient holiness and modern conflict. But his quest for understanding pushes him further—to Greece (philosophy and reason), Rome (empire and Christianity), Germany (the Holocaust and ideology), and Egypt (ancient origins and exodus).
 
-Each place reveals another layer of human consciousness and historical truth. Eden sees how civilizations rise and fall, how religions branch from common roots, and how ideologies attempt to fill the void only faith can satisfy. 
+Each place reveals another layer of human consciousness and historical truth. Ethan sees how civilizations rise and fall, how religions branch from common roots, and how ideologies attempt to fill the void only faith can satisfy. 
 
 Finally, he returns to Israel transformed. In the desert, he experiences a mystical integration of everything he's learned. At the Western Wall, he places a prayer in the stones—not with answers, but with presence, covenant, and hope. The Light of Israel becomes not just his people's story, but a universal light he must carry forward.
 

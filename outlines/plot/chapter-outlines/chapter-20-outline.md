@@ -1,12 +1,12 @@
 # Chapter 20: The Call to Exile
 
 ## Opening Line Options
-1. "The dream came in Aramaic, and Eden woke knowing he had to leave the Holy Land."
+1. "The dream came in Aramaic, and Ethan woke knowing he had to leave the Holy Land."
 2. "'You need to see where we were scattered,' Rabbi Levi said, 'to understand why we returned.'"
 3. "Sera knew before he told her: 'You're going to trace the exile, aren't you?'"
 
 ## Chapter Summary
-After deep immersion in Israel, Eden receives a calling to visit the sites of Jewish exile—Greece, Rome, Germany, Egypt. Rabbi Levi explains this as necessary for understanding the full Jewish story. Sera supports but won't join him. Eden prepares for a journey through diaspora history.
+After deep immersion in Israel, Ethan receives a calling to visit the sites of Jewish exile—Greece, Rome, Germany, Egypt. Rabbi Levi explains this as necessary for understanding the full Jewish story. Sera supports but won't join him. Ethan prepares for a journey through diaspora history.
 
 ## Setting
 - **Primary Location**: Rabbi's study, Jerusalem
@@ -15,14 +15,14 @@ After deep immersion in Israel, Eden receives a calling to visit the sites of Je
 - **Atmosphere**: Bittersweet preparation, divine mission clarity
 
 ## POV
-Third person intimate, Eden's emerging purpose
+Third person intimate, Ethan's emerging purpose
 
 ## Characters
-- **Eden Stone**: Called to journey, reluctant to leave
+- **Ethan Stone**: Called to journey, reluctant to leave
 - **Sera Mizrahi**: Understanding, giving blessing
 - **Rabbi Levi**: Spiritual director, mapping the journey
 - **Travel agent**: Practical helper, himself a refugee
-- **Eden's mother** (phone): Confused by his plans
+- **Ethan's mother** (phone): Confused by his plans
 
 ## Key Scenes
 
@@ -82,7 +82,7 @@ Third person intimate, Eden's emerging purpose
 
 ## Important Details
 - Journey will take 40 days (transformation)
-- Eden leaving on grandmother's birthday
+- Ethan leaving on grandmother's birthday
 - Each city has Jewish contact waiting
 - Taking only essentials
 - Sera gives him stone from Dead Sea
@@ -90,7 +90,7 @@ Third person intimate, Eden's emerging purpose
 ## Dialogue Highlights
 - Rabbi: "Every Jew must personally leave Egypt"
 - Sera: "I'll be here when you return"
-- Eden: "What if I get lost?"
+- Ethan: "What if I get lost?"
 - Rabbi: "You've been lost. Now you're finding"
 - Mother: "Is this about that girl?"
 
@@ -136,11 +136,11 @@ Dream → Interpretation → Planning → Resistance → Acceptance → Preparat
 - Make calling feel inevitable not forced
 - Show Sera's strength in letting go
 - Rabbi as guide not commander
-- Eden's agency in choosing
+- Ethan's agency in choosing
 - Balance practical with mystical
 
 ## Ending
-Ben Gurion Airport, dawn. Sera drives him. At security, she hands him something wrapped—his grandmother's candlesticks, travel-sized. "Light them wherever you are Friday night. Remember who you are." Eden Israel Stone, carrying Jerusalem in his heart, boards plane to Athens. Through window, watches Israel shrink but not disappear. His phone shows message from Rabbi: "Jeremiah 29:7—Seek the peace of the city where I have sent you into exile." The exile begins. Or perhaps it's ending.
+Ben Gurion Airport, dawn. Sera drives him. At security, she hands him something wrapped—his grandmother's candlesticks, travel-sized. "Light them wherever you are Friday night. Remember who you are." Ethan Israel Stone, carrying Jerusalem in his heart, boards plane to Athens. Through window, watches Israel shrink but not disappear. His phone shows message from Rabbi: "Jeremiah 29:7—Seek the peace of the city where I have sent you into exile." The exile begins. Or perhaps it's ending.
 
 ## Connection to Next Chapter
 Leads to Chapter 21 - Athens, confronting Hellenism

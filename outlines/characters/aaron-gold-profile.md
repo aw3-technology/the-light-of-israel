@@ -80,24 +80,24 @@
 - Grandmother's deathbed revelation about family lost in Poland
 - Sister Rebecca converting to Buddhism, leaving him as "sole Jewish carrier"
 
-## His Arc with Eden
+## His Arc with Ethan
 
 ### Pre-October 7th (Chapter 3)
 - Best friend since Columbia
 - Bond over shared depression, Jewish anxiety, leftist politics
-- Aaron sees Eden as fellow "enlightened" secular Jew
+- Aaron sees Ethan as fellow "enlightened" secular Jew
 - They mock religious Jews together
 
 ### Post-October 7th Crisis (Chapter 7)
 - Aaron's immediate response: "This is blowback from colonialism"
-- Can't understand Eden's shift toward sympathy for Israel
+- Can't understand Ethan's shift toward sympathy for Israel
 - Feels personally betrayed: "You're becoming everything we criticized"
 - Their friendship fractures along ideological lines
 
 ### The Deepening Rift (Chapter 13)
-- Aaron discovers Eden attending synagogue
+- Aaron discovers Ethan attending synagogue
 - Confronts him: "Are you becoming a Zionist?"
-- Eden tries to explain complexity, Aaron can't hear it
+- Ethan tries to explain complexity, Aaron can't hear it
 - Aaron: "Choose: justice or tribal loyalty"
 
 ### His Own Journey (Chapters 14-28, off-page)
@@ -108,10 +108,10 @@
 - Crisis when Layla's family questions his "self-hating Jew" status
 
 ### The Confrontation (Chapter 29)
-- Aaron waits at Eden's apartment when he returns
+- Aaron waits at Ethan's apartment when he returns
 - Two years of separate journeys have changed both
 - Aaron admits: "I was using Palestine to run from being Jewish"
-- Still disagrees with Eden about Israel but respects his journey
+- Still disagrees with Ethan about Israel but respects his journey
 - New ground: "We can be different kinds of Jews"
 
 ## Internal Conflicts
@@ -132,23 +132,23 @@
 - Dating Layla complicates both identities
 - Intellectual understanding vs. emotional belonging
 
-## His Role in Eden's Journey
+## His Role in Ethan's Journey
 
 ### What He Represents
-- Eden's pre-awakening self
+- Ethan's pre-awakening self
 - The seductive power of ideological certainty
 - Progressive Jewish identity that avoids Jewish questions
-- The friend Eden must risk losing to grow
+- The friend Ethan must risk losing to grow
 
-### How He Challenges Eden
-- Forces Eden to articulate his evolving views
-- Tests Eden's commitment to complexity over simplicity
-- Represents the community Eden might lose
+### How He Challenges Ethan
+- Forces Ethan to articulate his evolving views
+- Tests Ethan's commitment to complexity over simplicity
+- Represents the community Ethan might lose
 
-### How He Changes Eden
-- Their friendship breaking motivates Eden's deeper search
-- Aaron's questions force Eden to think harder
-- Loss of Aaron's approval teaches Eden to stand alone
+### How He Changes Ethan
+- Their friendship breaking motivates Ethan's deeper search
+- Aaron's questions force Ethan to think harder
+- Loss of Aaron's approval teaches Ethan to stand alone
 
 ## Dialogue Style
 
@@ -163,7 +163,7 @@
 
 > "My grandmother survived Auschwitz so I could have the luxury of criticizing Israel. That's what liberation means."
 
-> "You're romanticizing trauma, Eden. October 7th doesn't give Israel a blank check for oppression."
+> "You're romanticizing trauma, Ethan. October 7th doesn't give Israel a blank check for oppression."
 
 > "I don't need a homeland. I need justice. And those aren't the same thing."
 
@@ -172,23 +172,23 @@
 ### Chapter 3: The Coffee Shop Debate
 - Post-October 7th discussion gets heated
 - Aaron's immediate political analysis
-- Eden beginning to question their shared assumptions
+- Ethan beginning to question their shared assumptions
 - First crack in their friendship
 
 ### Chapter 7: The Synagogue Discovery
-- Aaron finds out Eden is attending services
+- Aaron finds out Ethan is attending services
 - Feels personally betrayed and abandoned
 - "You're becoming everything we used to mock"
 - Friendship ruptures publicly
 
 ### Chapter 13: The Final Confrontation
 - Aaron's ultimatum: choose politics or friendship
-- Eden refuses to choose, Aaron storms out
+- Ethan refuses to choose, Aaron storms out
 - "Call me when you come to your senses"
 - Two years of silence begin
 
 ### Chapter 29: The Return Meeting
-- Aaron waiting at Eden's apartment
+- Aaron waiting at Ethan's apartment
 - Both changed by their separate journeys
 - Honest conversation about their respective growth
 - New foundation: respecting difference
@@ -225,17 +225,17 @@
 ### End: Integration Attempt
 - Still progressive but less rigid
 - Acknowledging Jewish identity and Palestinian rights
-- Learning to hold paradox like Eden
+- Learning to hold paradox like Ethan
 
-## His Teaching to Eden
+## His Teaching to Ethan
 
-### What Aaron Gives Eden
+### What Aaron Gives Ethan
 - Intellectual rigor
 - Commitment to justice
 - Model of passionate engagement
 - Challenge to easy answers
 
-### What Eden Gives Aaron
+### What Ethan Gives Aaron
 - Permission to be Jewish and progressive
 - Model of complexity over purity
 - Friendship that survives disagreement
@@ -247,7 +247,7 @@
 - Represents the progressive Jewish intellectual tradition
 - Embodies the tension between universalism and particularism
 - Shows the cost and necessity of ideological evolution
-- Mirror for Eden's pre-journey self
+- Mirror for Ethan's pre-journey self
 
 ### His Own "Light of Israel"
 - Not religious awakening but identity integration
@@ -257,4 +257,4 @@
 
 ## Final Note
 
-Aaron Gold is not Eden's opposite but his shadow - the path Eden might have taken without October 7th. His own journey parallels Eden's: from ideological certainty through identity crisis to complex integration. Their friendship's fracture and healing mirrors the novel's larger themes of exile, wrestling, and return. Aaron represents the possibility that there are many ways to be Jewish, many forms of teshuvah, many lights of Israel burning in diaspora.
+Aaron Gold is not Ethan's opposite but his shadow - the path Ethan might have taken without October 7th. His own journey parallels Ethan's: from ideological certainty through identity crisis to complex integration. Their friendship's fracture and healing mirrors the novel's larger themes of exile, wrestling, and return. Aaron represents the possibility that there are many ways to be Jewish, many forms of teshuvah, many lights of Israel burning in diaspora.

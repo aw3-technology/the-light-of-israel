@@ -1,12 +1,12 @@
 # Chapter 8: The Vigil
 
 ## Opening Line Options
-1. "Eden hadn't been to Washington Square Park at night since college, and he'd never been there to mourn."
+1. "Ethan hadn't been to Washington Square Park at night since college, and he'd never been there to mourn."
 2. "The candles appeared first—one, then dozens, then hundreds, flickering against the October darkness."
 3. "He went to the vigil to observe, but found himself in the center, holding a candle he didn't remember accepting."
 
 ## Chapter Summary
-Eden attends a candlelight vigil for October 7th victims in Washington Square Park. Surrounded by the Jewish community he's avoided for years, he feels both solidarity and alienation. The collective grief cracks something open in him.
+Ethan attends a candlelight vigil for October 7th victims in Washington Square Park. Surrounded by the Jewish community he's avoided for years, he feels both solidarity and alienation. The collective grief cracks something open in him.
 
 ## Setting
 - **Primary Location**: Washington Square Park, Manhattan
@@ -15,10 +15,10 @@ Eden attends a candlelight vigil for October 7th victims in Washington Square Pa
 - **Atmosphere**: Collective grief, sacred gathering in secular space
 
 ## POV
-Third person intimate, Eden among the crowd
+Third person intimate, Ethan among the crowd
 
 ## Characters
-- **Eden Stone**: Observer becoming participant
+- **Ethan Stone**: Observer becoming participant
 - **Various mourners**: Old, young, Orthodox, secular, Israeli expats
 - **Rabbi speaking**: Not his rabbi yet, but powerful presence
 - **Young woman crying**: Reminds him of someone
@@ -37,7 +37,7 @@ Third person intimate, Eden among the crowd
 - Other Jews heading same direction
 - Recognizing them somehow
 - Orthodox family with children
-- Eden following, not leading
+- Ethan following, not leading
 
 ### Scene 3: Arrival at Park
 - Crowd larger than expected
@@ -49,18 +49,18 @@ Third person intimate, Eden among the crowd
 - Survivors speaking
 - Parents of missing
 - Rabbi: "We are one body"
-- Eden's tears surprising him
+- Ethan's tears surprising him
 
 ### Scene 5: The Kaddish
 - Mourner's prayer beginning
-- Eden doesn't know words
+- Ethan doesn't know words
 - Mouthing along anyway
 - Ancient rhythm in his bones
 
 ### Scene 6: Counter-Protesters
 - "Free Palestine" chants from edge
 - Jewish crowd not engaging
-- Eden's confusion and anger
+- Ethan's confusion and anger
 - "Can't we just mourn?"
 
 ### Scene 7: Connection Moment
@@ -72,7 +72,7 @@ Third person intimate, Eden among the crowd
 ### Scene 8: Dispersing
 - Candles blown out
 - People hugging strangers
-- Eden alone but not alone
+- Ethan alone but not alone
 - Walking home changed
 
 ## Themes
@@ -82,7 +82,7 @@ Third person intimate, Eden among the crowd
 - The cost of disconnection
 
 ## Important Details
-- Eden hasn't been to Jewish gathering since bar mitzvah
+- Ethan hasn't been to Jewish gathering since bar mitzvah
 - Recognizes Hebrew songs from grandmother
 - Feels his middle name "Israel" burning
 - First time crying in public since childhood
@@ -90,7 +90,7 @@ Third person intimate, Eden among the crowd
 
 ## Dialogue Highlights
 - Woman: "My cousin is missing"
-- Eden: "I'm so sorry" (inadequate)
+- Ethan: "I'm so sorry" (inadequate)
 - Rabbi: "Every Jewish soul is precious"
 - Counter-protester: "What about Palestinian souls?"
 - Old man: "You came. That's what matters."
@@ -122,11 +122,11 @@ Hesitation → Arrival → Immersion → Connection → Confrontation → Transf
 - Show diversity within Jewish community
 - Avoid sentimentality while honoring grief
 - Counter-protesters as complex not evil
-- Eden's change must feel earned
+- Ethan's change must feel earned
 - Balance political and spiritual
 
 ## Ending + Micro-Tension Hook
-Walking across the Brooklyn Bridge at midnight, Eden still smells candle smoke on his clothes. His phone shows seventeen missed calls from his mother, three texts from Aaron ("You okay? Saw you on the news"). He doesn't respond to any of them. Instead, he finds himself googling "synagogues Upper West Side." Then, impulsively, "How to say Kaddish." The city lights blur through tears he's not trying to stop. For the first time in his adult life, Eden Israel Stone knows exactly who his people are. But as he reaches his apartment door, he notices something that stops him cold: a handwritten note taped to his door. In Hebrew letters he somehow recognizes but can't read. Who knows where he lives? Who knows he was at the vigil? **[HOOK: Who left the Hebrew note? What does it say? How do they know he's becoming awakened?]**
+Walking across the Brooklyn Bridge at midnight, Ethan still smells candle smoke on his clothes. His phone shows seventeen missed calls from his mother, three texts from Aaron ("You okay? Saw you on the news"). He doesn't respond to any of them. Instead, he finds himself googling "synagogues Upper West Side." Then, impulsively, "How to say Kaddish." The city lights blur through tears he's not trying to stop. For the first time in his adult life, Ethan Israel Stone knows exactly who his people are. But as he reaches his apartment door, he notices something that stops him cold: a handwritten note taped to his door. In Hebrew letters he somehow recognizes but can't read. Who knows where he lives? Who knows he was at the vigil? **[HOOK: Who left the Hebrew note? What does it say? How do they know he's becoming awakened?]**
 
 ## Connection to Next Chapter
 Leads directly to Chapter 9 - attending his first Shabbat service
@@ -136,4 +136,4 @@ Leads directly to Chapter 9 - attending his first Shabbat service
 - Balance emotional impact with restraint
 - Avoid Jewish unity romanticism
 - Show complexity within community
-- Make Eden's transformation gradual
+- Make Ethan's transformation gradual

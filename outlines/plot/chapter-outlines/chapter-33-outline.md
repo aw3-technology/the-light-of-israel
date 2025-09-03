@@ -1,12 +1,12 @@
 # Chapter 33: The Light of Israel
 
 ## Opening Line Options
-1. "Eden Israel Stone stood at the Wall for the last first time, knowing that every arrival is also a departure."
+1. "Ethan Israel Stone stood at the Wall for the last first time, knowing that every arrival is also a departure."
 2. "The light of Israel isn't something you find—it's something you become."
-3. "Three years after October 7th, Eden finally understood: the breaking was the beginning."
+3. "Three years after October 7th, Ethan finally understood: the breaking was the beginning."
 
 ## Chapter Summary
-Eden returns to the Western Wall at dawn for final integration. The twins are three, speaking Hebrew as natives. His parents have made aliyah. He places a prayer note signed with his full name - Eden Israel Stone - not seeking answers but offering presence. Sera joins him as the sun rises over Jerusalem. The light of Israel revealed as responsibility, not revelation.
+Ethan returns to the Western Wall at dawn for final integration. The twins are three, speaking Hebrew as natives. His parents have made aliyah. He places a prayer note signed with his full name - Ethan Israel Stone - not seeking answers but offering presence. Sera joins him as the sun rises over Jerusalem. The light of Israel revealed as responsibility, not revelation.
 
 ## Setting
 - **Primary Location**: Western Wall, Jerusalem
@@ -18,7 +18,7 @@ Eden returns to the Western Wall at dawn for final integration. The twins are th
 Third person intimate, merging with universal
 
 ## Characters
-- **Eden Israel Stone**: Integrated, present
+- **Ethan Israel Stone**: Integrated, present
 - **Seraphina Mizrahi**: Joining him at dawn
 - **Rabbi Levi**: Appears briefly
 - **Other pilgrims**: Praying at dawn
@@ -41,7 +41,7 @@ Third person intimate, merging with universal
 - Through Old City lasting **18** minutes (chai journey)
 - Ahmad waves from **36** meters away (hidden righteous recognition)
 - **7** stars still visible (divine completion before dawn)
-- **124** familiar stones counted (Eden's gematria value in path)
+- **124** familiar stones counted (Ethan's gematria value in path)
 
 ### Scene 4: At the Wall
 - Same spot: row **3**, stone **7** from left (**3 x 7 = 21**, God's name value)
@@ -50,9 +50,9 @@ Third person intimate, merging with universal
 - "Hineni" spoken **18** times in heart (chai submission)
 
 ### Scene 5: The Prayer Note
-- Writing **124** Hebrew letters (Eden's gematria value in gratitude)
+- Writing **124** Hebrew letters (Ethan's gematria value in gratitude)
 - **70** words of thanksgiving (universality of blessing)
-- **3** names signed: Eden (124) + Israel (541) + Stone (53) = **718** total
+- **3** names signed: Ethan (124) + Israel (541) + Stone (53) = **718** total
 - Note placed in crack **613** layers deep (mitzvot depth)
 
 ### Scene 6: Dawn Minyan
@@ -70,7 +70,7 @@ Third person intimate, merging with universal
 ### Scene 8: The Light Revealed
 - Sun rises at **6:13 AM** exactly (mitzvot time of illumination)
 - Light hits Jerusalem stone for **7** minutes of pure gold (completion illumination)
-- Understanding: Light = **541** + **124** + **53** = **718** (Israel + Eden + Stone integrated)
+- Understanding: Light = **541** + **124** + **53** = **718** (Israel + Ethan + Stone integrated)
 - Final integration lasting **3** hours **13** minutes (divine perfection + mercy)
 
 ## Themes
@@ -86,10 +86,10 @@ Third person intimate, merging with universal
 - Journey continues
 
 ## Dialogue Highlights
-- Eden: "I am Eden Israel Stone"
+- Ethan: "I am Ethan Israel Stone"
 - Sera: "I know who you are"
 - Rabbi: "The light was always there"
-- Eden: "Now I can see it"
+- Ethan: "Now I can see it"
 
 ## Internal Monologue
 - "Not answers but presence"
@@ -104,9 +104,9 @@ Third person intimate, merging with universal
 - Sera = sacred love possible
 
 ## The Prayer Note (in Hebrew and English) - Gematria Structure
-**Total Hebrew letters: 718** (Eden Israel Stone complete value)
+**Total Hebrew letters: 718** (Ethan Israel Stone complete value)
 
-"I am Eden Israel Stone (**124 + 541 + 53 = 718**)
+"I am Ethan Israel Stone (**124 + 541 + 53 = 718**)
 Son of David (**14**) and Miriam (**290**), who also returned
 Grandson of Rivka (**307**) who survived **70** nations
 Father of Ari (**211**) and Lev (**36**) who will never know exile
@@ -141,16 +141,16 @@ Darkness → dawn → prayer → blessing → light → forward motion
 - Light everywhere
 
 ## Final Image
-The family walking home through Jerusalem morning. Twins on Eden's shoulders, Sera's hand in his, her other hand on her belly (daughter coming). Parents walking behind, attempting Hebrew with vendors. Ahmad waves from coffee shop. Rabbi Levi passes, nods. The city fully alive—Arabs, Jews, Christians, all the complexity, all the conflict, all the holiness. 
+The family walking home through Jerusalem morning. Twins on Ethan's shoulders, Sera's hand in his, her other hand on her belly (daughter coming). Parents walking behind, attempting Hebrew with vendors. Ahmad waves from coffee shop. Rabbi Levi passes, nods. The city fully alive—Arabs, Jews, Christians, all the complexity, all the conflict, all the holiness. 
 
 Ari asks in perfect Hebrew: "Abba, what's the light of Israel?"
-Eden thinks, then answers in Hebrew: "It's what we carry when we remember who we are."
+Ethan thinks, then answers in Hebrew: "It's what we carry when we remember who we are."
 "Are we the light?" Lev asks.
-"We hold it," Eden says. "And pass it on."
+"We hold it," Ethan says. "And pass it on."
 "To who?"
 "To everyone ready to see."
 
-They continue walking. Jerusalem stones golden in morning sun. Traffic beginning. Sirens (regular, not war). Life continuing. Eden Israel Stone—beginning, middle, foundation—carrying forward. The light not found but recognized. Not achieved but accepted. Not ending but continuing.
+They continue walking. Jerusalem stones golden in morning sun. Traffic beginning. Sirens (regular, not war). Life continuing. Ethan Israel Stone—beginning, middle, foundation—carrying forward. The light not found but recognized. Not achieved but accepted. Not ending but continuing.
 
 The light of Israel burns forward.
 
@@ -169,9 +169,9 @@ The light of Israel burns forward.
 
 ## Final Lines Options
 1. "The light of Israel burns forward."
-2. "Eden Israel Stone. Beginning, middle, no end."
+2. "Ethan Israel Stone. Beginning, middle, no end."
 3. "The wrestling continues. The light remains."
 4. Simple: "He walked forward, carrying light."
 
 ## Note on Ending
-The novel ends not with answers but with presence. Eden has become who he always was - the garden, the wrestling, the foundation. The light of Israel is not a solution but a responsibility, carried forward with love.
+The novel ends not with answers but with presence. Ethan has become who he always was - the garden, the wrestling, the foundation. The light of Israel is not a solution but a responsibility, carried forward with love.

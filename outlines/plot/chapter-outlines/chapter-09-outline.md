@@ -1,12 +1,12 @@
 # Chapter 9: The First Shabbat
 
 ## Opening Line Options
-1. "Eden stood outside the synagogue for ten minutes before finding the courage to open the door."
+1. "Ethan stood outside the synagogue for ten minutes before finding the courage to open the door."
 2. "The last time he'd worn a kippah, it had been bobby-pinned to his thirteen-year-old head."
-3. "Friday night, October 13th: Eden Stone returns to shul, thirty-three years old and feeling like a fraud."
+3. "Friday night, October 13th: Ethan Stone returns to shul, thirty-three years old and feeling like a fraud."
 
 ## Chapter Summary
-Eden attends Friday night Shabbat services at an Upper West Side synagogue. Everything is familiar yet foreign. The prayers echo his bar mitzvah portion he thought he'd forgotten. He fumbles through the service but something ancient awakens.
+Ethan attends Friday night Shabbat services at an Upper West Side synagogue. Everything is familiar yet foreign. The prayers echo his bar mitzvah portion he thought he'd forgotten. He fumbles through the service but something ancient awakens.
 
 ## Setting
 - **Primary Location**: Congregation B'nai Jeshurun, Upper West Side
@@ -15,10 +15,10 @@ Eden attends Friday night Shabbat services at an Upper West Side synagogue. Ever
 - **Atmosphere**: Sacred warmth, ancient rhythms in modern space
 
 ## POV
-Third person intimate, Eden's overwhelming sensory experience
+Third person intimate, Ethan's overwhelming sensory experience
 
 ## Characters
-- **Eden Stone**: Anxious outsider returning
+- **Ethan Stone**: Anxious outsider returning
 - **Greeter**: Warm elderly woman who hands him prayer book
 - **Rabbi Levi Ben-David**: First glimpse, leading service
 - **Congregants**: Mix of ages, observance levels
@@ -48,18 +48,18 @@ Third person intimate, Eden's overwhelming sensory experience
 ### Scene 4: The Rabbi's Sermon
 - About October 7th, but deeper
 - "Return is always possible"
-- Eden feeling seen despite anonymity
+- Ethan feeling seen despite anonymity
 - Taking mental notes to Google later
 
 ### Scene 5: The Torah Service
 - Procession through congregation
 - People kissing Torah with prayer books
-- Eden not knowing protocol
+- Ethan not knowing protocol
 - Touching it anyway, feeling electricity
 
 ### Scene 6: Communal Prayer
 - Kaddish for mourners
-- Eden standing though not mourner (yet)
+- Ethan standing though not mourner (yet)
 - Woman whispering "You don't stand"
 - "I think I do"
 
@@ -76,7 +76,7 @@ Third person intimate, Eden's overwhelming sensory experience
 - Ancient in modern context
 
 ## Important Details
-- Eden's Hebrew name called up (he doesn't go)
+- Ethan's Hebrew name called up (he doesn't go)
 - Prayer book has transliteration
 - He remembers his bar mitzvah portion
 - Realizes it's same Torah portion cycle
@@ -84,10 +84,10 @@ Third person intimate, Eden's overwhelming sensory experience
 
 ## Dialogue Highlights
 - Greeter: "Welcome home"
-- Eden: "I'm just visiting" / "No one just visits"
+- Ethan: "I'm just visiting" / "No one just visits"
 - Woman: "First time back?" / "How did you know?"
 - Rabbi: "The gates of return are always open"
-- Eden to himself: "What am I doing here?"
+- Ethan to himself: "What am I doing here?"
 
 ## Internal Monologue
 - "These words were in me all along"
@@ -108,27 +108,27 @@ Third person intimate, Eden's overwhelming sensory experience
 - Mention of Tuesday study group
 - "Return is always possible"
 - Woman saying "You'll be back"
-- Eden keeping the kippah
+- Ethan keeping the kippah
 
 ## Chapter Arc
 Fear → Entry → Overwhelm → Recognition → Participation → Retreat → Determination
 
 ## Writing Notes
-- Show service through Eden's ignorance
+- Show service through Ethan's ignorance
 - Make liturgy felt not explained
 - Community warm but not pushy
-- Eden's resistance and attraction
+- Ethan's resistance and attraction
 - Balance sacred and awkward
 
 ## Ending
-Walking home along Riverside Park, Eden still wears the kippah, forgetting it's there until wind threatens to blow it off. He catches it, considers tossing it, instead puts it in his pocket. His phone has three texts from Aaron about weekend plans. Eden texts back: "Can't make it. I have... something." He doesn't say what. At home, he googles "Shabbat candle blessings" and finds his grandmother's candlesticks. He doesn't light them. Not yet. But he sets them on his table, where they belong. Where they've always belonged.
+Walking home along Riverside Park, Ethan still wears the kippah, forgetting it's there until wind threatens to blow it off. He catches it, considers tossing it, instead puts it in his pocket. His phone has three texts from Aaron about weekend plans. Ethan texts back: "Can't make it. I have... something." He doesn't say what. At home, he googles "Shabbat candle blessings" and finds his grandmother's candlesticks. He doesn't light them. Not yet. But he sets them on his table, where they belong. Where they've always belonged.
 
 ## Connection to Next Chapter
 Leads to Chapter 10 - meeting Rabbi Levi personally
 
 ## Revision Considerations
 - Avoid "return to faith" cliché
-- Keep Eden's skepticism alive
+- Keep Ethan's skepticism alive
 - Show diversity within congregation
 - Make prayers felt not just described
 - Honor complexity of return

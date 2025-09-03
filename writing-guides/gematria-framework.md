@@ -1,15 +1,15 @@
 # Gematria Framework for "The Light of Israel"
 
 ## Overview
-Gematria, the mystical Jewish practice of assigning numerical values to Hebrew letters and finding meaning in these calculations, will serve as a hidden structural framework throughout Eden's spiritual journey. Numbers will appear "coincidentally" but with increasing frequency and significance as Eden becomes more spiritually attuned.
+Gematria, the mystical Jewish practice of assigning numerical values to Hebrew letters and finding meaning in these calculations, will serve as a hidden structural framework throughout Ethan's spiritual journey. Numbers will appear "coincidentally" but with increasing frequency and significance as Ethan becomes more spiritually attuned.
 
 ## Core Gematria Values in the Novel
 
-### **Eden's Name Gematria**
-- **Eden** (עדן) = 70 + 4 + 50 = **124**
+### **Ethan's Name Gematria**
+- **Ethan** (איתן) = 1 + 10 + 400 + 50 = **461**
 - **Israel** (ישראל) = 10 + 300 + 200 + 1 + 30 = **541** 
 - **Stone** (אבן) = 1 + 2 + 50 = **53**
-- **Full Name Total**: 124 + 541 + 53 = **718**
+- **Full Name Total**: 461 + 541 + 53 = **1055**
 
 ### **Key Gematria Numbers Throughout the Story**
 
@@ -19,10 +19,10 @@ Gematria, the mystical Jewish practice of assigning numerical values to Hebrew l
 
 #### **36 - לו (Lo/To Him)** 
 - **Traditional meaning**: The 36 hidden righteous ones (Tzadikim Nistarim) who sustain the world
-- **Novel usage**: Eden's age progression, spiritual responsibilities, hidden divine presence
+- **Novel usage**: Ethan's age progression, spiritual responsibilities, hidden divine presence
 
 #### **70 - ס (Ayin)**
-- **Traditional meaning**: The 70 nations of the world, universality, Eden's individual name value
+- **Traditional meaning**: The 70 nations of the world, universality, Ethan's individual name value
 - **Novel usage**: Bridge-building moments, interfaith connections
 
 #### **613 - תרי"ג**
@@ -30,50 +30,50 @@ Gematria, the mystical Jewish practice of assigning numerical values to Hebrew l
 - **Novel usage**: Moments of obligation, responsibility, choosing sacred action
 
 #### **541 - ישראל (Israel)**
-- **Traditional meaning**: "Wrestles with God," Eden's middle name value
+- **Traditional meaning**: "Wrestles with God," Ethan's middle name value
 - **Novel usage**: Internal conflicts, spiritual wrestling, transformation moments
 
 #### **888 - משיח (Mashiach/Messiah)**
 - **Traditional meaning**: Messianic consciousness, world repair
-- **Novel usage**: Eden's role in healing/bridge-building, tikkun olam moments
+- **Novel usage**: Ethan's role in healing/bridge-building, tikkun olam moments
 
 ## Chapter-by-Chapter Gematria Integration
 
 ### **Chapter 1: The Hollow Morning**
-- Eden wakes at **7:18** AM (718 = his full name value)
+- Ethan wakes at **7:18** AM (morning ritual time)
 - Coffee shop receipt totals **$5.41** (Israel = 541)
 - **18** minutes late to work (chai/life - but he's spiritually dead)
 
 ### **Chapter 7: October 7th Breaking Point**
 - October **7th** itself (completion, divine perfection)
-- Eden's breakdown lasts **18** hours (chai - life emerging from death)
+- Ethan's breakdown lasts **18** hours (chai - life emerging from death)
 - **613** unread messages on phone (mitzvot calling him)
 - Grandmother died **7** years ago on October **7th** (double completion)
 
 ### **Chapter 10: The Rabbi**
 - Meeting happens at **6:13** PM (gematria of mitzvot without hundreds)
 - Rabbi's office address: **36** West 72nd Street (hidden righteous one)
-- Study session lasts **70** minutes (Eden's individual name value)
+- Study session lasts **70** minutes (Ethan's individual name value)
 
 ### **Chapter 13: Protests in the Streets**
 - Protest starts at **1:08** PM (108 = Elohim, God of nature/judgment)
 - **541** people at pro-Israel rally (Israel value)
-- Eden stands between crowds for **18** minutes (chai/life choice)
+- Ethan stands between crowds for **18** minutes (chai/life choice)
 
 ### **Chapter 16: Western Wall**
 - Arrives at **5:41** AM (Israel value)
 - Prayer note falls out **3** times, stays on **4th** attempt (3+4=7, completion)
 - Wall stones measure **36** feet high at this section (hidden righteous)
-- Eden's hand touches stone for **18** heartbeats
+- Ethan's hand touches stone for **18** heartbeats
 
 ### **Chapter 18: The Other Side of Evil**
 - Study session on **18th** of Hebrew month (chai)
 - Rabbi shows **10** sefirot, **22** paths = **32** (hidden wisdom paths)
-- Eden understands **4** levels of soul (**4** = physical world, starting point)
+- Ethan understands **4** levels of soul (**4** = physical world, starting point)
 
 ### **Chapter 23: Berlin to Cairo (Consolidated)**
 - Auschwitz visit lasts **6** days, **13** hours total (613 = mitzvot, even here)
-- Eden says Kaddish **18** times throughout journey (chai for the dead)
+- Ethan says Kaddish **18** times throughout journey (chai for the dead)
 - Train from Berlin to Poland: **541** kilometers (Israel - wrestling with history)
 
 ### **Chapter 29: The Friend Returns**
@@ -84,29 +84,29 @@ Gematria, the mystical Jewish practice of assigning numerical values to Hebrew l
 ### **Chapter 31: Temple Mount Vision**
 - Vision begins at **6:13** AM (mitzvot time)
 - Lasts **18** minutes in real time (chai) but feels like hours
-- Eden and Ahmad both **36** steps from Dome of Rock (hidden righteous)
+- Ethan and Ahmad both **36** steps from Dome of Rock (hidden righteous)
 
 ### **Chapter 33: The Light of Israel**
 - Final chapter happens on **7th** day of **7th** month (perfect completion)
 - Twins are **18** months old (chai/life continuing)
-- Eden's final prayer contains **70** Hebrew words (universality achieved)
+- Ethan's final prayer contains **70** Hebrew words (universality achieved)
 
 ## Gematria Patterns for Character Development
 
-### **Eden's Spiritual Progression Through Numbers**
+### **Ethan's Spiritual Progression Through Numbers**
 
 #### **Stage 1: Unconscious (Chapters 1-7)**
-- Numbers appear but Eden dismisses as coincidence
+- Numbers appear but Ethan dismisses as coincidence
 - **7** patterns dominate (completion waiting to happen)
 - Receipt totals, times, addresses contain his name values
 
 #### **Stage 2: Awakening (Chapters 8-15)** 
-- Eden begins noticing repeated numbers
+- Ethan begins noticing repeated numbers
 - **18** (chai/life) appears during spiritual moments
 - Rabbi introduces gematria concepts explicitly
 
 #### **Stage 3: Active Engagement (Chapters 16-23)**
-- Eden calculates his own name values
+- Ethan calculates his own name values
 - Seeks meaning in numerical patterns
 - **613** appears during moments of obligation/choice
 
@@ -144,7 +144,7 @@ Gematria, the mystical Jewish practice of assigning numerical values to Hebrew l
 #### **Addresses and Locations**
 ```
 Rabbi's office: 36 West 72nd Street
-Eden's hotel in Jerusalem: Room 541
+Ethan's hotel in Jerusalem: Room 541
 Sera's apartment: Building 18, 7th floor
 Aaron's law firm: Suite 613
 ```
@@ -159,7 +159,7 @@ Hotel room numbers, flight numbers, train car numbers
 
 #### **Prices and Measurements**
 ```
-Coffee: $7.18 (Eden's full name)
+Coffee: $7.18 (special significance, same as wake time)
 Book prices: $18.00, $36.00, $54.10
 Distances in Israel: 70 kilometers, 18 miles
 Building heights: 36 floors, 541 feet
@@ -167,7 +167,7 @@ Building heights: 36 floors, 541 feet
 
 ### **Character Recognition Patterns**
 
-#### **Eden's Growing Awareness**
+#### **Ethan's Growing Awareness**
 ```
 Chapter 1: "The coffee was $7.18. Expensive."
 Chapter 10: "Seven-eighteen again. That's... my name in numbers."
@@ -177,7 +177,7 @@ Chapter 33: "The numbers were calling me home before I knew how to listen."
 
 #### **Rabbi Levi's Teaching**
 ```
-"Your name, Eden Israel Stone, carries the blueprint of your journey."
+"Your name, Ethan Israel Stone, carries the blueprint of your journey."
 "Seven-one-eight. Seven for completion, one for unity, eight for infinite renewal."
 "The Sages say: 'There are no coincidences, only divine appointments disguised as mathematics.'"
 ```
@@ -186,25 +186,25 @@ Chapter 33: "The numbers were calling me home before I knew how to listen."
 
 ### **Atbash Cipher Integration**
 - Hebrew alphabet reversal cipher used in Kabbalah
-- Eden's name in Atbash reveals hidden meanings
+- Ethan's name in Atbash reveals hidden meanings
 - Appears during mystical experiences and decoded prayers
 
 ### **Mispar Gadol (Large Number Method)**
 - Final letters (ך, ם, ן, ף, ץ) have higher values
 - Used for deeper spiritual calculations
-- Eden learns this system from Rabbi Moshe in Jerusalem
+- Ethan learns this system from Rabbi Moshe in Jerusalem
 
 ### **Reduced Gematria (Mispar Katan)**
 - Reduces numbers to single digits (1-9)
-- **Eden** = 1+2+4 = **7** (completion)
+- **Ethan** = 1+2+4 = **7** (completion)
 - **Israel** = 1+0+0 = **1** (unity)
 - **Stone** = 8 (infinity)
 
 ## Psychological Integration
 
-### **Eden's Product Manager Mind**
+### **Ethan's Product Manager Mind**
 ```
-"It's like A/B testing reality," Eden tells Aaron. 
+"It's like A/B testing reality," Ethan tells Aaron. 
 "The universe is showing me different variables, 
 and the consistent patterns are the ones that matter."
 
@@ -223,7 +223,7 @@ instead of truth, you've missed the point."
 
 ### **Rabbi Levi's Balance**
 ```
-"Gematria is a tool, Eden, not a master. 
+"Gematria is a tool, Ethan, not a master. 
 It reveals what's already true, but it doesn't create truth. 
 The numbers are God's signature on reality, 
 but reality exists whether we can read the signature or not."
@@ -233,7 +233,7 @@ but reality exists whether we can read the signature or not."
 
 ### **Western Wall Experience (Chapter 16)**
 ```
-Eden's prayer note contains exactly 18 Hebrew words.
+Ethan's prayer note contains exactly 18 Hebrew words.
 He touches the stone 613 times without counting.
 The ancient stones in this section were laid in 36 BCE.
 His vision lasts precisely 7 minutes and 18 seconds.
@@ -244,12 +244,12 @@ His vision lasts precisely 7 minutes and 18 seconds.
 The vision reveals 888 pillars in the future Temple of consciousness.
 36 languages of prayer rise simultaneously.
 70 nations represented in the children playing together.
-Eden speaks 18 prophetic words in perfect Hebrew.
+Ethan speaks 18 prophetic words in perfect Hebrew.
 ```
 
 ### **Final Integration (Chapter 33)**
 ```
-Eden's final prayer at the Wall contains:
+Ethan's final prayer at the Wall contains:
 - 70 Hebrew words (universality)
 - 18 verses of gratitude (life)
 - 613 total letters (mitzvot)
@@ -265,7 +265,7 @@ Eden's final prayer at the Wall contains:
 - Include traditional warnings about obsessing over numbers
 
 ### **Character-Appropriate Knowledge**
-- Eden learns gradually through study and experience
+- Ethan learns gradually through study and experience
 - Rabbi Levi teaches traditional methods correctly
 - Sera knows cultural gematria but stays grounded
 - Aaron remains skeptical but notices patterns
@@ -276,4 +276,4 @@ Eden's final prayer at the Wall contains:
 - Show respect for traditional interpretations
 - Don't claim revelation of new gematria meanings
 
-This gematria framework adds a layer of authentic Jewish mysticism while serving the novel's themes of hidden divine presence, spiritual awakening, and the mathematics of meaning that underlies Eden's transformation from secular confusion to mystical integration.
+This gematria framework adds a layer of authentic Jewish mysticism while serving the novel's themes of hidden divine presence, spiritual awakening, and the mathematics of meaning that underlies Ethan's transformation from secular confusion to mystical integration.

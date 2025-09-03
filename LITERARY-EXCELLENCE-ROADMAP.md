@@ -9,7 +9,7 @@
 - **Voice modulation** based on character proximity and spiritual state
 
 ### ✅ **Character Dialogue Mastery Completed**
-- **Eden's progression**: From uncertain fragments to confident Hebrew integration
+- **Ethan's progression**: From uncertain fragments to confident Hebrew integration
 - **Sera's directness**: Israeli "dugri" culture with warmth and teaching
 - **Aaron's legal precision**: Intellectual defense mechanisms hiding emotion
 - **Rabbi Levi's questions**: Socratic method leading to revelation
@@ -17,7 +17,7 @@
 - **Palestinian voices**: Dignified, complex, authentic without appropriation
 
 ### ✅ **Complete Character Psychology Developed**
-- **Eden's specific traits**: Pattern recognition obsessive, hyper-empathic absorber, perfectionist procrastinator
+- **Ethan's specific traits**: Pattern recognition obsessive, hyper-empathic absorber, perfectionist procrastinator
 - **Authentic personality disorders**: INFP-T with realistic coping mechanisms
 - **Professional integration**: Product manager skills applied to spiritual journey
 - **Physical manifestations**: Body language that reveals internal states
@@ -54,7 +54,7 @@
 
 1. **Progressive Jewish Community**
    - Reform/Conservative Jews who've had spiritual awakenings
-   - Verify Eden's journey feels authentic, not appropriative
+   - Verify Ethan's journey feels authentic, not appropriative
    - Check synagogue/prayer experiences for accuracy
    - Confirm family dynamics ring true
 

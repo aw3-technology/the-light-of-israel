@@ -1,12 +1,12 @@
 # Chapter 27: Building in Jerusalem
 
 ## Opening Line Options
-1. "The absorption center clerk looked at Eden's application and said, 'Product manager? We have enough of those. Can you build?'"
-2. "Learning Hebrew at thirty-three felt like rewiring his brain, but Eden Israel Stone's soul already knew the words."
-3. "His parents arrived for visit number one, and Eden watched their American certainty crumble against Jerusalem stone."
+1. "The absorption center clerk looked at Ethan's application and said, 'Product manager? We have enough of those. Can you build?'"
+2. "Learning Hebrew at thirty-three felt like rewiring his brain, but Ethan Israel Stone's soul already knew the words."
+3. "His parents arrived for visit number one, and Ethan watched their American certainty crumble against Jerusalem stone."
 
 ## Chapter Summary
-Eden begins the practical process of making aliyah. Hebrew lessons, job hunting, bureaucracy, and his parents' first visit. The romanticized return meets Israeli reality. Sera pregnant. Eden works construction while studying for tech job. Building himself while building Jerusalem.
+Ethan begins the practical process of making aliyah. Hebrew lessons, job hunting, bureaucracy, and his parents' first visit. The romanticized return meets Israeli reality. Sera pregnant. Ethan works construction while studying for tech job. Building himself while building Jerusalem.
 
 ## Setting
 - **Primary Location**: Jerusalem absorption center, Ulpan (Hebrew school)
@@ -15,10 +15,10 @@ Eden begins the practical process of making aliyah. Hebrew lessons, job hunting,
 - **Atmosphere**: Grinding transformation, practical mysticism
 
 ## POV
-Third person intimate, Eden building new life
+Third person intimate, Ethan building new life
 
 ## Characters
-- **Eden Stone**: Immigrant, student, builder
+- **Ethan Stone**: Immigrant, student, builder
 - **Sera Mizrahi**: Pregnant, grounding force
 - **Miriam & David Stone**: Visiting parents, confused
 - **Yossi**: Construction foreman, sabra
@@ -52,21 +52,21 @@ Third person intimate, Eden building new life
 
 ### Scene 5: Showing Them Jerusalem
 - Western Wall doesn't move them
-- "It's just stones, Eden"
+- "It's just stones, Ethan"
 - Their hotel has bomb shelter
 - "This is what you chose?"
 
 ### Scene 6: The Confrontation
 - Mother: "Come home before baby"
 - Father: "This is impractical"
-- Eden: "This IS home"
+- Ethan: "This IS home"
 - Sera enters, pregnant visible
 
 ### Scene 7: Bureaucracy
 - Ministry of Interior, five hours
 - Wrong form, start over
 - "Welcome to Israel" (sarcastic)
-- Eden laughing at absurdity
+- Ethan laughing at absurdity
 
 ### Scene 8: Small Victory
 - First tech interview in Hebrew
@@ -85,14 +85,14 @@ Third person intimate, Eden building new life
 - Money tight, romance fading
 - Sera morning sickness severe
 - Parents can't understand choice
-- Eden's body changing from labor
+- Ethan's body changing from labor
 
 ## Dialogue Highlights
 - Yossi: "You think with hands now, good"
 - Mother: "You're throwing your life away"
 - Sera: "We're creating life, not throwing away"
 - Ulpan teacher: "Hebrew is thinking, not translating"
-- Father: "What about healthcare?" Eden: "It's free here"
+- Father: "What about healthcare?" Ethan: "It's free here"
 
 ## Internal Monologue
 - "My hands build what my mind can't grasp yet"
@@ -148,7 +148,7 @@ Arrival energy → Reality check → Physical grounding → Family crisis → Sm
 - Keep pregnancy realistic
 
 ## Ending
-Sabbath eve, Sera and Eden's apartment. Parents gone, place quiet. Eden's hands, rough from construction, light candles steadily. Sera, showing now, says the blessing. Eden adds, in broken Hebrew: "Thank you for this hard good life." Through window, cranes building Jerusalem. Inside, twins growing. Eden thinks: "I am Israel, wrestling. My sons won't have to." Sera corrects his grammar gently. They laugh. Outside, the muezzin calls. Inside, Jewish life continues.
+Sabbath eve, Sera and Ethan's apartment. Parents gone, place quiet. Ethan's hands, rough from construction, light candles steadily. Sera, showing now, says the blessing. Ethan adds, in broken Hebrew: "Thank you for this hard good life." Through window, cranes building Jerusalem. Inside, twins growing. Ethan thinks: "I am Israel, wrestling. My sons won't have to." Sera corrects his grammar gently. They laugh. Outside, the muezzin calls. Inside, Jewish life continues.
 
 ## Connection to Next Chapter
 Leads to Chapter 28 - Deeper integration, preparing for fatherhood
@@ -158,4 +158,4 @@ Leads to Chapter 28 - Deeper integration, preparing for fatherhood
 - Keep parents sympathetic
 - Hebrew struggles realistic
 - Balance hardship with joy
-- Make Eden's growth earned
+- Make Ethan's growth earned

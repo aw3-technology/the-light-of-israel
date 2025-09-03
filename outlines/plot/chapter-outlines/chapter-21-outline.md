@@ -1,12 +1,12 @@
 # Chapter 21: Athens - The Beautiful Exile
 
 ## Opening Line Options
-1. "The Parthenon stood perfect against the sky, and Eden understood why Jews had once chosen beauty over truth."
-2. "In Plaka, Eden found the old synagogue hidden behind tourist shops, as if Judaism itself had gone into hiding."
+1. "The Parthenon stood perfect against the sky, and Ethan understood why Jews had once chosen beauty over truth."
+2. "In Plaka, Ethan found the old synagogue hidden behind tourist shops, as if Judaism itself had gone into hiding."
 3. "The rabbi's contact in Athens was a philosophy professor who'd returned to faith after reading too much Aristotle."
 
 ## Chapter Summary
-Eden arrives in Athens, confronting Hellenism—the first great challenge to Judaism. He meets Professor Yannis Levy, a Greek Jew who explains how Greek philosophy both threatened and enriched Jewish thought. Eden grapples with the seduction of universal over particular.
+Ethan arrives in Athens, confronting Hellenism—the first great challenge to Judaism. He meets Professor Yannis Levy, a Greek Jew who explains how Greek philosophy both threatened and enriched Jewish thought. Ethan grapples with the seduction of universal over particular.
 
 ## Setting
 - **Primary Location**: Athens - Acropolis, Plaka district, synagogue
@@ -15,12 +15,12 @@ Eden arrives in Athens, confronting Hellenism—the first great challenge to Jud
 - **Atmosphere**: Ancient philosophy meeting modern tourism
 
 ## POV
-Third person intimate, Eden as stranger in familiar Western culture
+Third person intimate, Ethan as stranger in familiar Western culture
 
 ## Characters
-- **Eden Stone**: Seeing Judaism's first major exile
+- **Ethan Stone**: Seeing Judaism's first major exile
 - **Professor Yannis Levy**: Greek Jew, philosopher, guide
-- **Anna**: Yannis's daughter, secular, challenges Eden
+- **Anna**: Yannis's daughter, secular, challenges Ethan
 - **Rabbi of Athens**: Elderly, remembers community before Holocaust
 - **German tourists**: Uncomfortable parallel
 
@@ -42,7 +42,7 @@ Third person intimate, Eden as stranger in familiar Western culture
 - Perfect proportions, human scale
 - "This was the competition"
 - Beauty vs. truth discussion
-- Eden understands the temptation
+- Ethan understands the temptation
 
 ### Scene 4: Finding the Synagogue
 - Hidden in Plaka backstreets
@@ -53,14 +53,14 @@ Third person intimate, Eden as stranger in familiar Western culture
 ### Scene 5: Shabbat with Yannis
 - Small apartment, big ideas
 - Daughter Anna challenges: "Why choose tribe over humanity?"
-- Eden defends particularism for first time
+- Ethan defends particularism for first time
 - Lights grandmother's candlesticks
 
 ### Scene 6: The Philosophy
 - Yannis: "Greeks invented universal man"
 - "Jews insisted on particular covenant"
 - "Maccabees fought for right to be different"
-- Eden sees own assimilation differently
+- Ethan sees own assimilation differently
 
 ### Scene 7: The Cemetery
 - Ancient Jewish graves
@@ -69,7 +69,7 @@ Third person intimate, Eden as stranger in familiar Western culture
 - Finding famous rabbi's tomb
 
 ### Scene 8: Departure Clarity
-- Eden understands Hellenism's appeal
+- Ethan understands Hellenism's appeal
 - Also understands its emptiness
 - "Beauty without covenant is idol"
 - Boards plane to Rome stronger
@@ -84,13 +84,13 @@ Third person intimate, Eden as stranger in familiar Western culture
 - Only 5,000 Jews left in Greece
 - Romaniote Jews predate Sephardim
 - Synagogue uses Greek in liturgy
-- Eden's Greek philosophy knowledge helps
+- Ethan's Greek philosophy knowledge helps
 - Anna reminds him of his old self
 
 ## Dialogue Highlights
 - Yannis: "Socrates asked questions. Jews had answers."
 - Anna: "Why can't we all just be human?"
-- Eden: "Because humans without stories are ghosts"
+- Ethan: "Because humans without stories are ghosts"
 - Rabbi: "We survived Alexander. We'll survive this too."
 - Yannis: "Greece gave world democracy. Jews gave world conscience."
 
@@ -121,7 +121,7 @@ Third person intimate, Eden as stranger in familiar Western culture
 - Medieval: Byzantine period
 - Holocaust: 86% of Greek Jews killed
 - Modern: Tiny remnant community
-- Eden: Individual recapitulation
+- Ethan: Individual recapitulation
 
 ## Anna Subplot
 - Challenges his journey
@@ -137,11 +137,11 @@ Arrival → Seduction of beauty → Jewish memory → Philosophical challenge �
 - Make Hellenism's appeal real
 - Don't caricature philosophy
 - Show legitimate challenge to faith
-- Eden's growth through defending
+- Ethan's growth through defending
 - Balance tourism with depth
 
 ## Ending
-Airport, waiting for Rome flight. Anna texts: "You're making a mistake choosing tribe over truth." Eden responds: "Truth without a people to carry it dies. Ask Socrates." Deletes her number. Opens grandmother's prayer book, finds pressed flower from Athens—she was here too, 1952, refugee en route to America. Note in margin: "Beauty killed us. Memory saved us." Boards plane carrying both Jerusalem and Athens, but knowing which is home.
+Airport, waiting for Rome flight. Anna texts: "You're making a mistake choosing tribe over truth." Ethan responds: "Truth without a people to carry it dies. Ask Socrates." Deletes her number. Opens grandmother's prayer book, finds pressed flower from Athens—she was here too, 1952, refugee en route to America. Note in margin: "Beauty killed us. Memory saved us." Boards plane carrying both Jerusalem and Athens, but knowing which is home.
 
 ## Connection to Next Chapter
 Leads to Chapter 22 - Rome, where Temple treasures remain
@@ -150,5 +150,5 @@ Leads to Chapter 22 - Rome, where Temple treasures remain
 - Don't dismiss Greek philosophy
 - Make Anna sympathetic
 - Show real temptation of universalism
-- Keep Eden's growth believable
+- Keep Ethan's growth believable
 - Balance intellectual with emotional

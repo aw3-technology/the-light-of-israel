@@ -1,24 +1,24 @@
 # Chapter 12: Mystical Sparks
 
 ## Opening Line Options
-1. "The Zohar fell open to a page about hidden light, and Eden felt his grandmother's presence in the room."
-2. "Rabbi Levi drew the Tree of Life on a napkin, and suddenly Eden's depression had a cosmic diagram."
-3. "'Everything broken contains a spark waiting to be lifted,' the rabbi said, and Eden thought of his shattered life."
+1. "The Zohar fell open to a page about hidden light, and Ethan felt his grandmother's presence in the room."
+2. "Rabbi Levi drew the Tree of Life on a napkin, and suddenly Ethan's depression had a cosmic diagram."
+3. "'Everything broken contains a spark waiting to be lifted,' the rabbi said, and Ethan thought of his shattered life."
 
 ## Chapter Summary
-Rabbi Levi introduces Eden to Kabbalah—the mystical dimension of Judaism. Through the concepts of divine sparks, broken vessels, and tikkun olam, Eden begins to understand his depression and disconnection as part of a larger cosmic pattern of exile and repair.
+Rabbi Levi introduces Ethan to Kabbalah—the mystical dimension of Judaism. Through the concepts of divine sparks, broken vessels, and tikkun olam, Ethan begins to understand his depression and disconnection as part of a larger cosmic pattern of exile and repair.
 
 ## Setting
 - **Primary Location**: Rabbi's study, filled with sacred texts
-- **Secondary Location**: Eden's apartment, late night study
+- **Secondary Location**: Ethan's apartment, late night study
 - **Time**: Thursday evening, October 19, 2023
 - **Atmosphere**: Intimate teaching, reality expanding
 
 ## POV
-Third person intimate, Eden's consciousness expanding
+Third person intimate, Ethan's consciousness expanding
 
 ## Characters
-- **Eden Stone**: Student, hungry for meaning
+- **Ethan Stone**: Student, hungry for meaning
 - **Rabbi Levi Ben-David**: Teacher, revealing depths
 - **Mentioned**: Isaac Luria (16th century Kabbalist)
 - **Grandmother's presence**: Felt but not seen
@@ -26,14 +26,14 @@ Third person intimate, Eden's consciousness expanding
 ## Key Scenes
 
 ### Scene 1: The Question
-- Eden: "Why do I feel so broken?"
+- Ethan: "Why do I feel so broken?"
 - Rabbi doesn't answer directly
 - Instead opens the Zohar
 - "Let me tell you about the Breaking"
 
 ### Scene 2: Tzimtzum - Divine Contraction
 - God withdrawing to create space
-- Eden: "Like depression is withdrawal?"
+- Ethan: "Like depression is withdrawal?"
 - Rabbi: "Or making space for something new"
 - First paradigm shift
 
@@ -46,17 +46,17 @@ Third person intimate, Eden's consciousness expanding
 ### Scene 4: The Tree of Life
 - Rabbi draws the sefirot
 - Ten emanations of divine
-- Eden sees his own psychology mapped
+- Ethan sees his own psychology mapped
 - "As above, so below"
 
 ### Scene 5: Hidden Light
 - Or HaGanuz - primordial light
 - Hidden since creation
 - "Where?" "In Torah, in souls"
-- "In you, Eden Israel"
+- "In you, Ethan Israel"
 
 ### Scene 6: Personal Application
-- Eden's depression as exile (Galut)
+- Ethan's depression as exile (Galut)
 - His return as tikkun (repair)
 - "You're not just healing yourself"
 - "You're gathering sparks"
@@ -68,7 +68,7 @@ Third person intimate, Eden's consciousness expanding
 - "The light knows"
 
 ### Scene 8: Late Night Study
-- Eden alone with texts
+- Ethan alone with texts
 - Hebrew letters seem to pulse
 - Grandmother's prayer book margins
 - Same concepts in her writing
@@ -81,16 +81,16 @@ Third person intimate, Eden's consciousness expanding
 
 ## Important Details
 - Kabbalah means "receiving"
-- Eden's name in Hebrew = Garden
+- Ethan's name in Hebrew = Garden
 - Israel = Wrestling with God
 - Stone = Foundation stone of Temple
 - His whole name is mystical map
 
 ## Dialogue Highlights
 - Rabbi: "Depression isn't darkness—it's light in exile"
-- Eden: "This sounds like metaphor"
+- Ethan: "This sounds like metaphor"
 - Rabbi: "Metaphor is how infinite speaks to finite"
-- Eden: "My grandmother knew this?"
+- Ethan: "My grandmother knew this?"
 - Rabbi: "All survivors know about broken vessels"
 
 ## Internal Monologue
@@ -101,7 +101,7 @@ Third person intimate, Eden's consciousness expanding
 - "Grandmother, did you know I'd find this?"
 
 ## Symbolism
-- Broken vessels = Eden's shattered life
+- Broken vessels = Ethan's shattered life
 - Scattered sparks = disconnected identity
 - Tree of Life = map home
 - Hidden light = potential within
@@ -134,7 +134,7 @@ Seeking answers → Receiving framework → Initial resistance → Recognition �
 - Balance teaching with narrative
 
 ## Ending
-That night, Eden lights his grandmother's candles for the first time. He stumbles through the blessing, reading from his phone. The flames flicker and he remembers her words: "To remember. To not forget." But now he understands—it's not just memory. It's gathering light. His apartment, always so empty, feels suddenly inhabited. Not by ghosts but by possibility. He texts Rabbi Levi: "I lit them." The response: "Now you're gathering sparks." Eden stares at the flames until they blur through tears he doesn't try to stop. For the first time in years, they're not tears of depression but of recognition. The light was always there. Hidden, but there.
+That night, Ethan lights his grandmother's candles for the first time. He stumbles through the blessing, reading from his phone. The flames flicker and he remembers her words: "To remember. To not forget." But now he understands—it's not just memory. It's gathering light. His apartment, always so empty, feels suddenly inhabited. Not by ghosts but by possibility. He texts Rabbi Levi: "I lit them." The response: "Now you're gathering sparks." Ethan stares at the flames until they blur through tears he doesn't try to stop. For the first time in years, they're not tears of depression but of recognition. The light was always there. Hidden, but there.
 
 ## Connection to Next Chapter
 Leads to Chapter 13 - protests challenge his expanding consciousness
@@ -142,6 +142,6 @@ Leads to Chapter 13 - protests challenge his expanding consciousness
 ## Revision Considerations
 - Don't oversimplify Kabbalah
 - Avoid cultural appropriation concerns
-- Keep Eden skeptical even while opening
+- Keep Ethan skeptical even while opening
 - Make grandmother's connection subtle
 - Ground mystical in practical

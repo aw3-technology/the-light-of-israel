@@ -65,14 +65,14 @@ A secular Jewish man in New York, depressed and detached, has his life shattered
 
 ## 4. PROTAGONIST PROFILE
 
-### Eden Israel Stone
+### Ethan Israel Stone
 - **Age**: 33
-- **Full Name**: Eden Israel Stone (hides his middle name)
+- **Full Name**: Ethan Israel Stone (hides his middle name)
 - **Occupation**: Product Manager at NYC software company
 - **Status**: Unmarried, depressed, progressive, secular
 - **Arc**: Exile → Awakening → Pilgrimage → Understanding → Integration
 - **Name Symbolism**: 
-  - Eden (paradise/beginning) 
+  - Ethan (paradise/beginning) 
   - Israel (wrestles with God/middle kingdom) - hidden, shameful to him initially
   - Stone (foundation/end)
   - Together: Beginning-Middle-End, Paradise-Wrestling-Foundation
@@ -91,8 +91,8 @@ A secular Jewish man in New York, depressed and detached, has his life shattered
 ### Inner Circle
 - **Rabbi Levi Ben-David**: Mentor, Kabbalist, warm but enigmatic
 - **Seraphina "Sera" Mizrahi**: Love interest, Israeli, represents sacred love
-- **Aaron Gold**: Progressive friend, represents Eden's past self
-- **Parents (Miriam & David Stone)**: Assimilated, anxious about Eden's transformation
+- **Aaron Gold**: Progressive friend, represents Ethan's past self
+- **Parents (Miriam & David Stone)**: Assimilated, anxious about Ethan's transformation
 
 ### Archetypal Encounters
 Each character should be fully human while representing worldview:
@@ -124,9 +124,9 @@ Each character should be fully human while representing worldview:
 ## 7. TEXTUAL INTEGRATION
 
 ### How to Use Sacred Texts
-- **Direct Study**: Eden reading with rabbi
+- **Direct Study**: Ethan reading with rabbi
 - **Dialogue**: Characters quote naturally
-- **Internal Reflection**: Eden's journaling
+- **Internal Reflection**: Ethan's journaling
 - **Mystical Visions**: Texts overlap in dreams
 - **Contrast**: Truth texts vs. lie texts
 
@@ -160,7 +160,7 @@ Each character should be fully human while representing worldview:
 ## 9. CHAPTER-BY-CHAPTER EXECUTION
 
 ### Opening Chapters (1-6)
-- Establish Eden's emptiness viscerally
+- Establish Ethan's emptiness viscerally
 - Show don't tell depression
 - Make dating app culture feel hollow
 - Foreshadow without telegraphing
@@ -169,7 +169,7 @@ Each character should be fully human while representing worldview:
 - The news should feel like physical blow
 - Progressive friends' reactions should sting
 - Rabbi introduction must feel fated
-- Kabbalah teachings should crack Eden open
+- Kabbalah teachings should crack Ethan open
 
 ### Israel First Visit (14-20)
 - Every stone should feel ancient
@@ -195,7 +195,7 @@ Each character should be fully human while representing worldview:
 
 ### Character Development
 - No character is pure archetype - give quirks, contradictions
-- Every encounter changes Eden subtly
+- Every encounter changes Ethan subtly
 - Sera must be real woman, not just symbol
 - Parents' concern must feel genuine
 
@@ -222,7 +222,7 @@ Each character should be fully human while representing worldview:
 ## 11. SCENE CONSTRUCTION
 
 ### Essential Scenes to Nail
-1. Eden's depression morning routine (Ch 1)
+1. Ethan's depression morning routine (Ch 1)
 2. October 7 news breaking (Ch 7)
 3. First synagogue return (Ch 9)
 4. Meeting Rabbi Levi (Ch 10)
@@ -237,14 +237,14 @@ Each character should be fully human while representing worldview:
 - **Setting**: Vivid, sensory, symbolic
 - **Conflict**: Internal and external
 - **Dialogue**: Advancing plot and theme
-- **Reflection**: Eden's evolving consciousness
+- **Reflection**: Ethan's evolving consciousness
 - **Transition**: Smooth flow between scenes
 
 ---
 
 ## 12. EMOTIONAL ARC TRACKING
 
-### Eden's Emotional Journey
+### Ethan's Emotional Journey
 1. **Numbness** (Ch 1-6): Depression, disconnection
 2. **Rupture** (Ch 7-8): October 7 shock
 3. **Seeking** (Ch 9-13): Tentative awakening
@@ -271,11 +271,11 @@ Each character should be fully human while representing worldview:
 - Never appropriate Holocaust for effect
 
 ### What TO Do Instead
-- Ask questions through Eden
+- Ask questions through Ethan
 - Make every character complex
 - Show depression transforming, not vanishing
 - Weave information through experience
-- Make Sera challenge Eden
+- Make Sera challenge Ethan
 - Show Jewish responsibility not superiority
 - Present multiple truths
 - Approach Holocaust with reverence
@@ -296,7 +296,7 @@ Each character should be fully human while representing worldview:
 
 ### Metaphor Systems
 - Light/darkness throughout
-- Garden/stone (Eden's name)
+- Garden/stone (Ethan's name)
 - Exile/return patterns
 - Shattering/repair (Kabbalistic)
 
@@ -327,7 +327,7 @@ Each character should be fully human while representing worldview:
 ## 16. ENDING REQUIREMENTS
 
 ### What the Ending Must Accomplish
-- Eden integrated but not "cured"
+- Ethan integrated but not "cured"
 - Relationship with Sera tender but realistic
 - Spiritual awakening without fundamentalism
 - Hope without naivety
@@ -335,18 +335,18 @@ Each character should be fully human while representing worldview:
 - Light carried forward, not hoarded
 
 ### Final Image Options
-- Eden at Western Wall with prayer
-- Eden and Sera lighting Shabbat candles
-- Eden teaching someone else what he learned
-- Eden in desert, accepting mystery
-- Eden writing in journal, continuing journey
+- Ethan at Western Wall with prayer
+- Ethan and Sera lighting Shabbat candles
+- Ethan teaching someone else what he learned
+- Ethan in desert, accepting mystery
+- Ethan writing in journal, continuing journey
 
 ---
 
 ## 17. QUALITY MARKERS
 
 ### Signs of Success
-- Reader feels Eden's depression viscerally
+- Reader feels Ethan's depression viscerally
 - October 7 impact feels genuine
 - Each location feels lived-in
 - Philosophy emerges from story
@@ -369,7 +369,7 @@ Each character should be fully human while representing worldview:
 
 ## 18. VOICE CONSISTENCY
 
-### Maintaining Eden's Voice
+### Maintaining Ethan's Voice
 - Track his vocabulary evolution
 - Keep core personality consistent
 - Show growth through subtle changes
@@ -399,7 +399,7 @@ Each character should be fully human while representing worldview:
 
 Before completing each chapter, verify:
 
-□ Eden's voice consistent with his arc
+□ Ethan's voice consistent with his arc
 □ New characters fully dimensional
 □ Themes emerging naturally
 □ Sacred texts integrated smoothly
@@ -431,7 +431,7 @@ The AI writing agent must reference these project files for consistency and dept
 - **`/outlines/plot/scene-by-scene.md`** - Granular scene planning template
 
 #### Character Development Files
-- **`/outlines/characters/protagonist.md`** - Complete Eden Stone profile
+- **`/outlines/characters/protagonist.md`** - Complete Ethan Stone profile
 - **`/outlines/characters/seraphina-profile.md`** - Detailed Sera character development
 - **`/outlines/characters/rabbi-david.md`** - Mentor character depth
 - **`/outlines/characters/full-character-roster.md`** - All 23+ characters with roles and appearances
@@ -441,7 +441,7 @@ The AI writing agent must reference these project files for consistency and dept
 #### Thematic Architecture
 - **`/outlines/themes/theme-tracker.md`** - Primary and secondary themes with chapter appearances
 - **`/outlines/themes/thematic-architecture.md`** - Complete thematic framework and progression
-- **`/outlines/themes/spiritual-awakening-guide.md`** - The "hidden Torah" - Eden's 10-stage spiritual journey
+- **`/outlines/themes/spiritual-awakening-guide.md`** - The "hidden Torah" - Ethan's 10-stage spiritual journey
 
 #### World Building
 - **`/world-building/setting.md`** - All locations with sensory details (NYC, Israel, Greece, Rome, Germany, Egypt)
@@ -481,7 +481,7 @@ The AI writing agent must reference these project files for consistency and dept
    - Philosophical debates: Draw from archetypal characters and referenced texts
 
 4. **Maintaining Consistency**:
-   - Track Eden's emotional evolution per `33-chapter-breakdown.md`
+   - Track Ethan's emotional evolution per `33-chapter-breakdown.md`
    - Ensure vocabulary evolution matches `style-guide.md`
    - Verify timeline continuity with `timeline.md`
    - Cross-reference all character appearances
@@ -526,4 +526,4 @@ The Light of Israel should read like a contemporary classic: accessible enough f
 
 Every sentence should serve both story and meaning. Every character should be both person and possibility. Every chapter should be both entertaining and enlightening.
 
-This is not just Eden's story — it's a meditation on what it means to be human, to suffer, to seek, and to find not answers but presence.
+This is not just Ethan's story — it's a meditation on what it means to be human, to suffer, to seek, and to find not answers but presence.

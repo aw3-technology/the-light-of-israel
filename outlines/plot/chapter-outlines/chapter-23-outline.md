@@ -1,12 +1,12 @@
 # Chapter 23: Berlin - The Void
 
 ## Opening Line Options
-1. "In Berlin, the Holocaust Memorial looked like gravestones from above and prison cells from within, and Eden understood it was both."
+1. "In Berlin, the Holocaust Memorial looked like gravestones from above and prison cells from within, and Ethan understood it was both."
 2. "Platform 17 at Grunewald station still showed the departure times: 'October 18, 1941, 1,089 Jews, destination: Łódź.'"
-3. "The Jewish Museum's void stretched three stories of empty space, and Eden heard his grandmother's silence echo."
+3. "The Jewish Museum's void stretched three stories of empty space, and Ethan heard his grandmother's silence echo."
 
 ## Chapter Summary
-Eden confronts the Holocaust in Berlin. Visits memorials, meets elderly survivor Hannah Weiss, and young German Jew David who chose to return. Grapples with civilization becoming death machine. On grandmother's yahrzeit, discovers her family's fate.
+Ethan confronts the Holocaust in Berlin. Visits memorials, meets elderly survivor Hannah Weiss, and young German Jew David who chose to return. Grapples with civilization becoming death machine. On grandmother's yahrzeit, discovers her family's fate.
 
 ## Setting
 - **Primary Location**: Berlin - Holocaust Memorial, Jewish Museum, Platform 17
@@ -15,10 +15,10 @@ Eden confronts the Holocaust in Berlin. Visits memorials, meets elderly survivor
 - **Atmosphere**: Calculated evil's remnants, impossible recovery
 
 ## POV
-Third person intimate, Eden in the void
+Third person intimate, Ethan in the void
 
 ## Characters
-- **Eden Stone**: Facing the ultimate exile—death
+- **Ethan Stone**: Facing the ultimate exile—death
 - **Hannah Weiss**: 95, survivor, still in Berlin
 - **David Goldmann**: 30, Israeli who moved to Berlin
 - **German guide**: Young woman, burdened by history
@@ -30,7 +30,7 @@ Third person intimate, Eden in the void
 - 2,711 concrete slabs
 - Lost among graves
 - Children playing on them
-- Eden's rage at normalization
+- Ethan's rage at normalization
 
 ### Scene 2: Platform 17
 - Exact deportation records
@@ -47,20 +47,20 @@ Third person intimate, Eden in the void
 ### Scene 4: The Jewish Museum
 - Void installation
 - Sound of falling metal
-- Eden breaks down completely
+- Ethan breaks down completely
 - David finds him there
 
 ### Scene 5: David's Perspective
 - Young Israeli in Berlin
 - "Best techno scene"
-- Eden's anger at frivolity
+- Ethan's anger at frivolity
 - "We can't live in graves"
 
 ### Scene 6: Wannsee House
 - Where Final Solution planned
 - Now educational center
 - Bureaucracy of genocide
-- Eden vomits in garden
+- Ethan vomits in garden
 
 ### Scene 7: Grandmother's Yahrzeit
 - December 2nd (realizes date)
@@ -84,15 +84,15 @@ Third person intimate, Eden in the void
 - Berlin has fastest growing Jewish community
 - Most are Russian immigrants
 - Armed guards at all sites
-- Eden's family from Poland originally
+- Ethan's family from Poland originally
 - Hannah knew his grandmother's cousin
 
 ## Dialogue Highlights
 - Hannah: "The Germans killed my family. Germany is my revenge—I lived."
 - David: "You can't understand the future through the past"
-- Eden: "This isn't past. October 7th proved that."
+- Ethan: "This isn't past. October 7th proved that."
 - Guide: "We must never forget"
-- Eden: "You already have"
+- Ethan: "You already have"
 
 ## Internal Monologue
 - "How did Beethoven's nation build Auschwitz?"
@@ -127,14 +127,14 @@ Third person intimate, Eden in the void
 - Survived Bergen-Belsen
 - Returned to Berlin 1950
 - "They wanted us dead. I live."
-- Makes Eden eat (Jewish mother)
+- Makes Ethan eat (Jewish mother)
 - "Your grandmother knew—now you know"
 
 ## David's Challenge
 - Represents different response
 - Berlin as hip city
 - "Jews can live anywhere now"
-- Eden sees naivety
+- Ethan sees naivety
 - October 7th changed everything
 
 ## Chapter Arc
@@ -148,7 +148,7 @@ Arrival → Memorial overwhelming → Personal discovery → Survivor wisdom →
 - Connect to October 7th without equating
 
 ## Ending
-Last morning. Eden visits Platform 17 alone, pre-dawn. Places stone on platform for each family member murdered. Twenty-three stones. Reads their names aloud in freezing air. Takes train to Poland, following their route. Text from Sera: "Are you okay?" Response: "I understand silence now." Through train window, watches German countryside blur. Same tracks, different destination. Carries their names forward.
+Last morning. Ethan visits Platform 17 alone, pre-dawn. Places stone on platform for each family member murdered. Twenty-three stones. Reads their names aloud in freezing air. Takes train to Poland, following their route. Text from Sera: "Are you okay?" Response: "I understand silence now." Through train window, watches German countryside blur. Same tracks, different destination. Carries their names forward.
 
 ## Connection to Next Chapter
 Leads to Chapter 24 - Poland, visiting Auschwitz
@@ -158,4 +158,4 @@ Leads to Chapter 24 - Poland, visiting Auschwitz
 - Don't appropriate survivor stories
 - Avoid trauma tourism
 - Balance horror with humanity
-- Make Eden's response personal not universal
+- Make Ethan's response personal not universal

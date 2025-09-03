@@ -1,12 +1,12 @@
 # Chapter 31: The Temple Mount Vision
 
 ## Opening Line Options
-1. "Eden stood where Abraham bound Isaac, where Solomon built, where Muhammad ascended, and felt all of history pressing through his chest."
-2. "The Temple Mount at dawn, empty except for birds, and Eden Israel Stone saw what was, what is, and what might be."
+1. "Ethan stood where Abraham bound Isaac, where Solomon built, where Muhammad ascended, and felt all of history pressing through his chest."
+2. "The Temple Mount at dawn, empty except for birds, and Ethan Israel Stone saw what was, what is, and what might be."
 3. "He wasn't supposed to be there—Jews rarely allowed—but the guard looked at him and simply nodded."
 
 ## Chapter Summary
-Through mysterious circumstances, Eden gains access to the Temple Mount at dawn. Has profound mystical vision of past, present, and future. Sees the Temple standing, destroyed, rebuilt. Understands the role of the "middle kingdom" in reconciliation. Peak spiritual experience.
+Through mysterious circumstances, Ethan gains access to the Temple Mount at dawn. Has profound mystical vision of past, present, and future. Sees the Temple standing, destroyed, rebuilt. Understands the role of the "middle kingdom" in reconciliation. Peak spiritual experience.
 
 ## Setting
 - **Primary Location**: Temple Mount/Haram al-Sharif
@@ -15,10 +15,10 @@ Through mysterious circumstances, Eden gains access to the Temple Mount at dawn.
 - **Atmosphere**: Timeless, all times at once
 
 ## POV
-Third person intimate, Eden between worlds
+Third person intimate, Ethan between worlds
 
 ## Characters
-- **Eden Stone**: Visionary, bridge figure
+- **Ethan Stone**: Visionary, bridge figure
 - **Ahmad al-Rashid**: Palestinian Temple Mount guard, shares mystical experience
 - **Rabbi Levi**: Appears in vision
 - **The presence**: Not seen but felt
@@ -43,14 +43,14 @@ Third person intimate, Eden between worlds
 ### Scene 3: The First Vision
 - Temple standing in impossible detail - every stone, every vessel
 - Priests in white moving in choreographed sacred dance
-- Eden seeing through all time layers simultaneously
+- Ethan seeing through all time layers simultaneously
 - Incense smoke forming Hebrew letters: Kadosh, Kadosh, Kadosh (Holy)
 - Sound of Temple service - shofars, Levitical singing
 - Light emanating from Holy of Holies, too bright to look at directly
 
 ### Scene 4: The Destruction
 - Flames, screaming, exile
-- Eden feeling the loss physically
+- Ethan feeling the loss physically
 - Stones falling like tears
 - "This is why we remember"
 
@@ -67,10 +67,10 @@ Third person intimate, Eden between worlds
 - **18 Palestinian and 18 Israeli families** praying side by side (chai/life for all)
 - Structure resonates at frequency of **613 Hz** (mitzvot made audible)
 - Light beings speaking **Hebrew gematria words** that equal peace in all languages
-- Vision lasts **7 minutes 18 seconds** (Eden's name value in time)
+- Vision lasts **7 minutes 18 seconds** (Ethan's name value in time)
 
 ### Scene 7: The Understanding
-- Eden as bridge figure
+- Ethan as bridge figure
 - Israel = middle kingdom
 - Not conquest but reconciliation
 - "The Temple is built of souls"
@@ -92,16 +92,16 @@ Third person intimate, Eden between worlds
 ## Important Details
 - Jews technically forbidden there
 - Political/religious tension point
-- Eden's vision non-triumphalist
+- Ethan's vision non-triumphalist
 - Ahmad also had dream
 - Happens during Sukkot (tabernacles)
 
 ## Dialogue Highlights
 - Ahmad: "I dreamed of you coming"
-- Eden: "This place holds all of us"
+- Ethan: "This place holds all of us"
 - Vision voice: "The middle kingdom reconciles"
 - Ahmad: "Tell no one yet"
-- Eden: "The Temple stands in hearts"
+- Ethan: "The Temple stands in hearts"
 
 ## Internal Monologue
 - "Every prayer ever prayed here still echoes"
@@ -118,7 +118,7 @@ Third person intimate, Eden between worlds
 - Dawn = new possibility
 
 ## Divine Presence Elements + Gematria Integration
-- Access granted when Eden speaks his full name (**718** gematria value opens spiritual lock)
+- Access granted when Ethan speaks his full name (**718** gematria value opens spiritual lock)
 - Ahmad receives identical vision - both men **36 years old** (hidden righteous)
 - Sunrise illuminates Dome at **6:13 AM** exactly (mitzvot time)
 - Vision lasts **18 minutes** but feels eternal (chai/life expanded)
@@ -135,12 +135,12 @@ Third person intimate, Eden between worlds
 - Light replacing physical structure
 - Palestinian families among the ascending
 - Jewish and Arab children playing in courtyards
-- Eden and Ahmad as bridge figures
+- Ethan and Ahmad as bridge figures
 - "House of prayer for all nations" realized
 
 ## Political Complexity
 - Most contentious place on earth
-- Eden's vision transcends politics
+- Ethan's vision transcends politics
 - Not denying anyone's claim
 - Seeing deeper pattern
 - "Fighting over coordinates of infinity"
@@ -155,9 +155,9 @@ Third person intimate, Eden between worlds
 ## Ahmad al-Rashid's Role
 - Palestinian Waqf guard, family displaced from Haifa 1948
 - Father and grandfather also Temple Mount guards
-- Received same prophetic dream as Eden
+- Received same prophetic dream as Ethan
 - Represents Palestinian spiritual connection to site
-- Bridge figure in Eden's "middle kingdom" vision
+- Bridge figure in Ethan's "middle kingdom" vision
 - "We guard the same holiness, different doors"
 - Son studying engineering in Germany (parallel to Jewish diaspora)
 
@@ -179,7 +179,7 @@ Dawn arrival → Access granted → Vision begins → Time travel → Understand
 - Taste of ancient incense
 
 ## Ending
-Walking home through Jerusalem, morning traffic beginning. Eden normal outside, transformed within. Passes Western Wall, touches briefly. Arrives home to twins crying, Sera exhausted. Takes boys, changes diapers, makes coffee. Ordinary after extraordinary. But carrying vision like pregnancy. Sera: "Where were you?" Eden: "At the beginning and end." She looks at him, sees something, says nothing. Day continues. Vision pulses beneath everything. Eden Israel Stone, holding future and past, changing diapers in present. The middle kingdom embodied.
+Walking home through Jerusalem, morning traffic beginning. Ethan normal outside, transformed within. Passes Western Wall, touches briefly. Arrives home to twins crying, Sera exhausted. Takes boys, changes diapers, makes coffee. Ordinary after extraordinary. But carrying vision like pregnancy. Sera: "Where were you?" Ethan: "At the beginning and end." She looks at him, sees something, says nothing. Day continues. Vision pulses beneath everything. Ethan Israel Stone, holding future and past, changing diapers in present. The middle kingdom embodied.
 
 ## Connection to Next Chapter
 Leads to Chapter 32 - Sharing the teaching

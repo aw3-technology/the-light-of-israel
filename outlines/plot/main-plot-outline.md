@@ -1,7 +1,7 @@
 # Main Plot Outline
 
 ## Story Premise
-Eden Stone, a 33-year-old secular Jewish product manager in New York, lives a successful but spiritually empty life until the October 7th, 2023 Hamas attacks shatter his worldview and force him to confront his spiritual emptiness and Jewish identity. His search for meaning leads him from Brooklyn synagogues to Jerusalem's ancient stones, and ultimately through the cradles of Western civilization—Greece, Rome, Germany, and Egypt—before returning to Israel with a profound understanding of faith, history, and his place in the cosmic story.
+Ethan Stone, a 33-year-old secular Jewish product manager in New York, lives a successful but spiritually empty life until the October 7th, 2023 Hamas attacks shatter his worldview and force him to confront his spiritual emptiness and Jewish identity. His search for meaning leads him from Brooklyn synagogues to Jerusalem's ancient stones, and ultimately through the cradles of Western civilization—Greece, Rome, Germany, and Egypt—before returning to Israel with a profound understanding of faith, history, and his place in the cosmic story.
 
 ## Genre
 Literary Fiction / Spiritual Journey / Contemporary Jewish Literature
@@ -26,29 +26,29 @@ Adult readers interested in spiritual awakening, Jewish identity, Middle East po
 
 ### Opening Scene
 **Chapter 1: The Hollow Morning**
-Eden Stone wakes at 7:18 AM in his sterile Brooklyn apartment, trapped in corporate emptiness in September 2023. His grandmother died the previous October 7th, 2022. The mysterious text from Rabbi Levi creates the first crack in his spiritual numbness, just weeks before October 7th, 2023 will shatter his world.
+Ethan Stone wakes at 7:18 AM in his sterile Brooklyn apartment, trapped in corporate emptiness in September 2023. His grandmother died the previous October 7th, 2022. The mysterious text from Rabbi Levi creates the first crack in his spiritual numbness, just weeks before October 7th, 2023 will shatter his world.
 
 ### Introducing the World
 **Chapters 1-2: Contemporary Jewish America**
 - Secular assimilated lifestyle in Brooklyn/Manhattan tech scene
-- Hidden Jewish identity ("Eden Israel Stone" → "Eden Stone")
+- Hidden Jewish identity ("Ethan Israel Stone" → "Ethan Stone")
 - Post-October 7th, 2023 trauma lingering in collective consciousness
 - Family disconnection from tradition despite immigrant heritage
 
 ### Introducing the Protagonist
-**Chapter 1: Eden's Status Quo**
+**Chapter 1: Ethan's Status Quo**
 - 33-year-old Senior Product Manager, financially successful but spiritually dead
 - Suffers from existential depression, hiding Jewish middle name "Israel"
 - Avoids family, ignores grandmother's yahrzeit, lives in emotional exile
 - Technology-dependent but human-connection starved
 
 ### Inciting Incident
-**Chapter 2: Rabbi Levi's Invitation**
-Eden arrives at Congregation Beth Shalom following the mysterious text. Rabbi Levi reveals he knew Rivka Stone and begins Eden's spiritual awakening through questions rather than answers. First Hebrew words in years feel like "coming home."
+**Chapter 2-6: Building Spiritual Crisis**
+Ethan cycles through failed dating attempts, empty social connections, family distance, and triggered memories of his Jewish childhood. His grandmother's yahrzeit on September 30th passes with him alone and disconnected.
 
 ### Plot Point 1 / First Turning Point
-**Chapter 7: October 7th Memorial**
-Attending the third anniversary vigil for October 7th attacks, Eden experiences visceral connection to Jewish suffering and resilience. Decides to take sabbatical from work and explore his heritage seriously for the first time.
+**Chapter 7: The Breaking News**
+October 7th, 2023 - Hamas attacks unfold in real-time. Ethan doomscrolls news, watches live footage. His grandmother's yahrzeit was exactly one week ago. The collective trauma cracks something open inside him.
 
 ---
 
@@ -58,32 +58,32 @@ Attending the third anniversary vigil for October 7th attacks, Eden experiences 
 
 #### New World
 **Chapters 9-12: Immersion in Jewish Learning**
-Eden begins intensive study with Rabbi Levi, rediscovers Hebrew, explores Kabbalah. Reconnects with parents who reveal family history hidden during assimilation. Meets Sera, Israeli graduate student studying at Columbia.
+Ethan attends vigils, returns to synagogue for first time in years, meets Rabbi David (later called Rabbi Levi) who becomes his mentor. Studies Kabbalah, reconnects with bar mitzvah memories. Campus protests force him to confront Israel-Palestine complexity.
 
 #### Tests and Trials
 **Chapters 13-14: Identity Conflicts**
-Friend Aaron challenges Eden's "regression" into religion. Israeli-Palestinian campus protests force Eden to confront complex Middle East realities. First attempts at prayer feel awkward but somehow necessary.
+Friend Aaron challenges Ethan's "regression" into religion. Israeli-Palestinian campus protests force Ethan to confront complex Middle East realities. First attempts at prayer feel awkward but somehow necessary.
 
 #### B-Story/Subplot
-**Eden-Sera Romance**: Sera becomes spiritual and cultural bridge, teaching modern Hebrew, sharing Israeli perspectives. Their relationship deepens as Eden's identity integrates.
+**Decision to Visit Israel**: Ethan decides impulsively to go to Israel after witnessing protests, needing ground truth rather than political slogans.
 
-### Midpoint - THE PILGRIMAGE DECISION
-**Chapter 16: Aliyah Exploration**
-Sera's visa expires, returns to Jerusalem. Eden faces choice: comfortable American Jewish identity or authentic pilgrimage to source. Books ticket to Israel, quits job, commits to spiritual journey.
+### Midpoint - MEETING SERA
+**Chapter 15: Jerusalem Rising**
+Ethan arrives in Jerusalem and at a Shabbat dinner meets **Seraphina "Sera" Mizrahi**, an Israeli woman studying at Hebrew University. Immediate recognition between them. She becomes his spiritual and romantic partner through the journey.
 
 ### Part 2: Complications - PILGRIMAGE (Chapters 17-25)
 
 #### Raising the Stakes
 **Chapters 17-20: Israel Immersion**
-Jerusalem overwhelms Eden with history, holiness, and complexity. Palestinian-Israeli tensions challenge simplistic narratives. Western Wall prayer experience profound but confusing. Sera's family skeptical of American "spiritual tourist."
+Sera guides Ethan through Israel - October 7th attack sites (Chapter 17), Kabbalistic study of evil (Chapter 18), Dead Sea healing (Chapter 19). Ethan receives calling to understand Jewish exile through visiting diaspora sites (Chapter 20).
 
 #### Darkest Moment
 **Chapters 21-24: Civilizational Journey**
-Eden travels through Greece (philosophy), Rome (empire), Germany (Holocaust), Egypt (slavery) - confronting how Jewish survival outlasted every oppressing civilization. At Auschwitz, questions if faith makes sense after ultimate evil.
+Ethan travels alone through Athens (philosophy vs. faith), Rome (empire that destroyed Temple), Berlin/Auschwitz (Holocaust confrontation), Egypt (original exile). Sera waits in Jerusalem, their love deepening through separation.
 
 ### Plot Point 2 / Second Turning Point
 **Chapter 25: The Vision**
-At Auschwitz memorial, Eden experiences mystical vision connecting all Jewish suffering to divine purpose. Understands that light emerges through darkness, not despite it. Ready for final transformation.
+At Auschwitz memorial, Ethan experiences mystical vision connecting all Jewish suffering to divine purpose. Understands that light emerges through darkness, not despite it. Ready for final transformation.
 
 ---
 
@@ -91,49 +91,49 @@ At Auschwitz memorial, Eden experiences mystical vision connecting all Jewish su
 
 ### Climax
 **Chapter 31: Temple Mount Vision**
-Eden and Palestinian guard Ahmad share mystical vision of past Temple, present conflict, and future reconciliation. Eden fully embodies "Israel" - one who wrestles with God. Understands his role as bridge-builder between traditions.
+Ethan and Palestinian guard Ahmad share mystical vision of past Temple, present conflict, and future reconciliation. Ethan fully embodies "Israel" - one who wrestles with God. Understands his role as bridge-builder between traditions.
 
 ### Falling Action
 **Chapters 29-30: Relationships Healing**
-Parents visit Jerusalem, beginning their own return journey. Aaron arrives with Palestinian girlfriend Layla - friendship healed through mutual growth. Eden and Sera engaged, planning Jerusalem wedding.
+Parents visit Jerusalem, beginning their own return journey. Aaron arrives with Palestinian girlfriend Layla - friendship healed through mutual growth. Ethan and Sera engaged, planning Jerusalem wedding.
 
 ### Resolution
 **Chapter 32: The Teacher**
-Eden teaching Hebrew and Jewish wisdom in Jerusalem community center to diverse students. Parents making aliyah. Rabbi Levi preparing retirement, passing torch. Eden becomes link in chain of transmission.
+Ethan teaching Hebrew and Jewish wisdom in Jerusalem community center to diverse students. Parents making aliyah. Rabbi Levi preparing retirement, passing torch. Ethan becomes link in chain of transmission.
 
 ### Denouement
 **Chapter 33: The Light of Israel**
-October 7th, 2027 - now celebration rather than trauma day. Eden stands at Western Wall with twin sons Ari and Lev, pregnant Sera beside him. Lighting candles, teaching Hebrew, living fully integrated identity as bridge between worlds. "The light of Israel" isn't place or people - it's practice of wrestling with divine until blessing emerges from struggle.
+October 7th, 2026 - third anniversary, now celebration rather than trauma day. Ethan stands at Western Wall with twin sons Ari and Lev, pregnant Sera beside him. Lighting candles, teaching Hebrew, living fully integrated identity as bridge between worlds. "The light of Israel" isn't place or people - it's practice of wrestling with divine until blessing emerges from struggle.
 
 ---
 
 ## Major Plot Points Timeline
 
 **PART I: EXILE (Chapters 1-6)**
-1. **Chapter 1**: Hollow morning, mysterious Rabbi Levi text at 7:18 PM
-2. **Chapter 2**: First synagogue visit, Rabbi Levi reveals grandmother connection
-3. **Chapter 3**: Family dinner, parents reveal hidden Jewish history
-4. **Chapter 4**: Friend Aaron's secular Jewish perspective, ideological conflict
-5. **Chapter 5**: First Hebrew lesson, language awakening
-6. **Chapter 6**: Shabbat dinner, sacred time experience
+1. **Chapter 1**: Hollow morning in late September 2023, mysterious text at 7:18 PM
+2. **Chapter 2**: Failed dating attempts, shallow connections
+3. **Chapter 3**: Empty drinks with progressive friends
+4. **Chapter 4**: Family phone call, distance from parents
+5. **Chapter 5**: Grandmother's yahrzeit (September 30), triggered memories
+6. **Chapter 6**: October 6th prophetic dreams, sensing something coming
 
 **PART II: AWAKENING (Chapters 7-13)**
-7. **Chapter 7**: October 7th vigil, decision to explore heritage seriously
-8. **Chapter 8**: Takes sabbatical, commits to spiritual journey
-9. **Chapter 9**: Intensive Jewish study begins with Rabbi Levi
-10. **Chapter 10**: Meets Sera at Columbia, attraction to Israeli perspective
+7. **Chapter 7**: October 7th attacks happen in real-time, collective trauma
+8. **Chapter 8**: Attends vigils, solidarity and alienation
+9. **Chapter 9**: First Shabbat return to synagogue
+10. **Chapter 10**: Meets Rabbi David/Levi, mentorship begins
 11. **Chapter 11**: Parents visit, family reconciliation begins
 12. **Chapter 12**: Kabbalah study, mystical concepts introduced
 13. **Chapter 13**: Campus protests, Middle East complexity confronted
 
 **PART III: PILGRIMAGE (Chapters 14-20)**
 14. **Chapter 14**: Decision to visit Israel, relationship deepens with Sera
-15. **Chapter 15**: Arrival in Jerusalem, sensory/spiritual overwhelm
+15. **Chapter 15**: Jerusalem arrival, meets Sera at Shabbat dinner
 16. **Chapter 16**: Western Wall first prayer, ancient stone connection
-17. **Chapter 17**: Palestinian perspectives, Ahmad the guard friendship
-18. **Chapter 18**: Sera's family dinner, Israeli complexity
-19. **Chapter 19**: Tel Aviv secular vs. Jerusalem religious tension
-20. **Chapter 20**: Masada pilgrimage, Jewish resistance history
+17. **Chapter 17**: Southern desert, October 7th attack sites with Sera
+18. **Chapter 18**: Kabbalistic study of evil with Rabbi Levi
+19. **Chapter 19**: Dead Sea healing experience with Sera
+20. **Chapter 20**: Call to exile journey, preparation to leave Israel
 
 **PART IV: EXILE JOURNEY (Chapters 21-25)**
 21. **Chapter 21**: Athens - philosophical foundations of Western thought
@@ -156,12 +156,12 @@ October 7th, 2027 - now celebration rather than trauma day. Eden stands at Weste
 
 ## Subplots
 
-### Subplot A: Eden-Sera Romance
-- **Purpose**: Provides authentic Israeli perspective, tests Eden's commitment to new identity, creates stakes for staying in Israel
+### Subplot A: Ethan-Sera Romance
+- **Purpose**: Provides authentic Israeli perspective, tests Ethan's commitment to new identity, creates stakes for staying in Israel
 - **Arc**: 
-  - **Beginning**: Meet at Columbia (Ch. 10), cultural attraction
-  - **Middle**: Long-distance relationship during pilgrimage (Ch. 14-25), tests of commitment
-  - **End**: Jerusalem engagement and marriage (Ch. 29-33), children as next generation
+  - **Beginning**: Meet at Jerusalem Shabbat dinner (Ch. 15), immediate recognition
+  - **Middle**: Sera guides Ethan through Israel (Ch. 16-20), relationship deepens, separation during exile journey (Ch. 21-25)
+  - **End**: Proposal at Western Wall (Ch. 26), marriage (Ch. 28), twin sons Ari and Lev, pregnant again (Ch. 33)
 
 ### Subplot B: Parent-Child Reconciliation
 - **Purpose**: Demonstrates generational healing, family patterns of assimilation/return
@@ -173,22 +173,22 @@ October 7th, 2027 - now celebration rather than trauma day. Eden stands at Weste
 ### Subplot C: Aaron Friendship Evolution
 - **Purpose**: Represents progressive Jewish identity struggle, friendship transcending ideological difference
 - **Arc**:
-  - **Beginning**: Secular Jewish friend challenges Eden's "regression" (Ch. 4, 13)
+  - **Beginning**: Secular Jewish friend challenges Ethan's "regression" (Ch. 4, 13)
   - **Middle**: Conflict over Israel, temporary estrangement (Ch. 17-21)
   - **End**: Aaron dates Palestinian woman, friendship healed through complexity (Ch. 29)
 
 ### Subplot D: Rabbi Levi Mentorship
 - **Purpose**: Traditional knowledge transmission, connecting generations of wisdom
 - **Arc**:
-  - **Beginning**: Mysterious invitation, grandmother connection revealed (Ch. 2)
+  - **Beginning**: Meets Rabbi David/Levi after October 7th attacks (Ch. 10)
   - **Middle**: Intensive teaching, Kabbalah introduction (Ch. 9-12)
-  - **End**: Passing torch to Eden as next teacher (Ch. 32)
+  - **End**: Passing torch to Ethan as next teacher (Ch. 32)
 
 ### Subplot E: Ahmad Palestinian Friendship
 - **Purpose**: Bridge-building theme, humanizing "the other," shared sacred space
 - **Arc**:
-  - **Beginning**: Temple Mount guard, initial suspicion (Ch. 17)
-  - **Middle**: Gradual friendship, shared stories (Ch. 18-20)
+  - **Beginning**: Temple Mount guard, meets Ethan during pilgrimage (Ch. 31)
+  - **Middle**: Connection develops through shared spiritual seeking
   - **End**: Mystical vision together, spiritual kinship transcending politics (Ch. 31)
 
 ---
@@ -198,13 +198,15 @@ October 7th, 2027 - now celebration rather than trauma day. Eden stands at Weste
 ### External Conflict
 **Protagonist vs. Modern Secular World**
 - Corporate culture vs. spiritual seeking (Ch. 1-8)
-- Campus political tensions around Israel/Palestine (Ch. 13, 17)
-- Family/friend skepticism about religious "regression" (Ch. 4, 11)
+- Campus political tensions around Israel/Palestine (Ch. 13)
+- Witnessing October 7th attack sites and trauma (Ch. 17)
+- Family/friend skepticism about religious "regression" (Ch. 4)
+- Aaron's challenge to Ethan's spiritual journey (Ch. 13, 29)
 - Israeli-Palestinian actual political tensions (Ch. 17-20)
 - Historical antisemitism and Holocaust legacy (Ch. 21-25)
 
 ### Internal Conflict
-**Eden's Identity Integration Struggle**
+**Ethan's Identity Integration Struggle**
 - Secular success vs. spiritual emptiness (Ch. 1-7)
 - American comfort vs. ancestral calling (Ch. 14-16)
 - Individual desires vs. collective Jewish responsibility (Ch. 17-25)
@@ -243,14 +245,14 @@ October 7th, 2027 - now celebration rather than trauma day. Eden stands at Weste
 - **Ch. 16**: First authentic prayer experience at Western Wall
 - **Ch. 25**: Auschwitz mystical vision connecting suffering to purpose
 - **Ch. 31**: Temple Mount shared vision with Ahmad, ultimate bridge moment
-- **Ch. 33**: Eden as teacher/father, complete identity integration achieved
+- **Ch. 33**: Ethan as teacher/father, complete identity integration achieved
 
 ---
 
 ## Foreshadowing & Setup
 
 ### Gematria/Number Patterns
-- **7:18 AM/PM** (Ch. 1) → **Eden Israel Stone = 718** (Ch. 31)
+- **7:18 AM/PM** (Ch. 1) → **Ethan Israel Stone = 718** (Ch. 31)
 - **18-minute shower** (Ch. 1) → **Chai (life)** significance (Ch. 12)
 - **541 East 14th Street** (Ch. 1) → **Israel = 541** (Ch. 16)
 - **33rd year** (Ch. 1) → **33 chapters, divine perfection** (Ch. 33)
@@ -296,7 +298,7 @@ October 7th, 2027 - now celebration rather than trauma day. Eden stands at Weste
   - **Universal**: Another potential bridge-builder lost, polarization continues
 
 - [x] **How do they change by the end?**
-  - **Identity**: From hidden "Eden Stone" to proud "Eden Israel Stone"
+  - **Identity**: From hidden "Ethan Stone" to proud "Ethan Israel Stone"
   - **Spiritual**: From secular emptiness to integrated Jewish practice
   - **Relational**: From isolation to community, mentor, father, bridge-builder
   - **Purpose**: From corporate optimization to wisdom transmission

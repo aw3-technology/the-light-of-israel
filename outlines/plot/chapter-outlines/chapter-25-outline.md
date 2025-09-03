@@ -1,12 +1,12 @@
 # Chapter 25: Egypt - The First Exile
 
 ## Opening Line Options
-1. "Standing before the pyramids, Eden understood that Jews were telling their story while these stones were still young."
-2. "The Nile hadn't changed since Moses, but Eden Israel Stone had."
-3. "In Cairo's last synagogue, ten old men struggled for a minyan, and Eden became the answer to their prayer."
+1. "Standing before the pyramids, Ethan understood that Jews were telling their story while these stones were still young."
+2. "The Nile hadn't changed since Moses, but Ethan Israel Stone had."
+3. "In Cairo's last synagogue, ten old men struggled for a minyan, and Ethan became the answer to their prayer."
 
 ## Chapter Summary
-Eden completes his exile journey in Egypt, where Jewish exile began. Visits pyramids, meets Cairo's last Jews, experiences modern Arab antisemitism, and undergoes personal exodus at the Red Sea. Realizes he must return to Israel—his journey through exile is complete.
+Ethan completes his exile journey in Egypt, where Jewish exile began. Visits pyramids, meets Cairo's last Jews, experiences modern Arab antisemitism, and undergoes personal exodus at the Red Sea. Realizes he must return to Israel—his journey through exile is complete.
 
 ## Setting
 - **Primary Location**: Cairo - pyramids, old Jewish quarter, last synagogue
@@ -15,13 +15,13 @@ Eden completes his exile journey in Egypt, where Jewish exile began. Visits pyra
 - **Atmosphere**: Ancient slavery echoing, modern hostility, desert revelation
 
 ## POV
-Third person intimate, Eden ready to return
+Third person intimate, Ethan ready to return
 
 ## Characters
-- **Eden Stone**: Completing exile circuit
+- **Ethan Stone**: Completing exile circuit
 - **Joseph Haroun**: 78, one of Cairo's last Jews
 - **Mohamed**: Taxi driver, complicated views
-- **Sarah**: American tourist, recognizes Eden as Jewish
+- **Sarah**: American tourist, recognizes Ethan as Jewish
 - **Border guards**: Suspicious of his journey
 
 ## Key Scenes
@@ -35,7 +35,7 @@ Third person intimate, Eden ready to return
 ### Scene 2: Finding the Synagogue
 - Hidden, unmarked, guarded
 - Nine old men need tenth
-- Eden completes minyan
+- Ethan completes minyan
 - They weep with gratitude
 
 ### Scene 3: Joseph's Story
@@ -47,13 +47,13 @@ Third person intimate, Eden ready to return
 ### Scene 4: The Market
 - Protocols of Elders for sale
 - Mein Kampf in Arabic
-- Eden hides his identity
+- Ethan hides his identity
 - Mohamed: "Are you Jewish?"
 
 ### Scene 5: Confrontation
 - Mohamed's rant about Israel
 - "But individual Jews okay"
-- Eden reveals identity
+- Ethan reveals identity
 - Tense silence, then: "You are my guest"
 
 ### Scene 6: Desert Journey
@@ -84,13 +84,13 @@ Third person intimate, Eden ready to return
 - Egypt expelled Jews in 1956
 - Jewish property confiscated
 - Peace treaty doesn't mean acceptance
-- Eden's journey is 40 days exactly
+- Ethan's journey is 40 days exactly
 - Hanukkah = rededication
 
 ## Dialogue Highlights
 - Joseph: "Every Passover we say 'Next year in Jerusalem.' I'm too old now."
 - Mohamed: "Jews control everything" / "You seem nice though"
-- Eden: "We were slaves here. Now we're free."
+- Ethan: "We were slaves here. Now we're free."
 - Sarah: "You're Israeli?" / "I'm becoming"
 - Joseph: "Tell them Cairo's Jews sent prayers"
 
@@ -127,7 +127,7 @@ Third person intimate, Eden ready to return
 - 200-year-old Torah pointer
 - From destroyed synagogue
 - "For the Temple, when rebuilt"
-- Eden accepts responsibility
+- Ethan accepts responsibility
 - Weight of carrying forward
 
 ## The Hanukkah Moment
@@ -139,7 +139,7 @@ Third person intimate, Eden ready to return
 
 ## Mohamed's Complexity
 - Hates Israel, conspiracy theories
-- But respects Eden personally
+- But respects Ethan personally
 - "You're different"
 - "No, I'm exactly the same"
 - Parts with handshake
@@ -155,7 +155,7 @@ Arrival → Ancient memory → Present remnant → Hostility faced → Desert re
 - Hanukkah as perfect timing
 
 ## Ending
-Tel Aviv bound. Eden carries: Polish earth, Roman recipe, Torah pointer, grandmother's candlesticks, his own transformation. At Cairo airport, security exhaustive. "Why were you here?" "To leave," Eden answers. "Every Jew must leave Egypt." Guard confused, lets him pass. Boarding Israeli plane, hears Hebrew announcements. Tears immediate. Texts Sera: "I'm coming home." Her response: "You ARE home. Wherever you are, you're home." Through window, pyramids shrink. After 40 days in exile, Eden Israel Stone chooses return.
+Tel Aviv bound. Ethan carries: Polish earth, Roman recipe, Torah pointer, grandmother's candlesticks, his own transformation. At Cairo airport, security exhaustive. "Why were you here?" "To leave," Ethan answers. "Every Jew must leave Egypt." Guard confused, lets him pass. Boarding Israeli plane, hears Hebrew announcements. Tears immediate. Texts Sera: "I'm coming home." Her response: "You ARE home. Wherever you are, you're home." Through window, pyramids shrink. After 40 days in exile, Ethan Israel Stone chooses return.
 
 ## Connection to Next Chapter
 Leads to Chapter 26 - Return to Israel transformed

@@ -1,12 +1,12 @@
 # Chapter 22: Rome - The Arch of Tears
 
 ## Opening Line Options
-1. "The Arch of Titus still stood in Rome, celebrating Jerusalem's destruction, and Eden felt two thousand years collapse into now."
-2. "In the Vatican, Eden searched for the Temple's golden menorah in every painting, knowing it was hidden somewhere in this city."
-3. "The Roman ghetto's walls were gone, but Eden could still feel them."
+1. "The Arch of Titus still stood in Rome, celebrating Jerusalem's destruction, and Ethan felt two thousand years collapse into now."
+2. "In the Vatican, Ethan searched for the Temple's golden menorah in every painting, knowing it was hidden somewhere in this city."
+3. "The Roman ghetto's walls were gone, but Ethan could still feel them."
 
 ## Chapter Summary
-Eden confronts Rome—the empire that destroyed the Temple and scattered the Jews. He visits the Arch of Titus, the Jewish ghetto, and Vatican, grappling with Christianity's relationship to Judaism. Meets Michele Della Rocca, whose family has been Roman Jews for 2,000 years.
+Ethan confronts Rome—the empire that destroyed the Temple and scattered the Jews. He visits the Arch of Titus, the Jewish ghetto, and Vatican, grappling with Christianity's relationship to Judaism. Meets Michele Della Rocca, whose family has been Roman Jews for 2,000 years.
 
 ## Setting
 - **Primary Location**: Rome - Forum, Arch of Titus, Jewish ghetto, Vatican
@@ -15,10 +15,10 @@ Eden confronts Rome—the empire that destroyed the Temple and scattered the Jew
 - **Atmosphere**: Imperial weight, hidden Jewish persistence
 
 ## POV
-Third person intimate, Eden among empire's ruins
+Third person intimate, Ethan among empire's ruins
 
 ## Characters
-- **Eden Stone**: Confronting destruction and survival
+- **Ethan Stone**: Confronting destruction and survival
 - **Michele Della Rocca**: Roman Jew, 2,000-year presence
 - **Father Antonio**: Vatican priest, scholar of Jewish-Christian relations
 - **Israeli tourists**: At Arch of Titus, singing Hatikvah
@@ -30,7 +30,7 @@ Third person intimate, Eden among empire's ruins
 - Seeing Temple menorah carved in stone
 - Jews carried as slaves
 - Israeli tourists singing in defiance
-- Eden weeping unexpectedly
+- Ethan weeping unexpectedly
 
 ### Scene 2: Meeting Michele
 - Family restaurant in old ghetto
@@ -54,13 +54,13 @@ Third person intimate, Eden among empire's ruins
 - Oldest synagogue, continuous use
 - Italian-Hebrew liturgy
 - Michele's family, 40 people
-- Eden welcomed as family
+- Ethan welcomed as family
 
 ### Scene 6: The Colosseum at Night
 - Where Jews died for entertainment
 - Now tourists take selfies
 - "Every empire thinks it's eternal"
-- Eden sees America differently
+- Ethan sees America differently
 
 ### Scene 7: The Dream of Destruction
 - Nightmare of Temple burning
@@ -90,7 +90,7 @@ Third person intimate, Eden among empire's ruins
 ## Dialogue Highlights
 - Michele: "Rome conquered Judea. Judea conquered Rome's God."
 - Father Antonio: "Christianity is Judaism for gentiles"
-- Eden: "You destroyed us then worship our God?"
+- Ethan: "You destroyed us then worship our God?"
 - Grandmother at table: "We survived Nero, Mussolini. We'll survive this."
 - Michele: "Every Jew carries Jerusalem. Rome only has ruins."
 
@@ -121,14 +121,14 @@ Third person intimate, Eden among empire's ruins
 - Medieval: Ghetto establishment
 - Modern: 1943 deportation
 - Today: 15,000 Jews remain
-- Eden: Individual facing empire
+- Ethan: Individual facing empire
 
 ## Vatican Complexity
 - Father Antonio's genuine struggle
 - Hebrew in Christian art
 - Nostra Aetate reconciliation
 - But supersessionism remains
-- Eden's anger and pity
+- Ethan's anger and pity
 
 ## Michele's Family
 - Unbroken Roman presence
@@ -148,7 +148,7 @@ Confrontation → Historical weight → Living community → Christian complexit
 - Connect ancient to present
 
 ## Ending
-Last morning, Eden returns to Arch of Titus with Israeli flag pin (bought from tourists). Pins it inside his jacket, over his heart. Walks around the arch, never through. Takes photo to send Sera: him standing beyond arch, looking back. Caption: "We won." Boards train to Berlin, carrying Rome's weight but not its chains. Michele's parting gift: recipe for carciofi alla giudia. "Feed your children this. Tell them we never left."
+Last morning, Ethan returns to Arch of Titus with Israeli flag pin (bought from tourists). Pins it inside his jacket, over his heart. Walks around the arch, never through. Takes photo to send Sera: him standing beyond arch, looking back. Caption: "We won." Boards train to Berlin, carrying Rome's weight but not its chains. Michele's parting gift: recipe for carciofi alla giudia. "Feed your children this. Tell them we never left."
 
 ## Connection to Next Chapter
 Leads to Chapter 23 - Berlin, confronting the Holocaust

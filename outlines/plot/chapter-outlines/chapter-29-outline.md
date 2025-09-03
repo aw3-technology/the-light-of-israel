@@ -1,33 +1,33 @@
 # Chapter 29: The Friend Returns
 
 ## Opening Line Options
-1. "Aaron Gold stood in Eden's Jerusalem kitchen like an argument waiting to happen."
+1. "Aaron Gold stood in Ethan's Jerusalem kitchen like an argument waiting to happen."
 2. "Two years of silence sat between them at the kitchen table, heavier than words."
-3. "Eden opened his door to find his oldest friend holding a white flag made of uncertainty."
+3. "Ethan opened his door to find his oldest friend holding a white flag made of uncertainty."
 
 ## Chapter Summary
-Aaron surprises Eden by arriving in Jerusalem, having undergone his own identity crisis while Eden was on his journey. Their friendship, fractured over October 7th, finds new ground as both men have wrestled with their Jewish identities separately. Aaron reveals his relationship with Layla, his own questioning, and they achieve a fragile reconciliation.
+Aaron surprises Ethan by arriving in Jerusalem, having undergone his own identity crisis while Ethan was on his journey. Their friendship, fractured over October 7th, finds new ground as both men have wrestled with their Jewish identities separately. Aaron reveals his relationship with Layla, his own questioning, and they achieve a fragile reconciliation.
 
 ## Setting
 - **Primary Location**: Jerusalem - their apartment, streets, parks, holy sites
-- **Secondary Location**: Eden's tech office, markets, playgrounds
-- **Time**: Summer 2024 (Eden recently returned)
+- **Secondary Location**: Ethan's tech office, markets, playgrounds
+- **Time**: Summer 2024 (Ethan recently returned)
 - **Atmosphere**: Tentative reunion, two lions circling
 
 ## POV
-Third person intimate, Eden at home
+Third person intimate, Ethan at home
 
 ## Characters
-- **Eden Israel Stone**: Changed but still changing
+- **Ethan Israel Stone**: Changed but still changing
 - **Aaron Gold**: Civil rights lawyer, carrying his own growth
-- **Seraphina Mizrahi**: Gracious host, protective of Eden
+- **Seraphina Mizrahi**: Gracious host, protective of Ethan
 - **The twins**: Background presence, pure innocence
 - **Layla Al-Mansouri**: (mentioned) Aaron's Palestinian girlfriend
 
 ## Key Scenes
 
 ### Scene 1: Unexpected Arrival
-- Doorbell rings at **7:18 AM** exactly (Eden's name value)
+- Doorbell rings at **7:18 AM** exactly (Ethan's name value)
 - Aaron standing there with backpack after **18** hours of travel (chai journey)
 - Flight delayed by **36** minutes - divine timing (hidden righteous)
 - "I should have called **3** times" - Aaron's admission (divine persistence)
@@ -37,8 +37,8 @@ Third person intimate, Eden at home
 - Coffee brewing for exactly **3** minutes **13** seconds (divine + mercy)
 - Twins playing with **70** scattered blocks (universality in innocence)
 - **541** days of silence between them (Israel gematria value in time)
-- Aaron: "You look different" - observing **18** visible changes in Eden (chai transformation)
-- Eden: "How did you find me?" - question hanging for **5** seconds (grace)
+- Aaron: "You look different" - observing **18** visible changes in Ethan (chai transformation)
+- Ethan: "How did you find me?" - question hanging for **5** seconds (grace)
 
 ### Scene 3: Aaron's Confession
 - "I've been seeing someone for **6** months" (incomplete without 7th month completion)
@@ -51,7 +51,7 @@ Third person intimate, Eden at home
 - Both prepared for **36** separate arguments (hidden righteous conflicts avoided)
 - Instead, exhausted honesty lasting **41** minutes (Divine Name backward)
 - Aaron: "I used Palestine to run from being Jewish" - **9** words (**3 x 3** completion)
-- Eden: "I used Israel to run from being human" - **9** words (mirrored completion)
+- Ethan: "I used Israel to run from being human" - **9** words (mirrored completion)
 - Silence between admissions: exactly **18** seconds (chai honesty)
 
 ### Scene 5: Walking Machane Yehuda
@@ -63,28 +63,28 @@ Third person intimate, Eden at home
 
 ### Scene 6: The Real Conversation
 - Café in German Colony, table **18** (chai seating)
-- Conversation lasting **124** minutes (Eden's gematria value in depth)
+- Conversation lasting **124** minutes (Ethan's gematria value in depth)
 - Aaron's story: **2** grandmothers' **3** meetings (divine connection across difference)
 - "They compared **70** parallel exile stories" (universality of displacement)
 - Layla teaching Aaron **613** historical facts he'd never learned (mitzvot education)
 - "Justice isn't zero-sum" - phrase repeated **7** times in conversation (completion through repetition)
 
 ### Scene 7: Mutual Recognition
-- Eden shares his journey briefly
+- Ethan shares his journey briefly
 - Both changed by loss and love
 - Aaron: "We can be different kinds of Jews"
-- Eden: "And different kinds of friends"
+- Ethan: "And different kinds of friends"
 
 ### Scene 8: Shabbat Invitation
 - Aaron stays for Shabbat
-- Watches Eden light candles, stumbles through prayers
+- Watches Ethan light candles, stumbles through prayers
 - Sera includes him naturally
 - New foundation laid
 
 ## Themes
 - Friendship surviving ideological difference
 - Multiple paths to Jewish identity
-- Love as teacher (Sera for Eden, Layla for Aaron)
+- Love as teacher (Sera for Ethan, Layla for Aaron)
 - Growth requiring loss
 
 ## Important Details
@@ -95,21 +95,21 @@ Third person intimate, Eden at home
 
 ## Dialogue Highlights
 - Aaron: "Layla's family asked me: 'What kind of Jew hates his own people?'"
-- Eden: "What did you tell them?"
+- Ethan: "What did you tell them?"
 - Aaron: "That I was trying to earn their love by hating myself"
-- Eden: "And now?"
+- Ethan: "And now?"
 - Aaron: "Now I'm learning there are many ways to love justice"
 
 ## Internal Monologue
 
-### Eden's Thoughts
+### Ethan's Thoughts
 - "He's still Aaron but different - like me"
 - "We both had to go away to come back"
 - "Love changed us both"
 
 ### Aaron's Thoughts
 - "This place is overwhelming"
-- "Eden found something I've been looking for"
+- "Ethan found something I've been looking for"
 - "Maybe identity isn't betrayal of values"
 
 ## Symbolism
@@ -122,12 +122,12 @@ Third person intimate, Eden at home
 ## Divine Presence Elements + Gematria Synchronicities
 - Twins' first steps: **18** steps each (chai life beginning)
 - Perfect weather for Aaron's **3**-day visit (divine trial period)
-- Eden's job promotion comes **541** days after aliyah (Israel value timing)
+- Ethan's job promotion comes **541** days after aliyah (Israel value timing)
 - **7** neighbors help with Aaron's luggage without asking (completion through community)
-- Hebrew flows perfectly when Eden needs exactly **70** words (universality)
+- Hebrew flows perfectly when Ethan needs exactly **70** words (universality)
 - City temperature holds steady at **72** degrees (72 names of God welcoming)
 - Aaron's hotel room number: **613** (mitzvot calling)
-- Their friendship renewed after **718** days apart (Eden's full name value)
+- Their friendship renewed after **718** days apart (Ethan's full name value)
 - Shabbat candles burn for exactly **3** hours **13** minutes (divine + mercy illumination)
 
 ## Daily Life Details
@@ -140,13 +140,13 @@ Third person intimate, Eden at home
 ## Aaron's Challenge
 - Represents progressive criticism
 - Can't see past conflict
-- Eden patient but firm
+- Ethan patient but firm
 - Some bridges can't be rebuilt
 - Parting with love but distance
 
 ## The Jerusalem Effect
 - City intensity affects everyone
-- Eden thrives in it
+- Ethan thrives in it
 - Sera balances him
 - Twins think it's normal
 - "Jerusalem syndrome" as integration
@@ -162,10 +162,10 @@ Daily life → Friend's challenge → Community response → Memorial moment →
 - Make daily life textured
 
 ## Ending
-Evening, apartment balcony, Jerusalem spread below. Aaron holding Ari while Eden holds Lev. Sera making dinner inside. Aaron: "I never understood what 'Next year in Jerusalem' meant." Eden: "Neither did I until I got here." Aaron: "I'm not ready to make aliyah." Eden: "You don't have to be. But maybe you're ready to stop running." Below, muezzin call to prayer mingles with Hebrew songs from radio. Two friends, Jews, holding Jewish babies, in Jewish city, no longer afraid of what that means.
+Evening, apartment balcony, Jerusalem spread below. Aaron holding Ari while Ethan holds Lev. Sera making dinner inside. Aaron: "I never understood what 'Next year in Jerusalem' meant." Ethan: "Neither did I until I got here." Aaron: "I'm not ready to make aliyah." Ethan: "You don't have to be. But maybe you're ready to stop running." Below, muezzin call to prayer mingles with Hebrew songs from radio. Two friends, Jews, holding Jewish babies, in Jewish city, no longer afraid of what that means.
 
 ## Connection to Next Chapter
-Leads to Chapter 30 - Eden's first Yom Kippur in Israel
+Leads to Chapter 30 - Ethan's first Yom Kippur in Israel
 
 ## Character Development Achieved
 Aaron Gold transformed from rigid progressive using politics to avoid identity into complex progressive embracing Jewish identity while maintaining justice commitments. Shows multiple paths to Jewish identity, the role of love as teacher, and friendship surviving ideological evolution.

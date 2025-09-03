@@ -1,12 +1,12 @@
 # Chapter 3: Slack and Spirits
 
 ## Opening Line Options
-1. "Eden's friends were saving the world again, one craft cocktail at a time."
-2. "The Slack notification read 'drinks tonight?' and Eden responded with a thumbs-up emoji he didn't feel."
+1. "Ethan's friends were saving the world again, one craft cocktail at a time."
+2. "The Slack notification read 'drinks tonight?' and Ethan responded with a thumbs-up emoji he didn't feel."
 3. "Wednesday night in Williamsburg: the progressive liturgy of outrage and IPAs."
 
 ## Chapter Summary  
-Eden meets progressive friends for drinks in Williamsburg, performing his role in their echo chamber while his inner void deepens. The disconnect between political passion and spiritual emptiness becomes clear.
+Ethan meets progressive friends for drinks in Williamsburg, performing his role in their echo chamber while his inner void deepens. The disconnect between political passion and spiritual emptiness becomes clear.
 
 ## Setting
 - **Primary Location**: SoHo office (day), "The Broken Shaker" bar in Williamsburg (evening)
@@ -14,10 +14,10 @@ Eden meets progressive friends for drinks in Williamsburg, performing his role i
 - **Atmosphere**: Corporate sterility transitioning to forced bohemian authenticity
 
 ## POV
-Third person intimate, Eden's perspective
+Third person intimate, Ethan's perspective
 
 ## Characters
-- **Eden Stone**: Performing social roles
+- **Ethan Stone**: Performing social roles
 - **Aaron Gold**: Best friend, civil rights lawyer, brilliant but struggling with his own Jewish identity
 - **Sarah Chen**: UX designer, passionate about causes  
 - **Marcus Williams**: Journalist, cynical wit
@@ -27,14 +27,14 @@ Third person intimate, Eden's perspective
 
 ### Scene 1: Afternoon at Work
 - Product meeting about "user retention"
-- Eden presenting engagement metrics
+- Ethan presenting engagement metrics
 - Mind wandering during discussions
 - Checking phone - friends planning drinks
 
 ### Scene 2: Leaving Office
 - 6 PM exodus
 - Coworkers discussing weekend plans
-- Eden joining automatically
+- Ethan joining automatically
 - Subway to Williamsburg
 
 ### Scene 3: The Bar Arrival
@@ -48,18 +48,18 @@ Third person intimate, Eden's perspective
 - Sarah's climate anxiety
 - Marcus's media critique
 - Aaron's passionate but rehearsed arguments
-- Eden noticing Aaron's intensity masks something
+- Ethan noticing Aaron's intensity masks something
 
 ### Scene 5: The Israel Moment
 - Someone mentions "situation in Middle East"
 - Aaron immediately launches into anti-occupation argument
 - "Netanyahu's basically Trump, but worse because he's Jewish"
 - Aaron's family trauma unnamed but driving his passion
-- Eden's discomfort - recognizes Aaron's performance
+- Ethan's discomfort - recognizes Aaron's performance
 
 ### Scene 6: Personal Check-ins
 - "How was your date?" (about Rachel)
-- Eden: "Fine, probably won't see her again"
+- Ethan: "Fine, probably won't see her again"
 - Advice about dating apps
 - Everyone slightly drunk, less guarded
 
@@ -70,7 +70,7 @@ Third person intimate, Eden's perspective
 - Alienation among friends
 
 ## Important Details
-- Friends don't know Eden's middle name
+- Friends don't know Ethan's middle name
 - All successful, all empty
 - Politics as replacement religion
 - No mention of Jewish identity
@@ -80,7 +80,7 @@ Third person intimate, Eden's perspective
 - Aaron: "My grandmother survived the Holocaust so I could fight all genocides"
 - Sarah: "I'm so tired of living through historical events"
 - Marcus: "Everything's content now, even resistance"
-- Eden: "Yeah, totally" (automatic responses)
+- Ethan: "Yeah, totally" (automatic responses)
 
 ## Internal Monologue
 - "We sound so smart and feel so nothing"
@@ -98,13 +98,13 @@ Third person intimate, Eden's perspective
 ## Subtle Divine Elements
 - Bar is on Metropolitan Ave (mother city/divine feminine ignored)
 - Bartender's name tag says "Gabriel" (angel messenger unrecognized)
-- Three friends arrive exactly as Eden does (trinity gathering)
+- Three friends arrive exactly as Ethan does (trinity gathering)
 - Aaron spills drink when lying about happiness
-- Eden's phone battery at 18% (chai/life) when leaving
+- Ethan's phone battery at 18% (chai/life) when leaving
 
 ## Foreshadowing
 - News alert about Israel ignored
-- Eden's grandmother mentioned briefly
+- Ethan's grandmother mentioned briefly
 - Feeling of something approaching
 - "October's going to be rough" (someone says randomly)
 - Clock behind bar stuck at 7:07 (October 7 hint)
@@ -116,10 +116,10 @@ Work performance � social performance � political performance � recognitio
 - Friends aren't villains, also searching
 - Show genuine care beneath performance
 - Progressive politics as spiritual substitute
-- Eden's alienation is internal
+- Ethan's alienation is internal
 
 ## Ending + Micro-Tension Hook
-Uber home alone. Group chat continues without him. Lies in bed, scrolling Twitter, feeling the weight of performed caring. Thinks: "We're all so good at analyzing why everything's broken." Then Aaron texts privately: "Hey man, can we grab coffee tomorrow? Just us. Need to talk about something real." The message timestamp shows **11:11 PM**. Eden stares at the double ones, remembering his grandmother used to make wishes on 11:11. Aaron never asks for "something real." **[HOOK: What does Aaron need to confess? Why is Eden thinking about grandmother again?]**
+Uber home alone. Group chat continues without him. Lies in bed, scrolling Twitter, feeling the weight of performed caring. Thinks: "We're all so good at analyzing why everything's broken." Then Aaron texts privately: "Hey man, can we grab coffee tomorrow? Just us. Need to talk about something real." The message timestamp shows **11:11 PM**. Ethan stares at the double ones, remembering his grandmother used to make wishes on 11:11. Aaron never asks for "something real." **[HOOK: What does Aaron need to confess? Why is Ethan thinking about grandmother again?]**
 
 ## Connection to Next Chapter
 Leads to phone call with parents (Chapter 4) - different generation's emptiness
@@ -128,4 +128,4 @@ Leads to phone call with parents (Chapter 4) - different generation's emptiness
 - Avoid caricaturing progressive friends
 - Show real friendship beneath ideology
 - Balance critique with empathy
-- Make Eden complicit, not superior
+- Make Ethan complicit, not superior

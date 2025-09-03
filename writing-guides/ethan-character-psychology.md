@@ -1,4 +1,4 @@
-# Eden Israel Stone: Complete Character Psychology Guide
+# Ethan Israel Stone: Complete Character Psychology Guide
 
 ## Core Personality Framework
 
@@ -12,7 +12,7 @@
 ## Specific Personality Traits Beyond "Depressed Seeker"
 
 ### **1. The Pattern Recognition Obsessive & Gematria Seeker**
-Eden sees connections everywhere - it's what makes him good at product management and what drives him toward mysticism. As he awakens spiritually, this obsession evolves into gematria awareness.
+Ethan sees connections everywhere - it's what makes him good at product management and what drives him toward mysticism. As he awakens spiritually, this obsession evolves into gematria awareness.
 
 #### **Professional Manifestations**
 - Notices user behavior patterns others miss
@@ -28,7 +28,7 @@ Eden sees connections everywhere - it's what makes him good at product managemen
 - Apartment address digits add up to 18 (chai) - doesn't realize significance
 
 #### **Gematria Awakening (Mid-Journey)**
-- Rabbi Levi teaches him name values: Eden (124) + Israel (541) + Stone (53) = 718
+- Rabbi Levi teaches him name values: Ethan (124) + Israel (541) + Stone (53) = 718
 - Realizes 7:18 AM wake-up time matches his name value
 - Starts calculating Hebrew words obsessively
 - Times prayers and meditations in multiples of significant numbers
@@ -47,7 +47,7 @@ Eden sees connections everywhere - it's what makes him good at product managemen
 - Collects things in sets of three (inherited from grandmother's superstitions)
 
 ### **2. The Hyper-Empathic Absorber**
-Eden doesn't just feel his own emotions - he absorbs everyone else's, leading to overwhelming sensory overload.
+Ethan doesn't just feel his own emotions - he absorbs everyone else's, leading to overwhelming sensory overload.
 
 #### **In Crowds**
 - Feels physical pain when seeing others hurt
@@ -68,7 +68,7 @@ Eden doesn't just feel his own emotions - he absorbs everyone else's, leading to
 - Walking alone at night to decompress
 
 ### **3. The Perfectionist Procrastinator**
-Eden has impossibly high standards that paralyze him from starting anything meaningful.
+Ethan has impossibly high standards that paralyze him from starting anything meaningful.
 
 #### **Professional Paralysis**
 - Rewrites emails multiple times before sending
@@ -89,7 +89,7 @@ Eden has impossibly high standards that paralyze him from starting anything mean
 - Wants to be spiritual but thinks he's not worthy/authentic enough
 
 ### **4. The Anxious Overthinker**
-Eden's mind runs three mental tracks simultaneously: current reality, worst-case scenarios, and meaning analysis.
+Ethan's mind runs three mental tracks simultaneously: current reality, worst-case scenarios, and meaning analysis.
 
 #### **Decision Paralysis Examples**
 - Spends 20 minutes choosing coffee order, considers each choice's implications
@@ -125,13 +125,13 @@ His professional skills shape how he approaches everything, including spirituali
 - Wants A/B testing for different meditation techniques
 
 #### **Iteration Mentality**
-- Treats spiritual growth like software releases (Version 2.0 Eden)
+- Treats spiritual growth like software releases (Version 2.0 Ethan)
 - Expects regular updates and improvements
 - Gets frustrated with "bugs" in his emotional system
 - Wants to rollback to earlier versions when growth gets difficult
 
 ### **6. The Hidden Romantic**
-Beneath the anxiety and analysis, Eden is deeply romantic and yearns for transcendent connection.
+Beneath the anxiety and analysis, Ethan is deeply romantic and yearns for transcendent connection.
 
 #### **Secret Romantic Behaviors**
 - Reads poetry at 2 AM (especially Rumi, Leonard Cohen)
@@ -152,27 +152,27 @@ Beneath the anxiety and analysis, Eden is deeply romantic and yearns for transce
 - Acts of service: shows love by anticipating others' needs
 
 ### **7. The Cultural Code-Switcher**
-Eden has different versions of himself for different contexts, none feeling completely authentic.
+Ethan has different versions of himself for different contexts, none feeling completely authentic.
 
-#### **Work Eden**
+#### **Work Ethan**
 - Confident, analytical, uses business jargon
 - Hides emotional responses behind data
 - Networks efficiently but doesn't form real connections
 - Dresses slightly better than necessary to overcompensate
 
-#### **Family Eden**
+#### **Family Ethan**
 - Dutiful son, avoids controversial topics
 - Performs normalcy to prevent parental worry
 - Uses humor to deflect serious conversations
 - Feels like he's disappointing them just by existing
 
-#### **Friend Eden** (Pre-awakening)
+#### **Friend Ethan** (Pre-awakening)
 - Progressive ally, politically correct
 - Intellectualizes everything to fit in
 - Drinks more than he wants to seem social
 - Agrees with group consensus even when conflicted
 
-#### **Dating Eden**
+#### **Dating Ethan**
 - Chameleon who mirrors his date's interests
 - Hides Jewish identity unless directly asked
 - Overthinks every interaction for compatibility signals
@@ -276,4 +276,4 @@ Eden has different versions of himself for different contexts, none feeling comp
 - Applies user research methods to understanding people's motivations
 - Treats every problem like it needs a dashboard to track progress
 
-This complete psychological profile makes Eden a fully three-dimensional character whose spiritual journey feels inevitable given his specific personality traits, fears, and coping mechanisms. Every aspect of his transformation should be rooted in these authentic psychological foundations.
+This complete psychological profile makes Ethan a fully three-dimensional character whose spiritual journey feels inevitable given his specific personality traits, fears, and coping mechanisms. Every aspect of his transformation should be rooted in these authentic psychological foundations.

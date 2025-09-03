@@ -1,8 +1,8 @@
-# Eden's Internal Voice Evolution Arc
+# Ethan's Internal Voice Evolution Arc
 ## Tracking Subtle Transformation Through Narrative Voice
 
 ## The Principle of Internal Voice as Character
-Eden's internal monologue must evolve subtly throughout the novel, reflecting his psychological and spiritual transformation without the reader being consciously aware of the change until looking back. This creates the uncanny feeling that they've witnessed authentic human development.
+Ethan's internal monologue must evolve subtly throughout the novel, reflecting his psychological and spiritual transformation without the reader being consciously aware of the change until looking back. This creates the uncanny feeling that they've witnessed authentic human development.
 
 ---
 
@@ -21,7 +21,7 @@ Eden's internal monologue must evolve subtly throughout the novel, reflecting hi
 
 **Chapter 1 - Morning Routine**:
 ```
-The alarm sound was allegedly designed to be "gentle wake-up technology," but Eden suspected it had been focus-grouped by people who'd never experienced actual human consciousness. Or maybe that was the point. Maybe consciousness was the bug, not the feature. He dismissed the notification—another Slack message from Josh about "optimizing user journey friction points." Even his thoughts were starting to sound like marketing copy.
+The alarm sound was allegedly designed to be "gentle wake-up technology," but Ethan suspected it had been focus-grouped by people who'd never experienced actual human consciousness. Or maybe that was the point. Maybe consciousness was the bug, not the feature. He dismissed the notification—another Slack message from Josh about "optimizing user journey friction points." Even his thoughts were starting to sound like marketing copy.
 ```
 
 **Voice Analysis**:
@@ -66,7 +66,7 @@ Something was breaking. Not breaking down—breaking open. Like an eggshell, whi
 
 #### **Chapter 10 - Meeting Rabbi Levi**:
 ```
-The rabbi's study smelled like... memory. That wasn't scientific, but neither was the feeling that these books knew him before he'd walked through the door. "Your grandmother spoke of you often," the rabbi said, and something clicked into place that Eden hadn't realized was out of alignment. How could she have spoken of him to someone he'd never heard of? Unless there had been parts of her life—parts of his own heritage—running in background processes he'd never accessed.
+The rabbi's study smelled like... memory. That wasn't scientific, but neither was the feeling that these books knew him before he'd walked through the door. "Your grandmother spoke of you often," the rabbi said, and something clicked into place that Ethan hadn't realized was out of alignment. How could she have spoken of him to someone he'd never heard of? Unless there had been parts of her life—parts of his own heritage—running in background processes he'd never accessed.
 ```
 
 **Voice Analysis**:
@@ -177,7 +177,7 @@ Past, present, and future existed simultaneously on the Mount—not as mystical 
 
 #### **Chapter 33 - Final Integration**:
 ```
-I am Eden Israel Stone. Every part of the name finally makes sense. Paradise held in struggle, founded on solid ground. The journey that began with a phone alarm in Brooklyn has led me to this dawn minyan at the Western Wall, leading prayers I once couldn't pronounce, teaching wisdom I'm still learning. The light of Israel was never something to find—it was something to become. Something to carry forward. Something to pass on to my sons, who will carry it to their sons, who will carry it home.
+I am Ethan Israel Stone. Every part of the name finally makes sense. Paradise held in struggle, founded on solid ground. The journey that began with a phone alarm in Brooklyn has led me to this dawn minyan at the Western Wall, leading prayers I once couldn't pronounce, teaching wisdom I'm still learning. The light of Israel was never something to find—it was something to become. Something to carry forward. Something to pass on to my sons, who will carry it to their sons, who will carry it home.
 ```
 
 **Voice Analysis**:
@@ -260,7 +260,7 @@ I am Eden Israel Stone. Every part of the name finally makes sense. Paradise hel
 ## **Beta Reader Voice Evolution Testing**
 
 ### **Reader Questions**:
-1. "How did Eden's internal voice change from beginning to end?"
+1. "How did Ethan's internal voice change from beginning to end?"
 2. "At what point did he start sounding like a different person?"
 3. "Did the transformation feel gradual or sudden?"
 4. "Could you identify his spiritual growth through his thoughts?"
@@ -277,4 +277,4 @@ Extract internal monologue from Chapters 1, 7, 16, 25, and 33. Remove chapter in
 - **Clear identification** of breakthrough moments
 - **Unanimous recognition** of character growth through voice alone
 
-This voice evolution framework ensures Eden's internal transformation manifests authentically through subtle but measurable changes in narrative voice, creating the profound reader experience of witnessing genuine human development.
+This voice evolution framework ensures Ethan's internal transformation manifests authentically through subtle but measurable changes in narrative voice, creating the profound reader experience of witnessing genuine human development.

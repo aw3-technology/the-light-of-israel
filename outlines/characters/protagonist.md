@@ -1,7 +1,7 @@
 # Character Profile: Eden Stone
 
 ## Basic Information
-- **Full Name**: Eden Israel Stone
+- **Full Name**: Ethan Israel Stone
 - **Age**: 33
 - **Gender**: Male
 - **Occupation/Role**: Product Manager at NYC software company / Main Protagonist

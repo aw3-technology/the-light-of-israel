@@ -2,11 +2,11 @@
 
 ## Opening Line Options
 1. "The road to the Gaza border was lined with memorial candles that hadn't been there a month ago."
-2. "Sera drove in silence through the Negev, and Eden understood that some landscapes demand quiet."
+2. "Sera drove in silence through the Negev, and Ethan understood that some landscapes demand quiet."
 3. "The kibbutzim near the border looked normal from the highway, until you noticed the bullet holes."
 
 ## Chapter Summary
-Sera takes Eden south to the sites of October 7th attacks—the Nova festival grounds, Kibbutz Be'eri, the Gaza border. Eden witnesses the physical reality of what he'd only seen on screens. The desert holds both death and revelation.
+Sera takes Ethan south to the sites of October 7th attacks—the Nova festival grounds, Kibbutz Be'eri, the Gaza border. Ethan witnesses the physical reality of what he'd only seen on screens. The desert holds both death and revelation.
 
 ## Setting
 - **Primary Location**: Southern Israel - Negev Desert, Gaza periphery
@@ -15,10 +15,10 @@ Sera takes Eden south to the sites of October 7th attacks—the Nova festival gr
 - **Atmosphere**: Haunted landscape, terrible beauty, sacred grief
 
 ## POV
-Third person intimate, Eden's overwhelmed senses
+Third person intimate, Ethan's overwhelmed senses
 
 ## Characters
-- **Eden Stone**: Witnessing, absorbing, breaking
+- **Ethan Stone**: Witnessing, absorbing, breaking
 - **Sera Mizrahi**: Guide, herself processing trauma
 - **Survivor (Yossi)**: Kibbutz member who escaped
 - **IDF soldiers**: Young, tired, alert
@@ -34,15 +34,15 @@ Third person intimate, Eden's overwhelmed senses
 
 ### Scene 2: First Checkpoint
 - IDF checking cars
-- Soldiers younger than Eden
+- Soldiers younger than Ethan
 - Sera speaks Hebrew, calms tension
-- Eden's American passport examined
+- Ethan's American passport examined
 
 ### Scene 3: Nova Festival Site
 - Empty field with memorials
 - Photos of the dead, dancing
 - Sera: "They were celebrating peace"
-- Eden vomits behind portable toilet
+- Ethan vomits behind portable toilet
 
 ### Scene 4: Kibbutz Be'eri
 - Burned houses still standing
@@ -54,7 +54,7 @@ Third person intimate, Eden's overwhelmed senses
 - Yossi shows where family hid
 - Char marks on walls
 - "My daughter's handprint"
-- Eden cannot speak
+- Ethan cannot speak
 
 ### Scene 6: Gaza Border
 - Can see into Gaza Strip
@@ -66,11 +66,11 @@ Third person intimate, Eden's overwhelmed senses
 - Driving back as sun sets
 - Sera pulls over
 - They say Kaddish together
-- Eden's first time, following her lead
+- Ethan's first time, following her lead
 
 ### Scene 8: Night Return
 - Stars brilliant in desert
-- Eden: "How do you live with this?"
+- Ethan: "How do you live with this?"
 - Sera: "How do you live without it?"
 - Jerusalem lights appearing
 
@@ -82,7 +82,7 @@ Third person intimate, Eden's overwhelmed senses
 
 ## Important Details
 - Sites still active crime scenes
-- Eden wearing borrowed kippah
+- Ethan wearing borrowed kippah
 - Sera lost friend at Nova
 - Desert heat in November
 - Iron Dome contrails visible
@@ -90,8 +90,8 @@ Third person intimate, Eden's overwhelmed senses
 ## Dialogue Highlights
 - Yossi: "CNN didn't show you this"
 - Sera: "Every Israeli knows someone"
-- Eden: "It's so small... everything's so close"
-- Soldier: "Where are you from?" Eden: "I don't know anymore"
+- Ethan: "It's so small... everything's so close"
+- Soldier: "Where are you from?" Ethan: "I don't know anymore"
 - Sera: "The desert remembers everything"
 
 ## Internal Monologue
@@ -111,10 +111,10 @@ Third person intimate, Eden's overwhelmed senses
 ## Divine Presence Elements
 - Wind stops when Yossi speaks daughter's name
 - Three doves at Nova site (souls ascending)
-- Eden finds shell casing that burns his hand
+- Ethan finds shell casing that burns his hand
 - Sera knows exactly where to stop for prayer
 - Moon rises full though it should be crescent
-- Hebrew prayers Eden doesn't know come naturally
+- Hebrew prayers Ethan doesn't know come naturally
 
 ## Physical/Spiritual Symptoms
 - Nausea at reality of violence
@@ -135,7 +135,7 @@ Departure → Witnessing → Horror → Human connection → Prayer → Return c
 - Balance journalism with poetry
 
 ## Ending
-Back in Jerusalem after midnight. Eden can't sleep. Stands on balcony looking south toward the desert. Texts Rabbi Levi: "I saw it. What now?" Response immediate despite hour: "Now you carry it. Come Thursday. We'll learn about Tikkun Olam—repairing the world." Eden realizes he's been drafted into something ancient.
+Back in Jerusalem after midnight. Ethan can't sleep. Stands on balcony looking south toward the desert. Texts Rabbi Levi: "I saw it. What now?" Response immediate despite hour: "Now you carry it. Come Thursday. We'll learn about Tikkun Olam—repairing the world." Ethan realizes he's been drafted into something ancient.
 
 ## Connection to Next Chapter
 Leads to Chapter 18 - deeper Kabbalah study, understanding evil

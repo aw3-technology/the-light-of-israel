@@ -1,4 +1,4 @@
-# Character Profile: Eden's Parents - David & Miriam Stone
+# Character Profile: Ethan's Parents - David & Miriam Stone
 
 ## Basic Information
 
@@ -25,13 +25,13 @@
 ## Family Background
 
 ### Miriam's Side
-- **Mother**: Ruth Goldstein (Holocaust survivor, died when Eden was 12)
+- **Mother**: Ruth Goldstein (Holocaust survivor, died when Ethan was 12)
 - **Trauma**: Ruth rarely spoke of the past, died with stories untold
 - **Guilt**: Miriam feels she failed to preserve grandmother's memory
 - **Pattern**: Assimilation as protection strategy
 
 ### David's Side  
-- **Father**: Morris Stone (died when Eden was 15)
+- **Father**: Morris Stone (died when Ethan was 15)
 - **Story**: Came from Poland in 1920s, built small business
 - **Assimilation**: Changed name from Rosenberg to Stone
 - **Legacy**: Success through blending in
@@ -47,43 +47,43 @@
 - **Synagogue**: Temple members for High Holidays only
 - **Practice**: Passover dinner, Hanukkah gifts, that's it
 - **Community**: Secular, progressive, mostly Jewish social circle
-- **Concerns**: Eden's depression, Rebecca's intermarriage
+- **Concerns**: Ethan's depression, Rebecca's intermarriage
 
-## Initial Response to Eden's Change
+## Initial Response to Ethan's Change
 
 ### Chapter 4: Denial Phase
 - "It's just a phase"
 - "Don't become one of those people"
 - "We didn't survive the Holocaust for you to become orthodox"
-- Fear Eden is rejecting their values
+- Fear Ethan is rejecting their values
 
 ### Chapter 11 (New): Growing Concern
-- Phone call after Eden starts attending synagogue
+- Phone call after Ethan starts attending synagogue
 - Miriam: "I'm worried you're having a breakdown"
 - David: "Let him figure it out"
 - First mention of their own lost traditions
 
 ### Chapter 14: Panic Phase  
-- Learning Eden is going to Israel
+- Learning Ethan is going to Israel
 - "Are you safe there?"
-- "This isn't you, Eden"
+- "This isn't you, Ethan"
 - Secret fear they failed as parents
 
 ### Chapter 20 (New): Confusion
-- Eden calls from Jerusalem, sounds different
+- Ethan calls from Jerusalem, sounds different
 - Mentions Sera, sounds happy
 - Parents don't know how to process this
 - First crack in their certainty
 
-## Their Own Journey (Parallel to Eden's)
+## Their Own Journey (Parallel to Ethan's)
 
 ### Stage 1: Resistance (Chapters 4-14)
-- Viewing Eden's search as rejection
+- Viewing Ethan's search as rejection
 - Defending their assimilated success
 - Fear of losing their son to "fanaticism"
 
 ### Stage 2: Questioning (Chapters 15-25)
-- Phone calls with Eden from Israel
+- Phone calls with Ethan from Israel
 - Hearing happiness in his voice for first time in years
 - Private conversations about their own emptiness
 - Miriam finding grandmother's hidden Hebrew prayer book
@@ -92,11 +92,11 @@
 - News of twins' births in Israel
 - Realizing they want to be part of grandchildren's lives
 - First trip to Jerusalem (off-page between chapters)
-- Seeing Eden as father, husband, fulfilled
+- Seeing Ethan as father, husband, fulfilled
 
 ### Stage 4: Integration (Chapters 31-33)
 - Learning basic Hebrew to communicate with grandchildren
-- Attending Eden's teaching sessions
+- Attending Ethan's teaching sessions
 - Beginning their own adult education classes
 - Making peace with multiple Jewish identities
 
@@ -104,12 +104,12 @@
 
 ### The Grandmother's Prayer Book (Chapter 18, phone call)
 - Miriam finds Ruth's hidden siddur while cleaning
-- Calls Eden crying: "I never knew she still prayed"
+- Calls Ethan crying: "I never knew she still prayed"
 - Realization of what they lost in assimilation
 
 ### The First Israel Visit (Between Chapters 25-26)
 - Reluctant trip to meet Sera, see babies
-- Overwhelmed by Eden's happiness
+- Overwhelmed by Ethan's happiness
 - Western Wall experience - unexpected emotion
 - Understanding this isn't rejection but return
 
@@ -119,7 +119,7 @@
 - David: "I can analyze markets but not my own prayers"
 
 ### The Teaching Session (Chapter 32)
-- Attending Eden's study group
+- Attending Ethan's study group
 - Pride mixed with confusion
 - "Our son is a rabbi?" 
 - Recognition that he found what they lost
@@ -140,15 +140,15 @@
 
 ## Relationship Dynamics
 
-### Before Eden's Journey
+### Before Ethan's Journey
 - **Weekly calls**: Obligation more than connection
 - **Visits**: Awkward, surface-level
 - **Love**: Real but expressed through worry
 - **Understanding**: Missing completely
 
-### After Eden's Return
+### After Ethan's Return
 - **Curiosity**: "Tell us about this life you've built"
-- **Respect**: Seeing Eden as fully adult for first time
+- **Respect**: Seeing Ethan as fully adult for first time
 - **Inclusion**: Wanting to be part of grandchildren's Jewish lives
 - **Learning**: Becoming students of their own tradition
 
@@ -160,7 +160,7 @@
 - Surface-level connection
 
 ### Chapter 11: Post-Synagogue Discovery
-- Miriam worried about Eden's "religious phase"
+- Miriam worried about Ethan's "religious phase"
 - "Are you having a breakdown?"
 - First real conversation about faith
 
@@ -177,19 +177,19 @@
 ### Chapter 26: News of Twins
 - Joy mixed with distance
 - "When can we visit?"
-- Wanting to be grandparents despite not understanding Eden's choices
+- Wanting to be grandparents despite not understanding Ethan's choices
 
 ### Chapter 28: After Israel Visit
 - Changed perspective
 - "We saw you light Shabbat candles"
-- Beginning to understand what Eden found
+- Beginning to understand what Ethan found
 
 ## Their Own Growth
 
 ### What They Learn
 - Assimilation isn't success, it's survival strategy
 - They preserved Jewish anxiety but not Jewish joy
-- Eden isn't rejecting them but completing them
+- Ethan isn't rejecting them but completing them
 - Being Jewish isn't burden but inheritance
 
 ### What They Struggle With
@@ -198,7 +198,7 @@
 - Fitting in progressive but not religious community
 - Balancing pride with continued confusion
 
-### What They Give Eden
+### What They Give Ethan
 - Eventual support for his choices
 - Bridge to American Jewish experience
 - Validation that his journey matters
@@ -208,7 +208,7 @@
 
 ### The Mezuzah
 - On their doorpost but never touched
-- During Eden's visits, he notices it's there
+- During Ethan's visits, he notices it's there
 - Eventually they begin to understand its meaning
 
 ### Grandmother's Photos
@@ -222,8 +222,8 @@
 - Symbol of recovered tradition
 
 ## Final Arc
-David and Miriam Stone represent the possibility of teshuvah (return) at any age. Their journey from assimilated distance to engaged Judaism parallels Eden's but at a different pace and style. They show that there are many ways to be Jewish, many ways to return, and that love can bridge even ideological chasms within families.
+David and Miriam Stone represent the possibility of teshuvah (return) at any age. Their journey from assimilated distance to engaged Judaism parallels Ethan's but at a different pace and style. They show that there are many ways to be Jewish, many ways to return, and that love can bridge even ideological chasms within families.
 
-They don't become religious in orthodox sense, but they become Jewishly engaged - learning Hebrew, attending study sessions, connecting with grandchildren's Jewish identity, and making peace with their own choices while supporting Eden's different path.
+They don't become religious in orthodox sense, but they become Jewishly engaged - learning Hebrew, attending study sessions, connecting with grandchildren's Jewish identity, and making peace with their own choices while supporting Ethan's different path.
 
-Their arc demonstrates that Eden's return enables their return, that sometimes children lead parents home, and that Jewish identity is strong enough to survive even generations of well-intentioned neglect.
+Their arc demonstrates that Ethan's return enables their return, that sometimes children lead parents home, and that Jewish identity is strong enough to survive even generations of well-intentioned neglect.

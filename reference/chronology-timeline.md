@@ -6,11 +6,11 @@
 ## **BACKSTORY PERIOD (Before Chapter 1)**
 
 ### 2022
-- **September 30, 2022**: Rivka Stone (Eden's grandmother) dies
-- **October 2022**: Eden attends grandmother's funeral, receives box of her belongings
-- **November 2022 - January 2023**: Eden's depression deepens
-- **February 2023**: Sarah breaks up with Eden (8 months before Chapter 1)
-- **March - August 2023**: Eden increasingly isolated, work-focused, spiritually empty
+- **September 30, 2022**: Rivka Stone (Ethan's grandmother) dies
+- **October 2022**: Ethan attends grandmother's funeral, receives box of her belongings
+- **November 2022 - January 2023**: Ethan's depression deepens
+- **February 2023**: Sarah breaks up with Ethan (8 months before Chapter 1)
+- **March - August 2023**: Ethan increasingly isolated, work-focused, spiritually empty
 
 ---
 
@@ -23,7 +23,7 @@
 - **Date**: Tuesday, September 26, 2023
 - **Time**: 7:18 AM - 8:00 PM
 - **Events**: 
-  - Eden wakes depressed in Brooklyn
+  - Ethan wakes depressed in Brooklyn
   - Mother calls about upcoming yahrzeit (September 30)
   - Normal workday at tech company
   - Encounters homeless man: "Israel! Wake up!"
@@ -49,7 +49,7 @@
 - **Date**: Saturday, September 30, 2023
 - **Time**: Grandmother's first yahrzeit
 - **Events**: 
-  - Eden alone on yahrzeit day
+  - Ethan alone on yahrzeit day
   - Triggered memories of Hebrew school, bar mitzvah
   - Finds grandmother's box in closet
 
@@ -57,7 +57,7 @@
 - **Date**: Friday night, October 6, 2023
 - **Events**: 
   - Prophetic dreams of fire, stone walls, Hebrew letters
-  - Eden wakes at 5:41 AM (Israel gematria) on October 7
+  - Ethan wakes at 5:41 AM (Israel gematria) on October 7
 
 ---
 
@@ -71,16 +71,16 @@
 - **Time**: 5:41 AM onwards
 - **Events**: 
   - Hamas attacks unfold in real-time
-  - Eden doomscrolls news
+  - Ethan doomscrolls news
   - Coworkers argue "both sides"
-  - **CRITICAL PLOT POINT**: Eden's grandmother died exactly one year + 7 days ago
+  - **CRITICAL PLOT POINT**: Ethan's grandmother died exactly one year + 7 days ago
 
 #### **Chapter 8: The Vigil**
 - **Date**: Sunday, October 8, 2023
 - **Events**: 
   - Candlelight vigil in Washington Square Park
   - Jewish community gathering
-  - Eden feels solidarity but alienation
+  - Ethan feels solidarity but alienation
 
 #### **Chapter 9: The First Shabbat**
 - **Date**: Friday-Saturday, October 13-14, 2023
@@ -113,7 +113,7 @@
 - **Events**: 
   - Pro-Israel and pro-Palestinian demonstrations
   - Campus tensions at Columbia
-  - Eden decides to go to Israel
+  - Ethan decides to go to Israel
   - **BRIDGE**: Books flight to Tel Aviv
 
 ---
@@ -227,7 +227,7 @@
 
 #### **Chapter 32: The Teaching**
 - **Date**: Summer 2026
-- **Events**: Eden becomes teacher, parents prepare aliyah
+- **Events**: Ethan becomes teacher, parents prepare aliyah
 
 #### **Chapter 33: The Light of Israel**
 - **Date**: October 7, 2026
@@ -235,7 +235,7 @@
 - **Events**: 
   - Third anniversary of attacks
   - Fourth anniversary of grandmother's death (+7 days)
-  - Eden with wife Sera and son Ari at Western Wall
+  - Ethan with wife Sera and son Ari at Western Wall
   - Full integration and transformation complete
 
 ---

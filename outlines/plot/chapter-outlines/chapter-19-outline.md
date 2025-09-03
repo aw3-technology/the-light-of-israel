@@ -1,12 +1,12 @@
 # Chapter 19: The Lowest Point on Earth
 
 ## Opening Line Options
-1. "The Dead Sea appeared like a mirror of heaven, and Eden understood why Lot's wife looked back."
-2. "At 430 meters below sea level, Eden Israel Stone finally stopped falling."
+1. "The Dead Sea appeared like a mirror of heaven, and Ethan understood why Lot's wife looked back."
+2. "At 430 meters below sea level, Ethan Israel Stone finally stopped falling."
 3. "Sera led him into water so dense with salt that drowning was impossible, forcing was the only option."
 
 ## Chapter Summary
-Sera takes Eden to the Dead Sea—the lowest point on earth—for spiritual and physical cleansing. Floating in the ancient waters, Eden experiences profound healing. They visit Masada, connecting to Jewish resistance and sacrifice. Their relationship deepens.
+Sera takes Ethan to the Dead Sea—the lowest point on earth—for spiritual and physical cleansing. Floating in the ancient waters, Ethan experiences profound healing. They visit Masada, connecting to Jewish resistance and sacrifice. Their relationship deepens.
 
 ## Setting
 - **Primary Location**: Dead Sea, Ein Bokek beach
@@ -15,10 +15,10 @@ Sera takes Eden to the Dead Sea—the lowest point on earth—for spiritual and 
 - **Atmosphere**: Primordial, healing, outside of time
 
 ## POV
-Third person intimate, Eden's sensory transformation
+Third person intimate, Ethan's sensory transformation
 
 ## Characters
-- **Eden Stone**: Surrendering, floating, healing
+- **Ethan Stone**: Surrendering, floating, healing
 - **Sera Mizrahi**: Guide, healer, becoming beloved
 - **Russian immigrants**: Other bathers, joyful
 - **Bedouin vendor**: Selling Dead Sea mud
@@ -54,18 +54,18 @@ Third person intimate, Eden's sensory transformation
 - Cable car up the fortress
 - Story of Jewish last stand
 - "They chose death over slavery"
-- Eden's American passport feels heavy
+- Ethan's American passport feels heavy
 
 ### Scene 6: The Synagogue Ruins
 - Ancient synagogue at summit
-- Eden breaks down completely
+- Ethan breaks down completely
 - "We're still here. They're gone"
 - Sera holds him through it
 
 ### Scene 7: Qumran Glimpse
 - Where Dead Sea Scrolls found
 - "Truth preserved in caves"
-- Eden: "Like my grandmother's stories"
+- Ethan: "Like my grandmother's stories"
 - Connection across millennia
 
 ### Scene 8: Sunset Return
@@ -84,15 +84,15 @@ Third person intimate, Eden's sensory transformation
 - Dead Sea dying, dropping yearly
 - Salt concentration 34%
 - Masada oath for IDF soldiers
-- Eden can't swim normally, only float
+- Ethan can't swim normally, only float
 - Sera was soldier, knows the history
 
 ## Dialogue Highlights
 - Sera: "You can't drown here, only float"
-- Eden: "Is this what death feels like?"
+- Ethan: "Is this what death feels like?"
 - Sera: "No, this is what letting go feels like"
 - At Masada: "We are still here"
-- Eden: "I taste history in my mouth"
+- Ethan: "I taste history in my mouth"
 
 ## Internal Monologue
 - "My body knows this water from before birth"
@@ -125,7 +125,7 @@ Third person intimate, Eden's sensory transformation
 - First time touching Sera intentionally
 
 ## Relationship Development
-- Sera removes armor with Eden
+- Sera removes armor with Ethan
 - First kiss tastes of salt
 - Both crying at Masada
 - Hands finding each other naturally
@@ -143,7 +143,7 @@ Descent → Immersion → Surrender → Floating → Historical connection → L
 - Balance history with present
 
 ## Ending
-Jerusalem apartment, preparing for Shabbat together. Salt still in their hair despite showers. Eden lights candles for second time in life, Sera guides his hands. "You smell like the Dead Sea," she laughs. "You smell like life," he responds, surprising himself with certainty. They drink wine, break bread. Outside, the call to prayer mingles with Shabbat sirens. Eden thinks: "The lowest point on earth taught me to rise." His phone is off. His soul is on.
+Jerusalem apartment, preparing for Shabbat together. Salt still in their hair despite showers. Ethan lights candles for second time in life, Sera guides his hands. "You smell like the Dead Sea," she laughs. "You smell like life," he responds, surprising himself with certainty. They drink wine, break bread. Outside, the call to prayer mingles with Shabbat sirens. Ethan thinks: "The lowest point on earth taught me to rise." His phone is off. His soul is on.
 
 ## Connection to Next Chapter
 Leads to Chapter 20 - decision to leave Israel, journey to exile sites

@@ -1,15 +1,15 @@
 # Chapter 6: The Night Before
 
 ## Opening Line Options
-1. "October 6th fell on a Friday night, though Eden wouldn't realize the significance until later."
-2. "That night, Eden dreamed in a language he didn't know he remembered."
+1. "October 6th fell on a Friday night, though Ethan wouldn't realize the significance until later."
+2. "That night, Ethan dreamed in a language he didn't know he remembered."
 3. "The candlesticks on his counter seemed to glow in the darkness, though he hadn't lit them."
 
 ## Chapter Summary
-October 6th, 2023. Eden experiences prophetic dreams and strange synchronicities. The grandmother's candlesticks on his counter seem to pulse with meaning. Unknown to him, it's both Shabbat and the eve of Simchat Torah. The spiritual world presses against the material veil.
+October 6th, 2023. Ethan experiences prophetic dreams and strange synchronicities. The grandmother's candlesticks on his counter seem to pulse with meaning. Unknown to him, it's both Shabbat and the eve of Simchat Torah. The spiritual world presses against the material veil.
 
 ## Setting
-- **Primary Location**: Eden's Brooklyn apartment
+- **Primary Location**: Ethan's Brooklyn apartment
 - **Secondary Location**: Dream landscapes
 - **Time**: Friday night/Saturday early morning, October 6-7, 2023
 - **Atmosphere**: Liminal, charged, the calm before
@@ -18,7 +18,7 @@ October 6th, 2023. Eden experiences prophetic dreams and strange synchronicities
 Third person intimate, blurring between waking and dreaming
 
 ## Characters
-- **Eden Stone**: Restless, unconsciously aware
+- **Ethan Stone**: Restless, unconsciously aware
 - **Grandmother Rivka** (in dreams): Speaking warnings he can't understand
 - **Dream figures**: Shadowy forms, ancient and modern
 - **Text from Mom**: Checking in, sensing something
@@ -44,10 +44,10 @@ Third person intimate, blurring between waking and dreaming
 - Sleep comes heavy and strange
 
 ### Scene 4: First Dream - The Garden
-- Eden in actual garden (Eden)
+- Ethan in actual garden (Ethan)
 - Fruit trees burning but not consumed
 - Hebrew letters made of fire
-- His name being called: "Eden Israel"
+- His name being called: "Ethan Israel"
 
 ### Scene 5: Second Dream - The Stones
 - Western Wall, but infinite height
@@ -88,7 +88,7 @@ Third person intimate, blurring between waking and dreaming
 
 ## Dialogue/Dream Speech
 - Grandmother: "Eiden Israel, the light is hidden but not lost"
-- Voice: "Are you ready?" Eden: "For what?"
+- Voice: "Are you ready?" Ethan: "For what?"
 - Hebrew words he doesn't understand but feels
 - His own voice: "I don't know the prayers"
 
@@ -123,7 +123,7 @@ Evening anxiety → Failed distraction → Dream sequence → Prophetic visions 
 - Let reader feel the weight building
 
 ## Ending
-6:47 AM. Eden's phone finishes charging, powers on. In seconds, it will flood with notifications that will change everything. But for this moment, in the gray dawn light, Eden Stone sits on the edge of his bed, his grandmother's candlesticks glowing with reflected sunrise, and feels, for reasons he cannot name, that he is standing at the edge of history. The birds have stopped singing. The world holds its breath. His phone begins to buzz.
+6:47 AM. Ethan's phone finishes charging, powers on. In seconds, it will flood with notifications that will change everything. But for this moment, in the gray dawn light, Ethan Stone sits on the edge of his bed, his grandmother's candlesticks glowing with reflected sunrise, and feels, for reasons he cannot name, that he is standing at the edge of history. The birds have stopped singing. The world holds its breath. His phone begins to buzz.
 
 ## Connection to Next Chapter
 Direct flow into Chapter 7 - the phone buzzing is the news breaking

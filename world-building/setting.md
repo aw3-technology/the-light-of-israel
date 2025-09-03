@@ -15,8 +15,8 @@
 - **Population**: 8+ million, diverse, secular
 - **Culture**: Progressive, fast-paced, achievement-oriented
 - **Specific Areas**: 
-  - Brooklyn (Eden's apartment, bars, dating scenes)
-  - SoHo (Eden's office)
+  - Brooklyn (Ethan's apartment, bars, dating scenes)
+  - SoHo (Ethan's office)
   - Upper West Side (synagogue)
   - Washington Square Park (vigils)
   - Streets of Manhattan (protests)
@@ -92,8 +92,8 @@
 ## Social Structure
 ### New York
 - **Upper Class**: Tech executives, finance professionals
-- **Middle Class**: Eden's world - product managers, creatives, educated professionals
-- **Lower Class**: Service workers invisible to Eden's bubble
+- **Middle Class**: Ethan's world - product managers, creatives, educated professionals
+- **Lower Class**: Service workers invisible to Ethan's bubble
 
 ### Power Dynamics
 - Cultural power in progressive discourse

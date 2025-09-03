@@ -1,12 +1,12 @@
 # Chapter 18: The Other Side of Evil
 
 ## Opening Line Options
-1. "Rabbi Levi drew a diagram of the Sitra Achra—the Other Side—and Eden felt the room grow cold."
+1. "Rabbi Levi drew a diagram of the Sitra Achra—the Other Side—and Ethan felt the room grow cold."
 2. "'After what you've seen,' the rabbi said, 'you need to understand where evil comes from.'"
-3. "The Zohar speaks of klipot—shells that hide divine light—and Eden thought of burned homes in Be'eri."
+3. "The Zohar speaks of klipot—shells that hide divine light—and Ethan thought of burned homes in Be'eri."
 
 ## Chapter Summary
-Back with Rabbi Levi in Jerusalem, Eden studies the Kabbalistic understanding of evil (Sitra Achra). After witnessing October 7th's aftermath, he needs framework for processing darkness. The rabbi teaches about klipot (shells), tikkun (repair), and how evil serves divine purpose.
+Back with Rabbi Levi in Jerusalem, Ethan studies the Kabbalistic understanding of evil (Sitra Achra). After witnessing October 7th's aftermath, he needs framework for processing darkness. The rabbi teaches about klipot (shells), tikkun (repair), and how evil serves divine purpose.
 
 ## Setting
 - **Primary Location**: Rabbi's study, Jerusalem
@@ -15,24 +15,24 @@ Back with Rabbi Levi in Jerusalem, Eden studies the Kabbalistic understanding of
 - **Atmosphere**: Heavy with learning, ancient wisdom meeting fresh trauma
 
 ## POV
-Third person intimate, Eden's struggling comprehension
+Third person intimate, Ethan's struggling comprehension
 
 ## Characters
-- **Eden Stone**: Seeking understanding of evil witnessed
+- **Ethan Stone**: Seeking understanding of evil witnessed
 - **Rabbi Levi Ben-David**: Teaching deepest mysteries
 - **Sera Mizrahi**: Joins midway, adds her perspective
-- **Other students**: Brief appearance, leaving as Eden arrives
+- **Other students**: Brief appearance, leaving as Ethan arrives
 
 ## Key Scenes
 
 ### Scene 1: Arrival Shaken
-- Eden still processing desert visit
+- Ethan still processing desert visit
 - Rabbi sees it in his face
 - "Sit. First tea, then wisdom"
 - Hands shaking holding cup
 
 ### Scene 2: The Question
-- Eden: "How does God allow such evil?"
+- Ethan: "How does God allow such evil?"
 - Rabbi: "Wrong question"
 - "The question is: what is evil for?"
 - Opening ancient texts
@@ -41,7 +41,7 @@ Third person intimate, Eden's struggling comprehension
 - "Other Side" - realm of shells/klipot
 - Evil as concealment, not opposite
 - "Even darkness serves the light"
-- Eden's resistance and confusion
+- Ethan's resistance and confusion
 
 ### Scene 4: Personal Application
 - "Your depression was a klipah"
@@ -82,13 +82,13 @@ Third person intimate, Eden's struggling comprehension
 ## Important Details
 - Rabbi lost family in Holocaust
 - Sera's perspective from working with trauma
-- Eden's middle name "Israel" = wrestling
+- Ethan's middle name "Israel" = wrestling
 - Tikkun Olam not abstract but specific
 - Evil has expiration date in Kabbalah
 
 ## Dialogue Highlights
 - Rabbi: "Evil is real but not true"
-- Eden: "That's just words after what I saw"
+- Ethan: "That's just words after what I saw"
 - Rabbi: "No, it's the only thing that makes what you saw bearable"
 - Sera: "We don't justify evil, we transform it"
 - Rabbi: "Your name Stone—even stones can be vessels for light"
@@ -113,7 +113,7 @@ Third person intimate, Eden's struggling comprehension
 - Book opens to exact needed passage
 - Three witnesses (divine number)
 - Wind carries sound of prayer from below
-- Eden understands Hebrew suddenly
+- Ethan understands Hebrew suddenly
 
 ## Mystical Concepts Introduced
 - **Sitra Achra**: The Other Side
@@ -131,10 +131,10 @@ Trauma → Seeking → Teaching → Resistance → Breakthrough → Understandin
 - Avoid New Age platitudes
 - Keep it specifically Jewish mysticism
 - Balance intellectual with emotional
-- Show Eden's struggle to accept
+- Show Ethan's struggle to accept
 
 ## Ending
-Walking back through Jerusalem at midnight. Eden notices memorial candles in windows—each one gathering sparks from darkness. Sera takes his hand. "Tomorrow, we go to the Dead Sea. You need to touch the lowest point on earth." Rabbi Levi's final words echo: "Remember—you're not fighting evil. You're liberating light." Eden feels his grandmother's presence, understanding finally why she survived what she survived.
+Walking back through Jerusalem at midnight. Ethan notices memorial candles in windows—each one gathering sparks from darkness. Sera takes his hand. "Tomorrow, we go to the Dead Sea. You need to touch the lowest point on earth." Rabbi Levi's final words echo: "Remember—you're not fighting evil. You're liberating light." Ethan feels his grandmother's presence, understanding finally why she survived what she survived.
 
 ## Connection to Next Chapter
 Leads to Chapter 19 - Dead Sea, physical and spiritual lowest point

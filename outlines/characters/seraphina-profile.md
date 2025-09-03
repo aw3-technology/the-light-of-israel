@@ -13,7 +13,7 @@
 - **Seraphina**: From Hebrew "seraphim" (שְׂרָפִים) meaning "burning ones" - the highest order of angels
 - **Sera**: Her everyday name, grounding the celestial in the human
 - **Mizrahi**: "Eastern" - representing Jews from Arab/Muslim lands, adding complexity to her identity
-- The duality of her name (angelic/everyday) mirrors Eden's journey between spiritual and mundane
+- The duality of her name (angelic/everyday) mirrors Ethan's journey between spiritual and mundane
 
 ## Physical Description
 - **Height**: 5'6"
@@ -49,7 +49,7 @@
 - Loving someone who will leave
 
 ### Desires/Goals
-- **Short-term**: Help Eden see himself clearly
+- **Short-term**: Help Ethan see himself clearly
 - **Long-term**: Build meaningful life balancing sacred and secular
 
 ## Background
@@ -77,48 +77,48 @@
 - Sera was supposed to be there but had to cover a shift at the hospital
 - Last text from Michal: "You're missing the sunrise!"
 - Body never recovered, only Michal's necklace found
-- Carries deep survivor's guilt Eden can't simply "fix"
+- Carries deep survivor's guilt Ethan can't simply "fix"
 
 ### What She's Wrestling With
 - Whether bringing children into this world is ethical
 - Anger at God she hasn't fully processed
-- Jealousy of Eden's "clean" spiritual journey without personal loss
-- Fear that loving Eden means losing him too
+- Jealousy of Ethan's "clean" spiritual journey without personal loss
+- Fear that loving Ethan means losing him too
 - Struggle between her work helping others heal and her own unhealed wounds
 
 ### Her Independent Growth Arc
-- Chapter 15: Masking her pain while helping Eden
-- Chapter 17: Breaks down at Nova site when visiting with Eden
-- Chapter 19: Reveals her loss to Eden at Dead Sea
-- Chapters 21-25: While Eden travels, she does her own work:
+- Chapter 15: Masking her pain while helping Ethan
+- Chapter 17: Breaks down at Nova site when visiting with Ethan
+- Chapter 19: Reveals her loss to Ethan at Dead Sea
+- Chapters 21-25: While Ethan travels, she does her own work:
   - Attends bereaved families group
   - Creates memorial art piece for Michal
   - Has crisis of faith Rabbi Levi helps with
   - Decides to have children despite the fear
-- Chapter 26: When Eden returns, she's different too - scarred but choosing life
+- Chapter 26: When Ethan returns, she's different too - scarred but choosing life
 - Chapter 28: Birth of twins is her victory over death
 - Chapter 33: Teaching her children joy despite knowing loss
 
-## Her Role in Eden's Journey
+## Her Role in Ethan's Journey
 
 ### What She Represents
-- The integration Eden seeks - comfortable being both modern and ancient
+- The integration Ethan seeks - comfortable being both modern and ancient
 - Sacred love vs. his empty dating app encounters
 - The feminine divine (Shekhinah) in exile returning
 - Israel as both real place and spiritual home
 
-### How She Challenges Eden
+### How She Challenges Ethan
 - Calls out his self-pity: "Depression isn't just suffering, sometimes it's refusing to heal"
 - Questions his disconnection: "You can't love anyone else until you love who you are"
 - Forces him to commit: "Stop treating life like you're browsing options"
 
-### How She Heals Eden
+### How She Heals Ethan
 - Shows him tradition can be lived, not just studied
 - Demonstrates that complexity doesn't mean paralysis
 - Loves him not despite his brokenness but through it
 - Models integration of shadow and light
 
-## Story Arc with Eden
+## Story Arc with Ethan
 
 ### First Meeting (Chapter 15)
 - Shabbat dinner in Jerusalem
@@ -151,13 +151,13 @@
 
 ## Relationship Dynamics
 
-### What She Gives Eden
+### What She Gives Ethan
 - Permission to be both Jewish and modern
 - Model of integrated identity
 - Experience of being truly seen
 - Anchor in physical/emotional reality
 
-### What Eden Gives Her
+### What Ethan Gives Her
 - Someone who chooses to return (not born into it)
 - Reminder of diaspora perspective
 - His seeking reawakens her own
@@ -174,13 +174,13 @@
 ### Sample Dialogue
 > "You think you're the first Jew to feel lost? We've been lost for 2,000 years. The difference is choosing to be found."
 
-> "Stop apologizing for existing, Eden. The world does that enough to us already."
+> "Stop apologizing for existing, Ethan. The world does that enough to us already."
 
 > "You want to understand God? First understand that you're worthy of love. Start there."
 
 ## Symbolic Moments
 
-- Teaching Eden to light Shabbat candles properly
+- Teaching Ethan to light Shabbat candles properly
 - Dancing at Jerusalem wedding together
 - Showing him sunrise from Mount of Olives
 - Pressing his hand to Western Wall together
@@ -198,18 +198,18 @@
 - Professional challenges working with trauma
 - Family expectations about marriage
 
-## Her Absence During Eden's Journey
-While Eden travels to Greece, Rome, Germany, and Egypt, Sera:
+## Her Absence During Ethan's Journey
+While Ethan travels to Greece, Rome, Germany, and Egypt, Sera:
 - Continues her work with trauma survivors
 - Deepens her own practice
 - Holds space for his return
 - Represents the home he's seeking
 
 ## The Name "Sera"
-When others call her Sera, it's casual, everyday. When Eden finally says "Seraphina" - perhaps in a moment of recognition or love - it acknowledges her full being: both the everyday woman and the burning angelic presence she represents in his transformation.
+When others call her Sera, it's casual, everyday. When Ethan finally says "Seraphina" - perhaps in a moment of recognition or love - it acknowledges her full being: both the everyday woman and the burning angelic presence she represents in his transformation.
 
 ## Core Message Through Her
-Love - real love, sacred love - is not separate from spiritual awakening but part of it. Eden cannot truly return to God without returning to his capacity to love and be loved. Sera embodies this truth: that the divine is not abstract but lives in human connection, in the choice to build life together despite the darkness.
+Love - real love, sacred love - is not separate from spiritual awakening but part of it. Ethan cannot truly return to God without returning to his capacity to love and be loved. Sera embodies this truth: that the divine is not abstract but lives in human connection, in the choice to build life together despite the darkness.
 
 ## Final Note
-Sera is not Eden's salvation - he must save himself. But she is the embodiment of what becomes possible when he does: a life of integrated wholeness, rooted love, and sacred partnership. She is both the promised land and a real woman, both the Shekhinah and Sera who drinks coffee and argues about politics. This duality is her gift to the story.
+Sera is not Ethan's salvation - he must save himself. But she is the embodiment of what becomes possible when he does: a life of integrated wholeness, rooted love, and sacred partnership. She is both the promised land and a real woman, both the Shekhinah and Sera who drinks coffee and argues about politics. This duality is her gift to the story.

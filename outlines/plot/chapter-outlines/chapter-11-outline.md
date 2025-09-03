@@ -1,15 +1,15 @@
 # Chapter 11: Memories of the Boy
 
 ## Opening Line Options
-1. "The rabbi's question—'What do you remember from your bar mitzvah?'—opened a door Eden had sealed for twenty years."
-2. "Eden found the VHS tape in his parents' basement, labeled simply 'Eden's Bar Mitzvah, 2003.'"
-3. "Thirteen is supposed to mark becoming a man, but Eden remembered feeling smaller that day than ever before."
+1. "The rabbi's question—'What do you remember from your bar mitzvah?'—opened a door Ethan had sealed for twenty years."
+2. "Ethan found the VHS tape in his parents' basement, labeled simply 'Ethan's Bar Mitzvah, 2003.'"
+3. "Thirteen is supposed to mark becoming a man, but Ethan remembered feeling smaller that day than ever before."
 
 ## Chapter Summary
-After meeting with Rabbi Levi, Eden is flooded with bar mitzvah memories. What seemed like empty performance at thirteen reveals itself as missed invitation to meaning. He confronts how his family's assimilation shaped his spiritual exile.
+After meeting with Rabbi Levi, Ethan is flooded with bar mitzvah memories. What seemed like empty performance at thirteen reveals itself as missed invitation to meaning. He confronts how his family's assimilation shaped his spiritual exile.
 
 ## Setting
-- **Primary Location**: Eden's apartment, deep in memory
+- **Primary Location**: Ethan's apartment, deep in memory
 - **Secondary Location**: Flashbacks to 2003 bar mitzvah (Temple Beth El, Westchester)
 - **Time**: Tuesday evening, October 17, 2023
 - **Atmosphere**: Past haunting present, nostalgia mixed with regret
@@ -18,10 +18,10 @@ After meeting with Rabbi Levi, Eden is flooded with bar mitzvah memories. What s
 Third person intimate, fluid between past and present
 
 ## Characters
-- **Eden at 33**: Processing, reframing memories
-- **Eden at 13**: Awkward, performing, secretly searching
+- **Ethan at 33**: Processing, reframing memories
+- **Ethan at 13**: Awkward, performing, secretly searching
 - **Parents (younger)**: Proud of achievement, missing the meaning
-- **Miriam Stone (present)**: Worried about Eden's "religious phase"
+- **Miriam Stone (present)**: Worried about Ethan's "religious phase"
 - **Grandmother Rivka**: Crying during his Torah portion
 - **Hebrew school teacher**: Mrs. Goldstein, who tried
 - **Bar mitzvah party kids**: Barely remembered faces
@@ -31,13 +31,13 @@ Third person intimate, fluid between past and present
 ### Scene 1: The Assignment
 - Rabbi Levi asked him to remember
 - "Your bar mitzvah matters more than you know"
-- Eden resistant but curious
+- Ethan resistant but curious
 - Finding old photos on mom's Facebook
 
 ### Scene 2: The Torah Portion Memory
 - Parashat Lech-Lecha (Go forth)
 - Abraham leaving everything behind
-- 13-year-old Eden just wanting it over
+- 13-year-old Ethan just wanting it over
 - Now seeing the prophecy in it
 
 ### Scene 3: The Morning Of
@@ -68,7 +68,7 @@ Third person intimate, fluid between past and present
 - Pulled aside during party
 - Giving him her father's prayer book
 - "One day you'll need this"
-- Eden embarrassed, hiding it
+- Ethan embarrassed, hiding it
 
 ### Scene 8: Present Day Searching
 - Finding the prayer book in storage
@@ -80,7 +80,7 @@ Third person intimate, fluid between past and present
 - Mother calls during his reflection
 - "I heard you've been going to synagogue"
 - "Are you having some kind of breakdown?"
-- Eden: "Maybe I'm having a breakthrough"
+- Ethan: "Maybe I'm having a breakthrough"
 - First honest conversation about faith
 
 ## Themes
@@ -93,16 +93,16 @@ Third person intimate, fluid between past and present
 - Torah portion about leaving and journey
 - Grandmother only survivor in her family
 - Parents treated it as graduation not initiation
-- Eden's Hebrew name called but not claimed
+- Ethan's Hebrew name called but not claimed
 - The prayer book has been waiting twenty years
 
 ## Dialogue Highlights (Remembered & Present)
 - Rabbi: "Today you join the covenant"
-- 13-year-old Eden: "Today I'm done with Hebrew school"
+- 13-year-old Ethan: "Today I'm done with Hebrew school"
 - Grandmother: "My father would be so proud"
 - Mom (past): "Smile for the photographer"
-- Mom (present): "Eden, I'm worried. Going to synagogue every week isn't like you"
-- Eden: "Maybe the me you knew wasn't really me"
+- Mom (present): "Ethan, I'm worried. Going to synagogue every week isn't like you"
+- Ethan: "Maybe the me you knew wasn't really me"
 - Dad (background): "Let him figure it out, Miriam"
 
 ## Internal Monologue (Present)
@@ -137,7 +137,7 @@ Resistance → Memory flood → Child perspective → Adult understanding → Gr
 - Balance humor with pathos
 
 ## Ending
-Eden sits with his grandmother's prayer book open, her margins filled with notes he's beginning to decipher with Google Translate. One phrase keeps appearing in her handwriting: "Dos pintele yid"—the Jewish spark that can never be extinguished. He thinks of Rabbi Levi's words: "You can have a second bar mitzvah at any age. The Torah is always waiting." Eden picks up his phone, texts the rabbi: "I want to read from the Torah again. The same portion. But this time, I want to understand what I'm saying." Outside, October rain begins to fall. Inside, something that was planted twenty years ago finally begins to grow.
+Ethan sits with his grandmother's prayer book open, her margins filled with notes he's beginning to decipher with Google Translate. One phrase keeps appearing in her handwriting: "Dos pintele yid"—the Jewish spark that can never be extinguished. He thinks of Rabbi Levi's words: "You can have a second bar mitzvah at any age. The Torah is always waiting." Ethan picks up his phone, texts the rabbi: "I want to read from the Torah again. The same portion. But this time, I want to understand what I'm saying." Outside, October rain begins to fall. Inside, something that was planted twenty years ago finally begins to grow.
 
 ## Connection to Next Chapter
 Leads to Chapter 12 - diving deeper into mystical study
@@ -145,6 +145,6 @@ Leads to Chapter 12 - diving deeper into mystical study
 ## Revision Considerations
 - Don't mock suburban Judaism too harshly
 - Show system's failure, not just family's
-- Make Eden's return feel earned
+- Make Ethan's return feel earned
 - Keep grandmother's presence subtle
 - Balance specificity with universality

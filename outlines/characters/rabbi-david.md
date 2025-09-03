@@ -4,7 +4,7 @@
 - **Full Name**: Rabbi David Goldberg (or similar)
 - **Age**: 55-65
 - **Gender**: Male
-- **Occupation/Role**: Rabbi, Kabbalist, Eden's Mentor
+- **Occupation/Role**: Rabbi, Kabbalist, Ethan's Mentor
 - **First Appearance**: Chapter 10
 
 ## Physical Description
@@ -37,7 +37,7 @@
 - His own limitations as a guide
 
 ### Desires/Goals
-- **Short-term**: Guide Eden through spiritual crisis
+- **Short-term**: Guide Ethan through spiritual crisis
 - **Long-term**: Preserve and transmit Jewish mystical tradition
 
 ## Background
@@ -55,16 +55,16 @@
 
 ## Story Arc
 ### Beginning
-Meets Eden when he stumbles into synagogue after October 7th
+Meets Ethan when he stumbles into synagogue after October 7th
 
 ### Middle
-Guides Eden through Kabbalah, challenges his assumptions, prepares him for pilgrimage
+Guides Ethan through Kabbalah, challenges his assumptions, prepares him for pilgrimage
 
 ### End
-Sends Eden to Israel and beyond, knowing the student must surpass the teacher
+Sends Ethan to Israel and beyond, knowing the student must surpass the teacher
 
 ## Relationships
-- **Eden Stone**: Sees his potential, treats him as spiritual son
+- **Ethan Stone**: Sees his potential, treats him as spiritual son
 - **Congregation**: Beloved but sometimes controversial for mystical teachings
 - **Other Seekers**: Has guided many through crisis
 
@@ -78,7 +78,7 @@ Mixes everyday English with Hebrew phrases, often speaks in parables or question
 - References to Ein Sof, tikkun olam, divine sparks
 
 ### Sample Dialogue
-> "You think October 7th broke something in you, Eden? No. It broke something open. Now we see what was always there - the Jewish soul that never left Egypt, never left Sinai, never left Jerusalem."
+> "You think October 7th broke something in you, Ethan? No. It broke something open. Now we see what was always there - the Jewish soul that never left Egypt, never left Sinai, never left Jerusalem."
 
 ## Internal Conflicts
 Wrestling with how to make ancient wisdom relevant to modern seekers
@@ -95,8 +95,8 @@ Balancing mystical teaching with practical rabbinical duties
 ## Teaching Method
 - Uses everyday objects to explain mystical concepts
 - Assigns challenging texts but helps interpret
-- Asks questions that crack Eden open
-- Never judges Eden's secular past
+- Asks questions that crack Ethan open
+- Never judges Ethan's secular past
 
 ## Key Mystical Concepts He Teaches
 - **Sefirot**: The Tree of Life, divine emanations
@@ -107,6 +107,6 @@ Balancing mystical teaching with practical rabbinical duties
 
 ## Notes & Ideas
 - Perhaps has his own moment of doubt after October 7th
-- Could have lost family in Holocaust, making Eden's awakening personal
-- Might appear in Eden's dreams/visions later in the journey
-- His absence when Eden returns makes Eden realize he's become his own teacher
+- Could have lost family in Holocaust, making Ethan's awakening personal
+- Might appear in Ethan's dreams/visions later in the journey
+- His absence when Ethan returns makes Ethan realize he's become his own teacher

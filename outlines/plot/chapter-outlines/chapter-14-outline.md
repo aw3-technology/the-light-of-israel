@@ -1,12 +1,12 @@
 # Chapter 14: Arrival in Tel Aviv
 
 ## Opening Line Options
-1. "Ben Gurion Airport at dawn: Eden Israel Stone returns to a homeland he's never seen."
+1. "Ben Gurion Airport at dawn: Ethan Israel Stone returns to a homeland he's never seen."
 2. "The Mediterranean hit him first—salt air through the airplane window, blue like prophecy."
 3. "His passport trembled in his hands as the Israeli officer asked, 'First time home?'"
 
 ## Chapter Summary
-Eden arrives in Tel Aviv in November 2023. The modern city surprises him—startups and beaches, secular and vibrant, still processing October 7th. He experiences immediate sensory and spiritual recognition. The land feels familiar though he's never been here.
+Ethan arrives in Tel Aviv in November 2023. The modern city surprises him—startups and beaches, secular and vibrant, still processing October 7th. He experiences immediate sensory and spiritual recognition. The land feels familiar though he's never been here.
 
 ## Setting
 - **Primary Location**: Tel Aviv - Ben Gurion Airport, hotel, beach, streets
@@ -15,10 +15,10 @@ Eden arrives in Tel Aviv in November 2023. The modern city surprises him—start
 - **Atmosphere**: Grief-tinged vitality, ancient newness, salt and sun
 
 ## POV
-Third person intimate, Eden overwhelmed by arrival
+Third person intimate, Ethan overwhelmed by arrival
 
 ## Characters
-- **Eden Stone**: Arriving, disoriented, recognizing
+- **Ethan Stone**: Arriving, disoriented, recognizing
 - **Taxi driver Moshe**: Gruff, direct, survivor
 - **Hotel clerk**: Young, English-speaking, kind
 - **Beach joggers**: Life continuing despite trauma
@@ -30,7 +30,7 @@ Third person intimate, Eden overwhelmed by arrival
 - "Purpose of visit?" "I don't know"
 - Officer studies his face
 - "Welcome home" stamp
-- Eden's eyes unexpectedly wet
+- Ethan's eyes unexpectedly wet
 
 ### Scene 2: Taxi Ride
 - Moshe: "First time?" "Yes"
@@ -81,7 +81,7 @@ Third person intimate, Eden overwhelmed by arrival
 - Belonging without history
 
 ## Important Details
-- Eden's Hebrew limited to prayers
+- Ethan's Hebrew limited to prayers
 - Passport shows "Israel" as middle name
 - November heat unexpected
 - Everyone asking "why now?"
@@ -89,9 +89,9 @@ Third person intimate, Eden overwhelmed by arrival
 
 ## Dialogue Highlights
 - Moshe: "You're Jewish? You don't look so Jewish"
-- Eden: "I'm starting to feel it"
+- Ethan: "I'm starting to feel it"
 - Clerk: "Tel Aviv is Israel's New York"
-- Eden: "New York never felt like home"
+- Ethan: "New York never felt like home"
 - Waiter: "Hebrew will come. It's in your DNA"
 
 ## Internal Monologue
@@ -126,7 +126,7 @@ Anxiety → Arrival → Disorientation → Recognition → Exploration → Accep
 - Ground spiritual in physical details
 
 ## Ending
-That first night in Tel Aviv, Eden can't sleep. Jet lag, but more. He stands on his balcony watching the Mediterranean darken, lights of Jaffa twinkling ancient across the water. His phone buzzes with worried texts from his mother, angry ones from Aaron. He doesn't answer. Instead, he practices Hebrew letters in a notebook, remembering his grandmother's handwriting. "Aleph, bet, gimel..." The letters of creation, Rabbi Levi called them. Below, Tel Aviv thrums with Thursday night energy, a city that parties through grief, that builds skyscrapers on prophets' paths. Tomorrow, someone said, he should visit Jaffa, see where Jonah fled from God. But tonight, for the first time in his life, Eden Israel Stone isn't fleeing anything.
+That first night in Tel Aviv, Ethan can't sleep. Jet lag, but more. He stands on his balcony watching the Mediterranean darken, lights of Jaffa twinkling ancient across the water. His phone buzzes with worried texts from his mother, angry ones from Aaron. He doesn't answer. Instead, he practices Hebrew letters in a notebook, remembering his grandmother's handwriting. "Aleph, bet, gimel..." The letters of creation, Rabbi Levi called them. Below, Tel Aviv thrums with Thursday night energy, a city that parties through grief, that builds skyscrapers on prophets' paths. Tomorrow, someone said, he should visit Jaffa, see where Jonah fled from God. But tonight, for the first time in his life, Ethan Israel Stone isn't fleeing anything.
 
 ## Connection to Next Chapter
 Leads to Chapter 15 - journey to Jerusalem
@@ -136,4 +136,4 @@ Leads to Chapter 15 - journey to Jerusalem
 - Show complexity of modern Tel Aviv
 - Avoid tourist perspective clichés
 - Keep political undertones subtle
-- Balance Eden's naivety with growing awareness
+- Balance Ethan's naivety with growing awareness
