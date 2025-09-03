@@ -2,152 +2,120 @@
 
 The Arch of Titus still stood in Rome, celebrating Jerusalem's destruction, and Ethan felt two thousand years collapse into now.
 
-November rain had cleared the Forum of tourists, leaving him alone with the monument. The marble had weathered to the color of old bones, but the relief inside the arch remained clear: Roman soldiers carrying the Temple's golden menorah—seven branches, each as tall as a man—the showbread table, the silver trumpets. SPQR carved above, Senatus Populusque Romanus, the Senate and People of Rome. Below, barely visible, someone had scratched modern Hebrew: עם ישראל חי. The people of Israel live.
+November rain had cleared the Forum of tourists, leaving him alone with the monument. The marble had weathered to the color of old bones, but the relief inside the arch remained clear: Roman soldiers carrying the Temple's golden menorah—seven branches, each as tall as a man. SPQR carved above. Below, barely visible, someone had scratched modern Hebrew: עם ישראל חי. The people of Israel live.
 
-Ethan stood in the exact spot where Jewish slaves had been marched through. Vespasian's inscription was still legible: IVDAEA CAPTA. Judea captured. His chest tightened, ribs pressing against something that wanted out.
+Ethan stood where Jewish slaves had been marched through. His chest tightened, ribs pressing against something that wanted out. The easy Jerusalem tears were gone. This felt different. Heavier.
 
 "We don't walk under it."
 
-The voice came from behind him—American accent wrestling with Italian intonations. A group of Israeli tourists had appeared despite the rain, their guide pointing at the arch with the casual authority of someone who'd given this speech a thousand times.
+The voice came from behind him—American accent wrestling with Italian intonations. A group of Israeli tourists, their guide pointing at the arch with casual authority.
 
-"Jews have never walked under the Arch of Titus. Not for two thousand years. We walk around it. Every Jew who comes to Rome, we walk around. Because they thought they destroyed us, but look—" the guide gestured at his group, teenagers mostly, draped in Israeli flags against the rain, "—we're here and the Roman Empire is a tourist attraction."
+"Jews have never walked under the Arch of Titus. Not for two thousand years. We walk around it. Because they thought they destroyed us, but look—" he gestured at his group, teenagers draped in Israeli flags, "—we're here and Rome's a tourist attraction."
 
-One of the teenagers started humming, then singing. The others joined: Hatikvah, in the Roman Forum. The melody rose through rain and ruins. Water streamed down Ethan's face—rain or tears, impossible to distinguish.
+One teenager started humming Hatikvah. The others joined. Water streamed down Ethan's face—rain or tears, impossible to distinguish.
 
-"You're Jewish." Not a question. The guide had approached while his group took selfies that would later appear on Instagram with captions like "We survived ✡️ #NeverAgain #AmYisraelChai."
-
-"I'm... yes." The simple affirmation felt enormous here, under this arch, in this city that had tried to erase them.
-
-"First time?"
+"You're Jewish." Not a question. The guide had approached. "First time?"
 
 "First time really understanding what it means."
 
-The guide—Daniel, from Queens originally, made aliyah five years ago—nodded like he'd heard this before. "There's someone you should meet. Michele Della Rocca. His family has been in Rome since before the destruction. Jewish Romans who never left, not through the Empire, not through the Popes, not through Mussolini. He runs a restaurant in what used to be the ghetto. Tell him Daniel sent you. Tell him you're ready to hear the real story."
+The guide—Daniel from Queens—nodded. "There's someone you should meet. Michele Della Rocca. His family's been in Rome since before the destruction. Tell him Daniel sent you."
 
-Via del Portico d'Ottavia still bore the shape of the ghetto's walls, torn down in 1870. The streets narrowed here, compressed by centuries of forced density. The Great Synagogue's aluminum dome caught the late sun—built deliberately tall in 1904, to be seen from the Vatican. Mezuzot on some doorframes, not others. Tourists photographing the stumbling stones—brass plaques marking where Jews were taken in 1943.
+Via del Portico d'Ottavia still bore the ghetto's shape, compressed by centuries of forced density. The Great Synagogue's aluminum dome caught late sun—built deliberately tall in 1904, to be seen from the Vatican.
 
-Piperno occupied the corner of Via Monte de' Cenci, same location since 1860. The walls displayed photographs: Pacifico Piperno, side-burns and dignity, 1890. The restaurant boarded up, 1938. American GIs eating carciofi, 1944.
+Piperno occupied the corner, same location since 1860. Wall photographs showed the restaurant boarded up in 1938, American GIs eating there in 1944.
 
-"Daniel called. Said you stood at the arch and wept." Michele emerged from the kitchen, flour under his fingernails, oil burns mapping forty years at the fryer. Sixty-something, Roma tattoo visible under his rolled sleeve—the contradictions of a Roman Jew.
+"Daniel called. Said you stood at the arch and..." Michele emerged from the kitchen, flour under his fingernails, oil burns mapping forty years at the fryer. Sixty-something, Roma tattoo visible under his rolled sleeve. "Ah, you did more than weep. I can see it."
 
-"I didn't know he—"
+"I don't know what I—"
 
-"Jews in Rome, we all know each other. Two thousand years in the same neighborhood, you notice who comes to look at the arch. Sit. You need to eat."
+"Doesn't matter. Sit. You need to eat."
 
-The carciofi arrived—whole artichokes deep-fried until they opened like bronze flowers. The oil had to be exactly 170 degrees Celsius, Michele had explained, watching the bubbles to know when. A Roman delicacy that most Romans didn't know was Jewish, or chose to forget.
+The carciofi arrived—whole artichokes deep-fried until they opened like bronze flowers. "Oil has to be exactly right," Michele said, watching bubbles. "My family's made these since... eh, who knows? Before your Jesus, before their Christ."
 
-"My family," Michele said, pouring wine that could have been blood or history or both, "we've been here since before your Jesus, before their Christ, before Rome thought it owned the world. We watched Caesar die. We watched the Popes crown themselves. We watched Mussolini march. We're still here."
+Ethan bit into the artichoke. The texture was wrong—too tender, almost meaty. "This doesn't taste like..."
+
+"Like what you expected? Good. Nothing here is what you expect." Michele poured wine. "We've been here since before Rome thought it owned the world. Watched Caesar die. Watched the Popes. Watched Mussolini march. Still here."
 
 "But the destruction—the Temple—"
 
-"Yes, they destroyed the Temple. Carried its treasures through that arch you won't walk under. You know where those treasures are now?"
+"Yes, they destroyed it. Carried the treasures through that arch." Michele leaned forward, oil burns catching light. "You know where those treasures are?"
+
+"The Vatican?"
+
+"Maybe. Or the Tiber—fell in during some medieval riot, waiting in the mud." Michele shrugged. "But the real treasure got out. The... eh, what's the word? The presence. Went into exile with us. They stole our gold but..." He gestured vaguely. "You understand?"
+
+Ethan didn't, but nodded anyway. The restaurant filled with Thursday regulars. Two lawyers arguing in Romanesco, switching to Hebrew for punchlines. A grandmother feeding her grandson, complaining he was too thin.
+
+"Tomorrow, Shabbat. You come. But today—" Michele wiped his hands on his apron. "You need to see the Vatican. See what they did with our God."
+
+The Vatican felt like accumulated guilt made marble. Ethan had expected anger. Instead, he felt pity mixed with recognition—like seeing a child playing with stolen toys, not understanding what they'd taken.
+
+Father Antonio found him in the Sistine Chapel. Young priest, maybe thirty-five, studying the brain-shaped cloud surrounding God.
+
+"You're looking for the Hebrew."
+
+"Can you see it?"
+
+"I study Jewish-Christian relations. How we became we by defining ourselves against you." The priest's accent was Spanish, maybe Portuguese. "Rabbi Di Segni teaches me. Last week, someone asked why Jews can't just accept Jesus. The rabbi said, 'Look outside. Is the world redeemed?'" He shrugged. "No answer."
+
+They walked past 'preserved' Jewish manuscripts. Father Antonio stopped before a marble fragment. "From a Roman synagogue. First century. The Pope keeps saying he'll return these things." He looked tired. "Institutions move slowly. Especially ones that think they're eternal."
+
+"Do you believe that?"
+
+"I believe God's relationship with the Jewish people is eternal. Everything else is..." He made a vague gesture. "Politics."
+
+That evening, Michele's grandmother held court at table seven. Ninety-three, wearing Bulgari earrings—"from before," she always said. She'd survived October 16, 1943, hidden in the hospital on Tiber Island.
+
+"I was twenty," she said in practiced English. "Pretty. My Samuel fixed watches—Orologi Limentani, you can still see the sign. The Germans came at 5:30 AM, Shabbat morning. Took over a thousand. Sixteen came back. Not Samuel."
+
+She grabbed Ethan's hand with fingers like living parchment. "You're searching. All young Jews who come here are. But the permission is already here—in the persistence. Not some miracle oil lasting eight days. That's poetry. The miracle is me serving artichokes to you in 2023."
+
+But something in Ethan resisted the easy comfort. "What if persistence isn't enough? What if we're just... stubborn survivors clinging to something that should have died naturally?"
+
+The table went quiet. Michele's daughter looked up from her phone. The grandmother's grip tightened.
+
+"You think survival is accident?" Her voice sharpened. "You think we stayed because we were too stupid to leave? I had three chances to go to America. My brother went to Argentina in '39. Smart man. Rich man. Dead man—heart attack at sixty, never had children. I stayed in Rome with the Fascists, with the war, with the priests calling us Christ-killers. You know why?"
 
 Ethan shook his head.
 
-"Some say the Vatican. Hidden in their vaults with all the other things they stole in God's name. Others say the Tiber—that the menorah fell into the river during a medieval riot and waits in the mud for the Messiah to retrieve it. But you want to know what I think?"
+"Because somebody has to tend the flame. Somebody has to remember the recipes." She released his hand. "You want to quit being Jewish? Fine. Others tried. But don't call it wisdom. Call it what it is—fear."
 
-Michele leaned forward, oil burns on his forearms catching the light.
+Friday afternoon, Ethan helped in the kitchen, feeling the old woman's words like splinters. Michele's family arrived in waves—daughter from Parioli, son from Monteverde, cousins who ran jewelry stores. They argued about football, traffic, whether cousin David's girlfriend was Jewish enough. The complexity of it made Ethan's chest tight. Where did he fit in this tangle of generations, arguments, assumptions?
 
-"I think the Temple treasures are gone. Melted for coin—Romans were practical. But the real treasure got out. The presence. The Shechina. When the Romans came, it escaped. Went into exile with us. Every Jew carries a piece now. They stole our gold but not our gold. You understand?"
+When the sun set, Michele's wife lit candles. Same words he'd heard in Jerusalem, Tel Aviv, Brooklyn—now with Roman intonation. Through the window, couples strolled along the Tiber, beautiful and indifferent to the history it held in its mud.
 
-The restaurant filled with Thursday regulars. At the next table, two lawyers from the Court of Cassation arguing in Romanesco about a case, switching to Hebrew for the punchline of a joke. A grandmother feeding her grandson, complaining he was too thin while he showed her TikToks on his phone.
+After dinner, after songs, Michele asked, "You understand now?"
 
-"Tomorrow," Michele said, "you come for Shabbat. But first, today, you need to see the rest. The Vatican. You need to see what they did with our God."
+"I'm more confused than when I started."
 
-The Vatican felt like another planet—all that marble and gold, the accumulated wealth of centuries of convincing people that poverty was holy while building palaces for celibates. Ethan had expected to feel anger. Instead, he felt something stranger: pity mixed with recognition, like seeing a child playing with stolen toys, not understanding what they'd taken or from whom.
+"Good. Confusion is the beginning. Americans always want the answer. Jews learn to live in the question."
 
-Father Antonio found him in the Sistine Chapel, staring at the brain-shaped cloud surrounding God—Kabbalistic anatomy hidden in plain sight.
+Saturday night, Ethan returned to the Forum. A Birthright group took photos. Two couples walked wide around the arch—muscle memory of avoidance. Others sang, harmonies building against lit marble.
 
-"You're looking for the Hebrew." The priest spoke English with an Iberian accent. Young, maybe thirty-five.
+Ethan photographed himself standing beyond the arch, looking back. Not triumphant—triumph was Roman. Just present.
 
-"You can see it?"
+He texted the photo to Sera: "Still standing."
 
-"I study Jewish-Christian relations. How we became we by defining ourselves against you."
+She responded: "That's all we ever do. Come home."
 
-"And now?"
+Home. The word felt different now. Heavier. More complicated.
 
-"Now I study with Rabbi Di Segni. Last week, a priest asked why Jews couldn't just accept Jesus as messiah. The rabbi said, 'Look outside. Is the world redeemed?' No answer."
+Sunday morning, Michele handed him a package—recipe cards in faded handwriting.
 
-"Yes."
+"For your children, when you have them. Tell them this: we were too tough to digest. Now they eat our food and don't know it's Jewish. That's not revenge. That's..." Michele paused, looking for words. "That's Italy."
 
-"Observant?"
-
-"Learning to be."
-
-Father Antonio smiled, sad. "We worship a Jew who kept Shabbat, and we've spent two thousand years pretending he was something else."
-
-They walked through the Museo Ebraico—Jewish manuscripts 'preserved' during expulsions. Father Antonio stopped before a marble fragment showing a menorah.
-
-"From a Roman synagogue. First century. About the time your Temple fell. The Pope keeps saying he'll return these things, create better relations. But institutions move slowly. Especially institutions that believe they're eternal."
-
-"Do you believe that? That the Church is eternal?"
-
-"I believe God's relationship with the Jewish people is eternal. Everything else is interpretation."
-
-That evening, Michele's grandmother held court at table seven, always table seven. Ninety-three, wearing Bulgari earrings—"from before," she always said, meaning before the war. She'd survived October 16, 1943, hidden in the Fatebenefratelli Hospital on Tiber Island, where Doctor Borromeo invented 'Syndrome K'—a fake contagious disease to keep Nazis from examining Jewish patients.
-
-"I was twenty," she said in English practiced on decades of tourists. "Pretty. My Samuel fixed watches in a shop on Via Arenula—Orologi Limentani, you can still see the sign, faded but there. The Germans came at 5:30 AM, Shabbat morning. I heard them taking the Sonninos from upstairs—the baby crying, little Marco, eighteen months. Over a thousand taken. Only sixteen came back. Not Samuel. Not the Sonninos. Not little Marco."
-
-"And after? You stayed?"
-
-"Where would I go? This is my home. My family has been Roman longer than most Romans. You don't abandon your home because evil visits. You outlast evil. You serve artichokes to their grandchildren and remind them with every bite that we're still here."
-
-She reached across the table, grabbed Ethan's hand with fingers that felt like living parchment.
-
-"You're searching for something. All young Jews who come here are searching. The permission is in the persistence. We persisted. That's the miracle. Not the oil lasting eight days—that's poetry. The miracle is a grandmother in Rome serving Jewish artichokes in 2023."
-
-Friday afternoon, Ethan helped prepare in Piperno's kitchen. Michele's family arrived in waves—his daughter from Parioli with her secular husband, his son the kosher butcher from Monteverde, cousins who ran the jewelry stores on Via del Corso. They argued about Lazio versus Roma, about the mayor's new traffic scheme, about whether cousin David's girlfriend was Jewish enough—her mother yes, but did she know the prayers? The youngest, five-year-old Sofia, sang the Four Questions in Hebrew learned at the Jewish day school on Lungotevere.
-
-When the sun set, Michele's wife lit candles. The same words Ethan had heard in Jerusalem, Tel Aviv, Brooklyn, now with Roman intonation. Through the window: couples strolling on Lungotevere, the Tiber golden in twilight, beautiful and indifferent to the history it held in its mud.
-
-"You understand now?" Michele asked after dinner, after singing, after the children had fallen asleep on couches older than nations.
-
-"I think I'm beginning to."
-
-"Tomorrow night, after Havdalah, go back to the arch. Different energy after Shabbat. The tourist lights will be on, making it look golden, triumphant. But you'll see what we see—a monument to a mistake. They thought they destroyed Judaism by destroying the Temple. Instead, they freed it to become global. Every synagogue is the Temple now. Every Jewish home. Every Jewish heart."
-
-Saturday night, Ethan returned to the Forum. A Birthright group posed for photos. Two couples walked wide around the arch—muscle memory of avoidance. An elderly woman placed a stone at the arch's base, whispered in Ladino. A baby in a stroller wearing a Roma jersey and Star of David.
-
-A young woman started singing—an older melody, maybe Ladino, maybe older. Others joined, harmonies building. The Forum filled with Jewish voices against the lit marble.
-
-Ethan took out his phone, photographed himself standing beyond the arch, looking back at it. Not triumphant—triumph was Roman. But present. Persistent. Alive.
-
-He texted the photo to Sera in Jerusalem: "We won."
-
-She responded immediately, though it was past midnight there: "No. We survived. That's better than winning. Come home."
-
-Home. Not New York, not his apartment. Something else now.
-
-"You returning to Israel?" Michele asked when Ethan came to say goodbye Sunday morning.
-
-"After Berlin. My grandmother's family—Scheunenviertel. I need to see what's left."
-
-Michele nodded. Behind him, regulars argued over newspapers. He handed Ethan a package—recipe cards in his grandmother's handwriting.
-
-"Carciofi alla giudia. The real recipe, the one my grandmother's grandmother used. For your children, when you have them. Tell them this: Rome tried to digest us but we were too tough. They broke their teeth on our persistence. Now they come to us for dinner and don't even know they're eating Jewish food. That's not revenge—Jews don't do revenge. That's survival with style."
-
-The Frecciargento pulled away from Termini Station, past EUR's fascist architecture—Mussolini's 'Third Rome' that was supposed to rival the caesars. Now it hosted tech companies and trade shows. Through the window: umbrella pines and November light that Caravaggio would have recognized, beauty that persisted alongside everything else.
-
-The Temple treasures were gone. But every Jew was a walking temple now.
+The train pulled away from Termini, past EUR's fascist architecture—Mussolini's 'Third Rome,' now hosting tech companies. Through the window: umbrella pines and November light, beauty that persisted alongside everything else.
 
 His phone buzzed. Sera: "How was Rome?"
 
-"Complicated. Beautiful. Painful. Alive."
+"Complicated."
 
-"So, Jewish."
+"Good. Simple places don't teach anything."
 
-"Geography of exile or geography of persistence?"
+Outside: Lazio becoming Tuscany, vineyards and hilltop towns. In four hours he'd cross into Germany. Toward Berlin, where his grandmother's family had lived before they became smoke.
 
-"Same thing."
+The recipes in his bag were stained with oil, annotated in three languages. One note: "More salt after 1967—we won the war." These small rebellions.
 
-Outside the train window: Lazio becoming Tuscany, vineyards and hilltop towns, church bells marking hours that had once been marked by Temple sacrifices, would be marked by something else when Christianity joined Jupiter in the museum of former gods.
+The train entered a tunnel through the Apennines. In the darkness, Ethan saw his reflection superimposed on black—his face going north toward the harder history, the one without Rome's consolations.
 
-The recipes in his bag were stained with decades of oil, annotated in three languages. One note in the margin: "More salt after 1967—your grandfather's blood pressure be damned, we won the war." These small rebellions, these tiny persistences.
-
-The train climbed through Umbria, Tuscany, toward the Alps. In four hours he'd cross into Austria, then Germany. Toward Berlin, where his grandmother's family had lived on Große Hamburger Straße before they became smoke.
-
-Behind him, Rome continued—beautiful, eternal, complicated. The arch still stood. The Jews still stood. Both facts equally unlikely, equally true.
-
-The train entered a tunnel through the Apennines. In the darkness, Ethan saw his reflection in the window—his face superimposed on the black, going north toward the harder history, the one without the beauty of Rome to soften it.
-
-What they carried off through Titus's arch, he now carried within. The menorah burned inside every Jew. The Temple treasures were gone, but the treasure remained.
+Behind him, Rome continued. The arch still stood. The Jews still stood. Both facts equally unlikely. The train climbed toward Germany, carrying questions that had no easy answers.

@@ -8,7 +8,7 @@ Tuesday morning, July. 7:18 AM. The doorbell rang—Aaron with a backpack, sweat
 
 "Yeah."
 
-Aaron looked exhausted. Deeper than jet lag.
+Aaron looked exhausted. Deeper than jet lag. *He's lost weight,* Ethan noticed. *And when did he start biting his nails?*
 
 Sera appeared with Lev on her hip, Ari at her feet. She studied Aaron, then softened.
 
@@ -48,11 +48,11 @@ He paused.
 
 Ethan said nothing. The twins built towers. Sera moved through the kitchen, knowing when to stay, when to leave.
 
-"I used Palestine to run from being Jewish."
+"I used Palestine to—" Aaron stopped, rubbed his face. "Fuck. I used Palestine to run from being Jewish."
 
-"I used Israel to run from being human."
+"And I—" *What did I do?* "I used Israel to run from being human."
 
-They sat with that.
+They sat with that. *Twenty years of friendship and we're just figuring this out now?*
 
 "Go walk," Sera suggested. "Show him the market."
 
@@ -62,7 +62,7 @@ Aaron's eyes darted everywhere, overwhelmed by Hebrew assault, everyone arguing 
 
 They walked. Aaron talked about Layla—her grandmother from Bethlehem, the key to a house that no longer existed.
 
-"She made me realize I was using justice to avoid identity. Universal principles to escape being particular."
+"She made me realize—" He paused, like he was still working it out. "I was using justice to... to avoid having to figure out who I actually was. You know? It's easier to be universal than particular."
 
 German Colony café. Aaron ordered in English, the waiter answered in Hebrew, switched back with visible annoyance.
 
@@ -86,13 +86,21 @@ Aaron was sweating. Not from heat.
 
 Aaron's jaw tightened. "Don't mock this."
 
-"You protested at synagogues, Aaron. After October 7th. While Jews were mourning."
+"You protested at synagogues, Aaron. After October 7th. While—"
 
-"While Palestinians were dying in Gaza."
+"I know what I did."
 
-"Both. Both were happening."
+"—while Jews were mourning."
 
-Ethan leaned forward, found his voice: "You want to know what changed me? It wasn't politics or theology or finding God. It was standing in my grandmother's kitchen, holding her prayer book, realizing I'd inherited something I'd never bothered to unwrap. That being Jewish wasn't just about what happened to us, but what we'd built despite what happened to us. Languages, melodies, arguments about God that lasted three thousand years. You can't outsource that to universal principles. You can't protest your way into belonging somewhere else and call it justice."
+"While Palestinians were dying in Gaza. Were being—"
+
+"Both. Both were fucking happening."
+
+Ethan leaned forward. *Do I tell him about the candlesticks? About crying at the Western Wall?* "You want to know what changed me? It wasn't—it wasn't some big revelation. It was holding my grandmother's prayer book and realizing I'd inherited something I'd never bothered to... to unwrap, you know? That being Jewish wasn't just about—" He gestured vaguely. "What happened to us. But what we built. Despite everything. Languages, melodies, three thousand years of arguing about God."
+
+Aaron started to interrupt.
+
+"Let me finish. You can't outsource that. You can't protest your way into belonging somewhere else and call it justice."
 
 Aaron sat back. "Jesus."
 
@@ -100,13 +108,17 @@ Aaron sat back. "Jesus."
 
 The waiter brought more coffee, slammed it down. At the next table, someone read Haaretz: "Settlers Attack Palestinian Village." Aaron's shoulders tensed.
 
-"After October 7th, when I saw your posts about vigils, about suddenly being Jewish, I thought you'd been brainwashed."
+"After October 7th, when I saw your posts about vigils, about suddenly being—"
+
+"Suddenly being what?"
+
+"Jewish. I thought you'd been brainwashed."
 
 "You posted about Gaza two hours after the massacre."
 
-"Because I knew what would come next. And I was right."
+"Because I knew—" Aaron's voice cracked. "I knew what would come next. And I was right."
 
-"You were right. Congratulations."
+"You were right. Congratulations." *Why am I being such a dick?*
 
 "Now I light candles Friday night."
 
@@ -120,17 +132,21 @@ The waiter brought more coffee, slammed it down. At the next table, someone read
 
 "Stop what? Being angry? You disappeared because I went to synagogue."
 
-"You disappeared to Jerusalem. You're raising Jewish kids in an apartheid state."
+"You disappeared to Jerusalem. You're raising Jewish kids in a—" Aaron stopped.
 
-The word hung between them.
+"Say it."
+
+"In an apartheid state."
+
+The word sat there. *Is that what this looks like to him? To her?*
 
 "Is that what she calls it?"
 
-"She won't say Israel. She calls it '48.'"
+"She won't say Israel. Calls it '48.'"
 
-"And you say both. Israel with me, Palestine with her."
+"And you? What do you call it?"
 
-"Everything about this is exhausting."
+Aaron rubbed his temples. "Depends who I'm talking to. Everything about this is fucking exhausting."
 
 The café filled with lunch crowd. Tech workers, immigrants, expats. Three generations argued in Hebrew at one table. A Palestinian family ate in silence at another.
 
@@ -140,13 +156,13 @@ The café filled with lunch crowd. Tech workers, immigrants, expats. Three gener
 
 "Ethan—"
 
-"I can't meet your Palestinian girlfriend and pretend we're all going to sing songs together."
+"I can't meet your Palestinian girlfriend and pretend we're all going to sing Kumbaya together."
 
-"I'm not asking you to pretend."
+"I'm not asking you to—"
 
-"Then what?"
+"Then what? What exactly are you asking?"
 
-Aaron looked lost. "Maybe just... to still be friends even though we'll never agree."
+Aaron looked lost. Younger than his thirty-three years. "Maybe just... maybe we can still be friends even though we'll never—we'll never agree on this."
 
 They walked back. Aaron stopped at a playground—Israeli and Palestinian kids on swings, their mothers on opposite benches, not talking.
 
@@ -164,7 +180,9 @@ That evening, Aaron stayed for dinner. Ethan lit candles, still reading from a c
 
 "Bridge stories. Subtle."
 
-"She says kids here need them."
+"She says—" Aaron shrugged. "She says kids here need them. I don't know. Maybe they do."
+
+*Or maybe she's trying to fix something that can't be fixed with children's books,* Ethan thought but didn't say.
 
 On the balcony. Jerusalem's Friday night—religious neighborhoods dark, secular bars loud. The segregation visible even from here.
 
@@ -184,7 +202,7 @@ Below: muezzin's call, Hebrew music, Russian conversation. The sounds didn't ble
 
 "But I missed you."
 
-Ethan felt something crack open in his chest—relief, resentment, grief all at once. "Yeah. Me too."
+Ethan felt something crack open in his chest—relief, resentment, grief all at once. *I missed fighting with him. I missed having someone who knew me before all this.* "Yeah. Me too."
 
 Aaron shouldered his backpack. "Layla wants to visit her grandmother's village. What's left. She wants me to come."
 
@@ -200,15 +218,15 @@ They embraced at the door. Brief. Careful. Real.
 
 "Tell her thanks for the books."
 
-"She says everyone here is building bridges or burning them. Sometimes the same bridge."
+"She says everyone here is either building bridges or burning them." Aaron paused at the elevator. "Sometimes the same bridge. I think that's supposed to be profound."
 
 Aaron turned to go, turned back. "We're okay?"
 
 "We're something."
 
-"But not enemies."
+"But not—not enemies."
 
-"No. Not enemies."
+"No." *What are we then?* "Not enemies."
 
 After Aaron left, Sera came out. "You're still friends?"
 
@@ -220,8 +238,10 @@ After Aaron left, Sera came out. "You're still friends?"
 
 "You're Jews. That's what you are. Everything else is details."
 
-Inside, the twins slept. The books Aaron brought lay on the coffee table—bridge stories in two languages that wouldn't meet.
+Inside, the twins slept. The books Aaron brought lay on the coffee table—bridge stories in two languages. Ethan picked up the Arabic one, couldn't read a word. Set it down next to the English version.
 
-But the books sat there anyway, side by side.
+*Will these actually help anything? Or is this just what guilty liberals do—buy books and call it progress?*
 
-That was something.
+But the books sat there anyway. Side by side.
+
+*That's something,* he supposed. *Maybe not much, but something.*

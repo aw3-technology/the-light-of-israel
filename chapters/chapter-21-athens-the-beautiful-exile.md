@@ -26,7 +26,7 @@ Yannis led him along ancient stones, pointing toward the modern city below. "Twe
 
 "The ones who didn't, we called them Maccabees. They won militarily. But look—" He gestured at the Parthenon, still standing. "Greek is the language of the New Testament. The Talmud is full of Greek loan words."
 
-He pulled out worn Aristotle, coffee-stained. "'The particular is less knowable than the universal.' Beautiful. Completely wrong. October 7th was particular—specific people killing specific people. But the world wants it universal—'cycle of violence,' abstract nonsense that avoids seeing particular Jews particularly dying."
+"'The particular is less knowable than the universal,'" Yannis said. "Beautiful idea. Completely wrong. October 7th was particular—specific people killing specific people. But the world wants it universal—'cycle of violence,' abstract nonsense that avoids seeing particular Jews particularly dying."
 
 "Come. Let me show you where we've been hiding since their Temple stopped being fashionable."
 
@@ -62,17 +62,17 @@ She drank from a mug: 'Socrates Died For This Shit' in ancient Greek.
 
 "The fact that I'm Jewish whether I want to be or not. Hamas doesn't care if I keep Shabbat."
 
-"So you're Jewish because antisemites say so?"
+"So you're... what, Jewish because antisemites say so? That's your theology?"
 
 "I can choose to be Jewish on my terms or have it chosen for me on theirs. There's no third option. October 7th proved that."
 
-"Ah, Jerusalem." Mocking but something flickered beneath. "Did you cry at the Wall?"
+She snorted. "Jerusalem. Let me guess—did you cry at the Wall? Have some big moment?"
 
 "I did. But not because of the Wall. Because of a woman on the bus who gave up her seat. Because people say 'Shabbat Shalom' like they mean it. Because for the first time, I was surrounded by Jews and it felt like breathing without thinking about it."
 
 Anna was quiet. Then: "My father returned from Jerusalem changed. Suddenly keeping Shabbat. He wants me to light candles. I wrote my dissertation on patriarchal monotheism."
 
-"I see someone angry her father changed the rules."
+"Your father changed the rules. That pisses you off."
 
 "The rules were we were Greek. Universal. Then October 7th and suddenly we're Jews again?"
 
@@ -88,9 +88,11 @@ They ate in practiced tense silence. Ethan's phone: Sera's sunset from the Mount
 
 "Yes."
 
-Ethan pulled out travel-sized silver candlesticks. Anna stared like they were unwanted evidence.
+Without asking, Ethan stood and retrieved the candlesticks from his bag. He set them on the table deliberately, centering them between the wine and bread. Anna stared like they were unwanted evidence.
 
-"My grandmother lit these every Friday for seventy years. Never missed once. I stood in her Auschwitz barracks two days ago. Seventy-nine years later, the wood still smells like fear. She lit candles not despite what happened but because of it. If she didn't, the light goes out."
+"My grandmother lit these every Friday for seventy years. Never missed once." He struck a match. "I stood in her Auschwitz barracks two days ago. The wood still smells like fear. She lit candles not despite what happened but because of it."
+
+The flames caught, small but insistent. "If she didn't, the light goes out."
 
 "So you're keeping tradition alive out of spite?"
 
@@ -102,7 +104,7 @@ Anna laughed, short and sharp. "You're funnier than most Americans who find them
 
 Later, Yannis walked him to his hotel. "Anna challenges because she's afraid. Of being particular. Of being chosen. Of being hated for something she didn't choose."
 
-At the entrance, Yannis handed him Aristotle. "Page 247. He says universal is more real than particular. We say opposite. Greeks gave the world philosophy. We gave prophecy. When they conflict, choose. I chose philosophy forty years. Then October 7th and philosophy had nothing to say about Jews burning. So now I choose prophecy. Not because it's true—who knows? But because it's mine."
+At the entrance, Yannis paused. "Greeks gave the world philosophy. We gave prophecy. I chose philosophy forty years. Then October 7th and philosophy had nothing to say about Jews burning. So now I choose prophecy. Not because it's true—who knows? But because it's mine."
 
 In his room, Ethan set candlesticks on the desk. Friday night. He lit them without the blessing—still didn't know it by heart. His mouth shaped the words he didn't yet know, body remembering what mind hadn't learned.
 
@@ -122,22 +124,18 @@ She hung up. The candles burned, small but insistent, particular but eternal.
 
 Saturday evening. The synagogue fuller than expected—thirteen, enough for celebration. Anna in the back row, arms crossed like armor, but there. When they sang Lecha Dodi, welcoming the Sabbath bride, her lips moved slightly, remembering words from somewhere.
 
-At kiddush, she took a cookie from the tin, bit into it carefully, her eyes closing for just a moment. The sweetness that survived everything. When Yannis introduced Ethan as "our visitor from Jerusalem," she didn't roll her eyes. Progress.
+At kiddush, she took a cookie from the tin, bit into it carefully. When Yannis introduced Ethan as "our visitor from Jerusalem," she looked down at her hands.
 
-"Not terrible," she said after, helping stack prayer books. "The old rabbi's voice cracks on the high notes."
+"Not terrible," she said after, helping stack prayer books. "Though the old rabbi's voice..."
 
-"But?"
+"Cracks on the high notes?"
 
-"But nothing. Sometimes a cracked voice singing ancient words is exactly right." She paused. "You leave tomorrow?"
+"Yeah." She shrugged, then was quiet for a long moment. "You leave tomorrow?"
 
 "Rome. Then Berlin."
 
-"Collecting cities like stamps."
+"Collecting cities like stamps." She handed him the cookie tin without looking at him. "Whatever. Take these to Rome, I guess."
 
-"Collecting sparks. Tikkun olam—repairing through gathering."
+Outside, the Parthenon's glow reflected in the synagogue windows—beauty and survival side by side, neither quite winning. The taste of honey cookies lingered, sweet and complex.
 
-"Very mystical. Very un-Greek." But she smiled, barely. "Take the cookies to Rome. Tell them Athens remembers."
-
-Outside, the Parthenon still glowed against the night. Beautiful, eternal, empty. But in the small synagogue behind them, thirteen Jews had made sacred time from ordinary Saturday night. Particular, temporary, full.
-
-The math of survival: not universal philosophy but specific people in specific places choosing to continue.
+Ethan walked toward his hotel, candlesticks in his bag, Athens settling into Saturday night around him.

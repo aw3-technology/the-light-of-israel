@@ -62,15 +62,15 @@ When it was Lev's turn, Miriam stepped forward—she'd flown in from New York. "
 
 The second red alert came just as the mohel finished with Lev. The siren rose, that familiar ascending wail. The Americans in the room—Ethan's parents, a cousin from Connecticut—instinctively moved toward the door.
 
-"Stay," commanded Sera's grandmother, ninety-three, survived the camps. "We don't run from brit milah. Not for Nazis, not for rockets."
+"Stay," commanded Sera's grandmother, ninety-three, survived the camps. "We don't—" She paused, breathless. "Not for Nazis. Not for rockets."
 
-They completed the blessings, sang the traditional songs, while somewhere above, death was being calculated and countered. An elderly man Ethan didn't know handed him an envelope—"For the boys' education," he said in accented English. "From the chevra kadisha. We who bury the dead celebrate the living."
+They completed the blessings while somewhere above, Iron Dome calculated trajectories. The traditional songs felt different under sirens.
 
-"This is what it means to be Israeli," Sera's father said quietly to Ethan's parents, pouring them whiskey with hands that barely shook. "We celebrate life especially when death tries to interrupt."
+"This is—" Sera's father poured whiskey with shaking hands. "This is what we do. We keep going."
 
 That night, 3 AM, both boys crying in harmony, Ethan walked his apartment with a son on each shoulder. Lev's circumcision site had bled through the gauze—normal but terrifying. Jerusalem spread below his window.
 
-He spoke to them in Hebrew, the language that had once felt foreign. "You'll never know exile," he told them.
+He spoke to them in Hebrew, his accent still thick but theirs would be perfect. "You'll never know exile," he whispered. *But what else will you know that I wish you didn't have to?*
 
 Ari spit up on his shoulder. The smell of sour milk mixed with surgical soap. This was fatherhood—blood and milk and love so fierce it felt like fear.
 
@@ -80,31 +80,36 @@ His mother appeared in the doorway, wrapped in a robe they'd bought at the shuk.
 
 "I didn't sleep for three months after you were born," she said quietly. "Your father said I checked your breathing so often I probably woke you up."
 
-"I understand now. Why you stayed. We spent so long running from being Jewish, we forgot you can also run toward it."
+"I think I—" She stopped, started again. "We ran so long from being Jewish, we forgot—you can run toward it too."
 
 
 Through the window, the muezzin's call began, that haunting beautiful sound that marked another dawn in Jerusalem. Soon the church bells would follow, then the first prayers at the Western Wall. The boys would grow up with this symphony, this cacophony of competing truths all somehow coexisting in the same ancient air.
 
-"Your grandmother would have loved this," his mother said suddenly. "Though she'd have opinions about the mohel—'Too slow,' she'd say. 'In my day, zip-zip, done.'"
 
 They both laughed quietly. Ethan thought of Rivka Stone, whose death had started this journey, whose candlesticks now sat in his Jerusalem home.
 
-A month later, Ethan stood on his balcony, both boys sleeping against his chest in the carrier. They'd finally figured out breastfeeding after tears and a Russian lactation consultant. The city below was quiet for once. He whispered the Shema into their ears—though they probably just heard it as white noise, like the air conditioner they couldn't sleep without.
+A month later, 3 AM feeding. Both boys crying, Lev's circumcision finally healed. Ethan walked the apartment with them, one on each shoulder. He whispered the Shema into their ears—probably just white noise to them.
 
-Tomorrow, sirens might sound again. Tomorrow, the world might convulse with its ancient hatred of Jews who dared to live. But tonight, his sons breathed against his chest—Israeli from first breath, Jewish from first cut, his from first cry.
+Tomorrow sirens might sound again. *What kind of world am I giving them?* He tried to push the thought away, but it kept returning. Every Israeli parent lived with this—the weight of raising children in a place where normal included rocket alerts.
 
-Ethan Israel Stone, no longer hiding one name or the other. Father in Jerusalem.
+Lev stirred, made that small sound that meant he'd wake soon. Ari's hand found his brother's, even in sleep. *At least they have each other.*
 
-His sons would grow up bilingual but native only to one land. They would serve in the IDF, not by choice but by birth. They would never wonder who they are.
+*Will they hate me for this choice? For giving them Hebrew names they'll have to spell out in America? For IDF service they didn't choose? For being born into a conflict I could have avoided?*
 
-Whether that was blessing or burden would be their own story to write. But they would write it from here, from this impossible city where their birth during Passover while sirens wailed had marked them as inheritors of everything.
+But then Ari opened his eyes—dark like Sera's—and looked at him with that unfocused newborn stare that seemed to see everything and nothing. 
 
-Lev stirred, made a small sound. Ari responded, still asleep, reaching for his brother. Already they knew what Ethan had taken three decades to learn—that you're never alone in the covenant, that belonging isn't something you find but something you're born into, marked with, named for.
+*Or maybe this is what I'm supposed to give them. Maybe running toward something is better than running from it.*
 
-His sons would never know exile. But watching them sleep against his chest, Jerusalem spread below like a promise kept after two thousand years, Ethan realized neither would he. Not anymore. The wandering was over. The return complete.
+Lev started to fuss. The 3 AM feeding. Sera was finally sleeping—first time in days. Ethan carried both boys to the kitchen, their weight insignificant but somehow enormous. 
 
-Tomorrow they would grow, walk, speak, become themselves. Tonight they were just breathing, just being.
+This was the answer to October 7th—not grand statements but this: warming formula at 3 AM, changing diapers, googling "is this poop color normal" in Hebrew.
 
-Lev stirred, started to fuss. The every-two-hours feeding cycle that had turned their lives into a blur of bottles and diapers. This was the answer to October 7th—not grand statements but this: warming formula at 3 AM, googling "is this poop color normal" in two languages.
+His sons breathed against his chest—milk-sweet, sometimes shit-scented, perfect in their imperfection. Ethan Israel Stone: exhausted, terrified, completely committed to this impossible place where even birth came with sirens.
 
-His sons breathed against his chest—milk-sweet, shit-scented, perfect—and Ethan Israel Stone knew exactly who he was: exhausted, terrified, committed. A father in Jerusalem, where even birth came with sirens.
+*Are we safe here? Are we safer anywhere?* 
+
+Outside, Jerusalem slept fitfully, the way it always did. Tomorrow would bring whatever it brought. Tonight, he had this: two sons who would never know exile, who would grow up thinking Hebrew lullabies were normal, who would serve in an army he still didn't fully understand.
+
+*Blessing or burden?* 
+
+Lev's eyes opened, focused on nothing, then closed again. The question would have to wait.

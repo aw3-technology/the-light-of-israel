@@ -48,9 +48,9 @@ Her hand went to her stomach, unconscious gesture he'd noticed her doing more of
 
 The courtyard sounds faded—Russian arguments, French complaints, Arabic from the construction site next door where they were building luxury apartments for Jews on land that had ten thousand years of competing claims. All of it became distant, irrelevant against the sound of future arriving in Hebrew words his brain translated slow as archaeology: pregnant, carrying, creating life.
 
-"When?" His Hebrew deserting him, reverting to English.
+"When?" *Joy and terror in equal measure. A baby. My baby. Our baby. What if I'm not ready? What if we can't afford—*
 
-"Shavuot. When you returned. That first night." She smiled. "Perhaps from before, from December when we first... But I like to think Shavuot. The holiday of receiving. We received more than we knew."
+"Shavuot. When you returned. That first night." Her smile was tired but radiant. "The holiday of receiving. We received more than we knew."
 
 His phone buzzed—his parents, their daily check-in since he'd told them about staying, their confusion and concern transmitted through carefully worded texts that avoided saying what they really thought: that he'd lost his mind, that he was throwing away his American life for a country they saw only through CNN's lens, through Palestinian protests at Columbia, through their own parents' stories of fleeing Europe, not understanding why anyone would flee toward instead of away.
 
@@ -80,7 +80,7 @@ That afternoon, while Sera worked—she counseled October 7th survivors, came ho
 
 "Learning."
 
-Yossi laughed, but not unkindly. "Every American thinks they come here to find themselves. You know what they find? That building hurts. That stones are heavy. That Israeli sun doesn't care about your spiritual journey. You want to build apartments for rich Jews on Arab land while Arabs build next building over for rich Arabs on Jewish land and everyone pretends this is normal?"
+Yossi laughed, not unkindly. "Americans. You all come to find yourselves. You know what you find?" He gestured at the site. "Stones are heavy. Sun is hot. Building hurts." He pulled out his phone, showed Ethan a photo—little girl with pigtails blowing out birthday candles. "My granddaughter. Seven years old. Lives in Haifa with my daughter who thinks I'm meshuga for still doing this work. 'Saba,' she tells me, 'you're seventy-two.' But what else am I going to do? Sit and wait to die?"
 
 "I need work."
 
@@ -92,33 +92,33 @@ He lasted. Every morning, predawn darkness to the site, hands blistering then ca
 
 His parents arrived two weeks later, their visit planned months ago when Ethan was supposed to be returning to Brooklyn, to sanity, to the life they'd built for him through careful assimilation, good schools, right choices. Instead they found their son dark from sun, rough from labor, speaking broken Hebrew to his pregnant girlfriend—not wife, they noted with concern—in a two-room apartment in East Talpiot where the mezuzah was actually touched, actually kissed, actually treated like more than decoration.
 
-"This is what you chose?" His mother stood at the window overlooking the construction site where Ethan worked, the Palestinian workers and Jewish workers sharing the same shade structure for lunch, the same thermoses of coffee, the same exhaustion that transcended politics.
+"This is what you chose?" His mother's voice cracked. She stood at the window, watching the construction site.
 
-"This is what chose me."
+*God, she looks old. When did that happen? I'm breaking her heart.* "Mom, this is what—it chose me."
 
-"Don't be mystical, Ethan. You're a college graduate. You had a six-figure job. You had a future."
+"Don't be—you're a college graduate. Six-figure salary. You had—"
 
-"I have a future. It's just not the one you planned."
+"I have a future. Just not—" *Not the one you sacrificed for. Not the safe American dream you built for me.* "Not the one you planned."
 
-His father, practical, scanning the apartment with calculating eyes. "What about healthcare?"
+His father scanned the apartment. "Healthcare?" *Always practical. Always worried.*
 
-"It's free here. Universal. Like the civilized world."
+"It's free. Universal."
 
-"What about security? There was a stabbing yesterday in the Old City."
+"Security? That stabbing in the Old City—"
 
-"There was a shooting yesterday in Brooklyn. Three dead. What's your point?"
+"Dad, there was a shooting—in Brooklyn. Yesterday. Three dead." *Why am I being defensive? He's scared. They're both scared.*
 
 They couldn't see it, what he saw. Couldn't feel what had shifted. They saw Israel through American eyes—dangerous, difficult, irrational, foreign. He saw it through eyes that had witnessed October 7th, traveled through exile, returned to find home where home had always been waiting, difficult and dangerous and irrational and his.
 
 Sera made dinner, traditional Shabbat meal though it was Thursday, trying to show them something beyond politics, beyond practicality. His mother helped in the kitchen, pausing to admire the challah Sera had braided, the two women finding careful ground in food preparation, in the universal language of feeding family. His father noticed the mezuzah screws were loose and quietly tightened them while reading the English Jerusalem Post, shaking his head at every article, everything confirming his sense that his son had chosen insanity.
 
-"The pregnancy," his mother finally said over dessert. "When?"
+"The pregnancy," his mother said carefully. "When?"
 
-"January, probably. February maybe."
+"January. Maybe February."
 
-"You'll come home for the birth. American citizenship for the baby."
+"You'll come home for—for the birth? American citizenship—"
 
-"The baby will be Israeli."
+"No." *Too quick. Too harsh.* "The baby will be Israeli."
 
 The silence that followed had weight, had history, had his grandparents' fleeing and his parents' assimilation and his own return all compressed into the space between words.
 
@@ -138,13 +138,13 @@ His mother crying now, quiet tears that she tried to hide. "We gave you everythi
 
 Ethan looked at Sera, who understood without translation, who'd heard this conversation in a dozen variations from a dozen immigrant families, the parents who couldn't understand why their children chose difficulty over ease, meaning over money, belonging over success.
 
-"You gave me everything except the one thing that matters," Ethan said, surprising himself with the clarity. "You gave me everything except a reason to be Jewish beyond avoiding antisemitism. Here, I don't need a reason. Here, Jewish is the default. Here, I build on Shabbat and it means something different than building on Tuesday. Here, my child will grow up knowing who they are without question, without apology, without translation."
+"You gave me everything except—" Ethan stopped, started again. "Everything except a reason. To be Jewish. Beyond just—avoiding antisemitism. Here I don't need to—" *Am I making sense? Do I sound crazy?* "Here, my child will know who they are. Without translation."
 
 "Your child will grow up in a war zone," his father said.
 
-"My child will grow up home."
+"My child will grow up—" *Home. But what if he's right? What if I'm endangering everything for some fantasy of belonging?* "Home. My child will grow up home."
 
-They left three days later, earlier than planned, the visit cut short by irreconcilable difference, by the chasm between those who saw Israel as last resort and those who saw it as first choice. At the airport, his mother hugged him long, whispered, "When you come to your senses, when you need us, we're here."
+They left three days later, earlier than planned, the visit cut short by irreconcilable difference, by the chasm between those who saw Israel as last resort and those who saw it as first choice. At the airport, his mother hugged him long, whispered, "When you come to your senses—and you will—we're here. Your room is still—" She stopped. "We're here."
 
 But she was already speaking to someone who didn't exist, the Ethan who might wake up from this dream, might choose ease over meaning, might return to Brooklyn's safety and spiritual emptiness. That Ethan had died somewhere between Be'eri and Berlin, between the Nova festival grounds and the pyramid at Giza. This Ethan, the one building himself along with Jerusalem, was someone she didn't recognize.
 
@@ -162,15 +162,15 @@ The Ministry of Interior, a week later. Five hours of waiting, wrong forms, righ
 
 He had them. Death certificate from Long Island. Birth certificate showing maiden name: Rosen. Her parents' names: Abraham and Sarah. The names that had been changed, hidden, Americanized, now excavated for the purpose of return.
 
-"Marriage plans?" She looked at Sera's obvious pregnancy.
+"Marriage plans?" She looked at Sera's belly.
 
-"Yes."
+"Ken. Yes. We—soon."
 
-"Good. Easier with Israeli spouse. Though technically you're Jewish enough without. Your Hebrew?"
+"Your Hebrew?"
 
-"Improving."
+"Getting better? I hope?"
 
-She laughed. "They all say that. Takes years. Your children will laugh at your accent. Sign here. Initial here. Date here—Hebrew date, not English."
+She almost smiled. "They all say that. Your kids will laugh at your accent." She pushed forms across the desk. "Sign. Hebrew date, not English."
 
 He signed Ethan Israel Stone in Hebrew letters, the script still awkward in his hand but becoming familiar, like wearing his grandfather's clothes that slowly adjusted to his different body.
 
@@ -194,11 +194,13 @@ They were. Calloused, scarred, strong. Builder's hands. Israeli hands. The hands
 
 She guided his rough hands to her belly where something built itself without blueprint, without struggle, with the same certainty that had brought him here, kept him here, transformed him here.
 
-"What should we name him?" she asked. "If it's a boy?"
+"Names," she said. "If it's a boy?"
 
-"Something with building in it. Boneh. Binyamin. Something about creating from nothing."
+*A boy. Will he look like me? Will he sound Israeli? Will my parents ever meet him?* "Something with building. Boneh? Binyamin?"
 
-"From everything," she corrected. "You didn't come from nothing. You came from grandmothers and exile and October 7th and the journey through Rome and Athens and Cairo. You came from everything that led to this moment, these hands, this life we're building."
+"From everything," she said. "You came from grandmothers. From October 7th. From Cairo and Berlin and—" She yawned. "All of it led here."
+
+*All of it. Including the fear. Including the doubt. Including the possibility this is all a mistake.*
 
 The muezzin's call to prayer echoed from East Jerusalem, church bells rang from the Christian Quarter, and in their apartment, Jewish life continued its ancient insistence on continuing. Ethan thought of his parents, probably somewhere over Greenland now, discussing their crazy son, their lost son, their son who'd chosen the hard path when easy was available.
 
@@ -232,8 +234,10 @@ Tomorrow he would continue learning Hebrew.
 
 Tomorrow he would plan a wedding, prepare for fatherhood, navigate bureaucracy.
 
-But tonight was Shabbat in Jerusalem, and that was enough.
+But tonight was Shabbat in Jerusalem.
 
-That was everything.
+Outside, the construction cranes stood motionless against the sky, waiting for Sunday. *Will I still be building then? Will the money last? What if the baby comes early?*
 
-That was home.
+He pushed the thoughts away. Shabbat was for rest, not worry.
+
+Though the worry remained, quiet and persistent as Jerusalem stone.

@@ -40,7 +40,9 @@ The lamp flickered once.
 
 "The possibility of choosing evil. Without that, no free will. Without free will, no love."
 
-Ethan struggled alone with the text for twenty minutes, Hebrew swimming before his eyes. Klipot—shells hiding light. The structure of concealment. His grandmother surviving Bergen-Belsen's ultimate darkness.
+Ethan stared at the Hebrew text. The letters swam. "This is just—philosophy. Theory. Those people are still dead."
+
+"Yes. They are." The rabbi's voice was quiet. "Philosophy doesn't bring them back. But maybe it keeps us from joining them. In despair, I mean."
 
 The door opened—Sera with her own key. She looked between them, understood.
 

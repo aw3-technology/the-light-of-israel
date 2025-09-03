@@ -18,29 +18,29 @@ The American lawyer laughed—recognition, not mockery. "I thought Shabbat was a
 
 "I came here because October 7th made me realize I was Jewish in my bones but nowhere else. Like discovering you've been speaking a language in your sleep that you don't know awake." Ethan pulled out his grandmother's Hebrew Bible, its margins filled with her Polish-inflected annotations. "Tonight we'll study the portion of Lech Lecha—God telling Abraham to go forth. But really, it means go to yourself."
 
-"The Hebrew is specific," Ethan said, writing the letters on the small whiteboard Rabbi Levi had installed. His handwriting still looked like a child's, but the meaning was clear. "Lech lecha—go to you. Not from your land but to your essence. Abraham's journey wasn't geographic. It was ontological."
+"The Hebrew is specific," Ethan said, writing the letters on the whiteboard. His handwriting still looked like a child's. "Lech lecha—go to you. Not from your land but to your essence."
 
-"What's ontological?" the nurse asked, exhaustion making her blunt.
+*Am I explaining this right?* The doubt came suddenly. *What if I'm just repeating Rabbi Levi's words without understanding?*
 
-"The nature of being. Who you are beneath who you learned to be."
+"What's that mean exactly?" the nurse asked, exhaustion making her blunt.
 
-The German student's hand shot up, then dropped—realizing this wasn't that kind of classroom. "But Abraham was commanded. We choose. How is it the same journey?"
+"Who you are beneath... beneath who you learned to be, I guess." He paused, caught between certainty and doubt. "Though honestly, I'm still figuring that out myself."
 
-"October 7th was our command," Moshe said quietly, his first words of the evening. "The world broke, and we heard something calling through the cracks."
+The German student's hand shot up, then dropped. "But Abraham was commanded. We choose. How is it the same?"
 
-Ethan nodded, feeling the group's energy shift from polite attention to recognition. "The Hasidic masters teach that every soul has three garments—thought, speech, and action. But beneath those, there's an essence that can't be clothed or named. Only lived."
+"October 7th was our command," Moshe said quietly. "The world broke. We heard something calling through the cracks."
 
-He pulled out a flask—not alcohol but water from the Kineret, the Sea of Galilee. "When I touched the Western Wall for the first time, I expected stone. I found a pulse. Not metaphorically. Literally. A grandmother's heartbeat. A broken heart still beating."
+Ethan felt the group's energy shift. *This is working. Or is it? Are they really understanding or just being polite?*
+
+"When I touched the Western Wall for the first time, I expected stone. I found a pulse. Like... like a grandmother's heartbeat."
 
 The Russian programmer leaned forward. "This is poetry or psychology?"
 
-"Neither. Both. In Hebrew, the word for 'thing' and 'word' is the same—davar. Reality and language aren't separate. They're one substance appearing in different forms."
+"I don't know." Ethan shrugged, surprising himself with the honesty. "Maybe both? Look, I'm not a scholar. I'm just trying to share what happened to me."
 
-"Let me show you something," Ethan said, pulling out a photocopied page from the Zohar, with his own translation penciled beneath the Aramaic. "The mystics call it nekudah emtza'it—the middle point. Not compromise but the place where opposites reveal themselves as partners."
+The American lawyer was taking notes on his phone. "Like synthesis in dialectics?"
 
-The American lawyer was taking notes on his phone, thumbs flying. "Like synthesis in dialectics?"
-
-"No. Synthesis implies resolution. The middle point maintains the tension. Like a violin string—too loose, no music. Too tight, it snaps. The music lives in the tension."
+"Honestly? I'm not sure about the dialectics part." Ethan felt heat rise in his cheeks. "But I know about tension. Like—you need the tension, or there's no music."
 
 He drew two circles on the board, overlapping like a Venn diagram. "October 7th. Before, I was here"—pointing to one circle—"Jewish but not. After, everyone expected me to jump here"—the other circle—"fully religious, fully Israeli, fully certain. But the truth happened here"—pointing to the overlap—"in the middle kingdom where nothing is pure and everything is possible."
 
@@ -60,9 +60,9 @@ The German student was crying silently, tears tracking through makeup she'd care
 
 He wrote his Hebrew name on the board. "Ethan Israel—the name I took here, adding the wrestling, the God-wrestling that Israel means. Not winning or losing but engaging."
 
-"And the whispered name?" Moshe asked, his voice carrying unexpected gentleness.
+"And the whispered name?" Moshe asked.
 
-"Still listening for it. Sometimes I think I hear it in my children's laughter. Sometimes in my wife's breathing at 3 AM." He paused, considering how much to reveal. "On the Temple Mount, during the vision, I heard something. The name only my life can pronounce."
+"Still... still listening for it." Ethan's voice caught. "Sometimes I think I hear it in my kids laughing. Or when Sera's breathing at 3 AM." He stopped, uncertain. "On the Temple Mount, I heard something. Maybe. Or maybe I just needed to hear something."
 
 The Russian programmer raised his hand again, old Soviet habits dying hard. "You speak of vision as fact."
 
@@ -102,13 +102,13 @@ Ethan walked to the window, looking out at the Old City walls, golden in dying l
 
 "Yes. And if we become them in response, they win twice. Once in the killing, once in the becoming."
 
-Moshe spoke, his voice carrying decades of weight: "In Morocco, my grandfather was killed in a pogrom. 1948. The Jewish quarter burned. My grandmother could have raised us for revenge. Instead, she taught us to bake challah. 'They burn,' she said, 'we bake. They destroy, we create. This is the only revenge that matters.'"
+Moshe spoke quietly: "In Morocco, my grandfather was killed in a pogrom. 1948. The Jewish quarter burned. My grandmother could have raised us for revenge. Instead, she taught us to bake challah. 'They burn,' she said, 'we bake.'" He smiled, but it was sad. "Seemed like good enough revenge at the time."
 
 The artist was drawing frantically now, shapes emerging—not illustration but energy made visible. "The middle kingdom you speak of—it's not neutral. It's the place where victim and victimizer both dissolve into something else. Where the story becomes bigger than its chapters."
 
 "I don't forgive," the German student said suddenly, fiercely. "Not them. Not my grandfather. Not myself for carrying his blood."
 
-"Forgiveness isn't the teaching," Ethan said. "Transformation is. Taking the raw material of trauma and making something else. Not better, not worse. Other."
+"I don't know about forgiveness," Ethan said carefully. "Maybe transformation? Taking the... the stuff that breaks you and making something else. I'm still figuring out what that means."
 
 
 "We're almost out of time," Ethan said, checking his watch—the one his father had given him, still set to New York time alongside Jerusalem time. "But one more teaching. The concept of teshuvah—usually translated as repentance but really means return."
@@ -159,11 +159,11 @@ Three years since he'd arrived knowing nothing, carrying only questions and his 
 
 The teaching would continue. Week after week, soul after soul, each bringing their own wrestling to the collective match. The middle kingdom was expanding, one Thursday evening at a time, one breath at a time, one return at a time.
 
-At his building's entrance, he looked back toward the Old City, its walls illuminated like golden text. Somewhere, the American lawyer was researching everything Ethan had referenced. The German student was crying in her hostel room, finally allowing grief. The Russian programmer was practicing Hebrew letters. The Ethiopian nurse was humming her grandmother's melodies. The artist was painting the invisible. Moshe was baking challah.
+At his building's entrance, he looked back toward the Old City, its walls catching the last light. Somewhere out there, six people were carrying tonight's questions home. Would they come back next week? Would the teaching hold, or would Thursday's certainties crumble by Sunday?
 
-Each in their own way, returning. Each discovering that the break was where the light entered, that exile was preparation for a return they didn't know they were always making.
+*What if I'm just playing teacher? What if none of this helps anyone?*
 
-Tomorrow, his parents would arrive from New York, his father wearing a kippah he still adjusted every thirty seconds, his mother carrying Hebrew flashcards she studied on the plane. They would sit in the circle next Thursday, students among students, discovering that return was possible at any age, from any distance.
+Tomorrow, his parents would arrive from New York, his father still adjusting his new kippah every few minutes, his mother carrying Hebrew flashcards she'd been studying on the plane. They might sit in the circle next Thursday. Or they might find Jerusalem too much, too foreign, too late.
 
 Ethan climbed the stairs to his apartment, hearing the twins' voices through the door, their Hebrew-English mixture that was becoming Jerusalem's new native tongue. He touched the mezuzah, kissing his fingers—a gesture that had become automatic, natural, true.
 
@@ -175,8 +175,10 @@ Inside, Sera stood backlit by the kitchen light, holding Ari while Lev hugged he
 
 Through the window, the muezzin's call rose over the city, followed by church bells, followed by silence that held all sounds. The middle kingdom expanding with each breath, each soul discovering that home was not a place but a process, not arrival but approach.
 
-The teaching continues.
-The return never ends.
-The light, once glimpsed, illuminates everything.
+Through the window, Jerusalem settled into night—sirens fading, prayers ending, the eternal city pausing between one day's questions and tomorrow's.
 
-Even the darkness. Especially the darkness.
+The teaching would continue, maybe. If people kept coming. If he kept learning what to say.
+
+The light, once glimpsed, illuminated some things. Not everything. Not yet.
+
+But tonight, in this small apartment with his sleeping family, it was enough to see what was right in front of him.
