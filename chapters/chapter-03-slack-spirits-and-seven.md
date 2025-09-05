@@ -92,6 +92,10 @@ A woman at the next table wore a Star of David necklace. Aaron's eyes caught it,
 
 The conversation drifted. Netflix shows. Weekend plans. Aaron ordered another round—his fifth. He always set a hard limit when something was eating him.
 
+His phone lit with a name Ethan didn't recognize. Aaron glanced at it, stood without theatrics, and stepped outside. Through the window, Ethan watched his friend on the sidewalk under the Edison-bulb glow, one hand on his forehead, listening more than talking. After a minute, Aaron tapped into his phone, then said, "I'll cover the car—just be there at nine. Text me when you're home safe," and waited until he saw the typing dots return.
+
+When he came back, he didn't mention it. He slid the phone face down on the table like nothing had happened and asked if anyone wanted fries.
+
 "Did you see Jerusalem?" Marcus asked, scrolling through news. "More settlements."
 
 Aaron's jaw tightened. "Netanyahu's using Judaism as cover for—" He stopped, knuckles white around his glass. Ethan felt his chest go tight in reflex, the old pressure.

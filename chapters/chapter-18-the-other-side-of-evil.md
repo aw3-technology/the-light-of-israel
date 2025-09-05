@@ -1,5 +1,11 @@
 # Chapter 18: The Other Side of Evil
 
+Earlier that afternoon, Ethan had lost himself on purpose in the Old City's narrow arteries and been found by a woman carrying a stack of workbooks. "You're in the wrong quarter for looking that lost," she said, amused more than annoyed. Samira taught third grade at an Arab school near Herod's Gate. She walked him two turns and a stairwell shortcut he'd have missed, pointing with her chin at lintels and inscriptions he would not have seen alone.
+
+"You see stones that remember your Temple," she said, palm on a sun-warmed wall. "I see stones that remember my grandfather's house." She said it without accusation, like a teacher labeling two drawings of the same scene. At Damascus Gate they parted—she to catch a bus, he to wander—her tote bag bumping against her leg like a metronome.
+
+Near a checkpoint, a teenage girl in a school sweater waited, notebooks hugged to her chest. When the turnstile clicked she stepped through, eyes straight ahead, ponytail swinging. No one spoke. The city inhaled, exhaled, kept moving.
+
 "After what you've seen," the rabbi said, "you need to understand where evil comes from."
 
 Jerusalem evening. Ethan sat in Rabbi Levi's study, Negev dust still in his clothes, char smell in his hair. Three days since Be'eri. Three days since Nova. His hands wouldn't stop shaking.

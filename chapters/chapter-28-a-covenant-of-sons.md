@@ -1,6 +1,6 @@
 # Chapter 28: A Covenant of Sons
 
-The twins arrived during a siren, and Ethan learned that Israeli birth is never separate from survival.
+The twins arrived during a siren, and Ethan learned that birth here is never separate from survival.
 
 They'd been deep into the Passover seder, Sera's family crowded around the table in their Jerusalem apartment, when she gasped during Dayenu. Her hand went to her enormous belly, wine spilling across the white tablecloth.
 
@@ -12,7 +12,7 @@ They'd been deep into the Passover seder, Sera's family crowded around the table
 
 The drive to Hadassah Hospital felt both eternal and instant—Jerusalem's ancient streets blurring past as Ethan gripped the wheel, Sera breathing through contractions in the passenger seat. Her mother in the back, calmly timing, occasionally directing Ethan through shortcuts only locals knew.
 
-"During Pesach," Sera laughed between contractions. "They choose to come during the story of leaving Egypt. Already dramatic, these boys."
+"During Pesach," Sera laughed between contractions. "They choose the leaving‑Egypt story to arrive. Already dramatic, these boys."
 
 The red alert came as they reached the hospital entrance. That distinctive rising wail that every Israeli knew in their bones. Ethan's American instincts still made him freeze, but Sera's hand found his.
 
@@ -20,7 +20,7 @@ The red alert came as they reached the hospital entrance. That distinctive risin
 
 The hospital had been built for this—walls reinforced, birthing rooms in protected areas. The staff moved with practiced calm, wheeling Sera to safety even as her contractions intensified. Through the sealed windows, Ethan could hear the Iron Dome intercepting something above, that strange firework sound of one death preventing another.
 
-"I'm not stopping," Sera announced to the room, her face fierce with determination, then suddenly pale. "Wait—something's wrong—"
+"I'm not stopping," Sera announced to the room, face fierce with determination, then suddenly pale. "Wait—something's wrong—"
 
 The monitor's beeping changed pitch. The midwife's eyes sharpened, hands moving quickly across Sera's belly. "Baby A's heart rate is dropping. We need to move faster."
 
@@ -28,9 +28,9 @@ Ethan's world narrowed to the sound of that monitor, the controlled urgency in t
 
 The first twin emerged as dawn crept across Jerusalem's hills, purple-faced and silent for three eternal seconds before his cry drowned out the distant all-clear siren. The second came about twenty minutes later—stuck, the doctor's hands guiding, Sera screaming in a way that would echo in Ethan's dreams—as the sun fully claimed the sky.
 
-"He's not breathing properly," someone said about the second twin. Suction, oxygen, hands working with practiced urgency while Ethan stood frozen, time stretching until finally, finally, a weak cry that strengthened into a wail.
+"He's not breathing properly," someone said about the second twin. Suction, oxygen, practiced hands—Ethan stood frozen until finally, finally, a weak cry strengthening into a wail.
 
-Ethan held them both, these impossible creatures who were somehow his, slick with birth, smaller than he'd imagined, and wept without shame. The midwife smiled tiredly, blood on her scrubs. "Sabras from first breath," she said. "Native-born. They'll never know what it means to be from somewhere else."
+Ethan held them both, these impossible creatures who were somehow his, slick with birth, smaller than he'd imagined, and wept without shame. The midwife smiled tiredly, blood on her scrubs. "Sabras from first breath," she said. "Native-born."
 
 Sera was shaking—adrenaline, exhaustion, blood loss. "Let me see them," she whispered, and when they placed both boys on her chest, skin to skin, she made a sound Ethan had never heard before—pure animal recognition.
 
@@ -62,7 +62,7 @@ When it was Lev's turn, Miriam stepped forward—she'd flown in from New York. "
 
 The second red alert came just as the mohel finished with Lev. The siren rose, that familiar ascending wail. The Americans in the room—Ethan's parents, a cousin from Connecticut—instinctively moved toward the door.
 
-"Stay," commanded Sera's grandmother, ninety-three, survived the camps. "We don't—" She paused, breathless. "Not for Nazis. Not for rockets."
+"Stay," commanded Sera's grandmother, ninety‑three, camp survivor. "We didn't for Nazis. We won't for rockets."
 
 They completed the blessings while somewhere above, Iron Dome calculated trajectories. The traditional songs felt different under sirens.
 
@@ -102,7 +102,7 @@ But then Ari opened his eyes—dark like Sera's—and looked at him with that un
 
 Lev started to fuss. The 3 AM feeding. Sera was finally sleeping—first time in days. Ethan carried both boys to the kitchen, their weight insignificant but somehow enormous. 
 
-This was the answer to October 7th—not grand statements but this: warming formula at 3 AM, changing diapers, googling "is this poop color normal" in Hebrew.
+This was an answer to October 7th—not grand statements but this: warming formula at 3 AM, changing diapers, googling "is this poop color normal" in Hebrew.
 
 His sons breathed against his chest—milk-sweet, sometimes shit-scented, perfect in their imperfection. Ethan Israel Stone: exhausted, terrified, completely committed to this impossible place where even birth came with sirens.
 

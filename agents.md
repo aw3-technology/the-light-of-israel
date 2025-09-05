@@ -41,7 +41,7 @@ Purpose: This file instructs Codex (and any contributing agent) how to write, re
 - File Layout (choose one and stick to it; update here):
   • Single‑file mode: `manuscript/novel.md`
   • Multi‑file mode: `manuscript/chapters/ch-XX-title.md` and an index `manuscript/novel.md` that concatenates via build script (if used).
-  Current mode: TBD. Set once decided.
+  Current mode: Single‑file mode (`manuscript/novel.md`).
 
 
 5) Continuity & World Bible
@@ -154,4 +154,3 @@ How to Use This Guide
 - Read once per session to reset voice and rules.
 - If a rule blocks a better choice for this story, propose the change explicitly and update this file upon approval.
 - Keep this document short, living, and authoritative.
-

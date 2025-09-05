@@ -36,7 +36,7 @@ The Dome of the Rock caught first light, gold burning against blue sky. Al-Aqsa 
 
 Birds erupted—dozens of doves. Wings like scattered prayers.
 
-Ethan's vision began to blur. He hadn't eaten since yesterday's fast. The altitude. Or something else. The stones beneath his feet seemed to pulse with their own heartbeat.
+Ethan's vision began to blur. He hadn't eaten yet. The altitude. Or something else. The stones beneath his feet seemed to pulse with their own heartbeat.
 
 Then fire.
 
@@ -66,7 +66,7 @@ They traded numbers without talking about why.
 
 Ethan walked back as Jerusalem woke—shops opening, children heading to school, the ordinary miracle of a city that had died and revived more times than anyone could count. His head throbbed. The vision felt distant now, like trying to remember a dream.
 
-At home, Sera was feeding the twins. Ezra fussing, Avi patient. She looked up, saw his face.
+At home, Sera was feeding the twins. Ari fussing, Lev patient. She looked up, saw his face.
 
 "Where were you?" 
 
@@ -93,6 +93,8 @@ Then: "What you saw this morning. My grandfather used to say this place shows pe
 Then: "Better delete these."
 
 Ethan deleted them, but the words remained. Like the vision—maybe neurons misfiring in a charged place. Maybe something else. Maybe it didn't matter which.
+
+He thought of Samira's students and the girl at the checkpoint; Ahmad's daughter belonged beside his own boys now, not as a counterpoint but as part of what he held when he said this city out loud.
 
 He put the boys to bed, started the Shema, then stopped. The words felt suddenly foreign in his mouth, too big, too certain.
 

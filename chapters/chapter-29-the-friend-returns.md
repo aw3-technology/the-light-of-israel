@@ -2,7 +2,7 @@
 
 Aaron Gold stood in Ethan's Jerusalem kitchen like an argument waiting to happen.
 
-Tuesday morning, July. 7:20 AM. The doorbell rang—Aaron with a backpack, sweat stains from the walk up. Over a year and a half since they'd really talked.
+Tuesday morning, July. 7:20 AM. The doorbell rang—Aaron with a backpack, sweat stains from the walk up. A year since they'd really talked.
 
 "I should have called."
 
@@ -62,7 +62,7 @@ Aaron's eyes darted everywhere, overwhelmed by Hebrew assault, everyone arguing 
 
 They walked. Aaron talked about Layla—her grandmother from Bethlehem, the key to a house that no longer existed.
 
-"She made me realize—" He paused, like he was still working it out. "I was using justice to... to avoid having to figure out who I actually was. You know? It's easier to be universal than particular."
+"She made me realize—" He paused, still working it out. "I was using justice to avoid figuring out who I actually was. It's easier to be universal than particular."
 
 German Colony café. Aaron ordered in English, the waiter answered in Hebrew, switched back with visible annoyance.
 
@@ -70,7 +70,7 @@ German Colony café. Aaron ordered in English, the waiter answered in Hebrew, sw
 
 "And?"
 
-"The wrong kind. The kind that knows Palestinian history but not Jewish history. Can name every village destroyed in '48 but not one Yiddish poet."
+"The wrong kind. Knows Palestinian history but not Jewish history. Can name every village destroyed in '48 but not one Yiddish poet."
 
 Aaron was sweating. Not from heat.
 
@@ -114,7 +114,7 @@ The waiter brought more coffee, slammed it down. At the next table, someone read
 
 "Jewish. I thought you'd been brainwashed."
 
-"You posted about Gaza two hours after the massacre."
+"You posted about Gaza hours after the massacre."
 
 "Because I knew—" Aaron's voice cracked. "I knew what would come next. And I was right."
 

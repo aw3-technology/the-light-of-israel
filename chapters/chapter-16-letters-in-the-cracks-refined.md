@@ -90,6 +90,8 @@ In the Christian Quarter, a priest was locking a chapel door. He noticed Ethan's
 
 "Both can be true." Father Elias pressed something into Ethan's hand—olive wood worn smooth. "From Jerusalem's trees. When you travel south—and you will—remember that peace grows here too."
 
+Ethan slipped the olive wood into his pocket. In the alley beyond, a teenager in a school sweater threaded through the crowd balancing a tray of pitas on his shoulder, Arabic bubbling into laughter with a friend. He realized how little he knew of the lives moving so easily around his revelation—their mornings, their fears, the particular weight of their keys. I don't know your story, he thought, but it belongs here as much as mine.
+
 That evening, alone in the tunnels, Ethan stood again at the closest point to where the Holy of Holies had been. The massive stones made architecture of his confusion: he was literally inside the Temple's foundation, inside his own name's foundation—Stone.
 
 "I am Ethan Israel Stone," he said, voice carrying through passages. "I think I'm here."

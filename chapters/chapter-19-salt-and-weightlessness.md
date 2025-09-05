@@ -62,6 +62,8 @@ The cable car rose through history—Roman camps still visible below, the siege 
 
 "They chose death over slavery," she said in the reconstructed synagogue, the oldest he'd ever stood in.
 
+He heard Samira's matter-of-fact voice from yesterday—two drawings of the same scene. These stones remembered zealots and governors; in another quarter, stones remembered a grandfather's house. The parallels didn't cancel each other—they complicated him in a way that felt like honesty.
+
 He broke there. Completely. It came from nowhere—one minute he was reading about the zealots, the next he was doubled over, sobbing like a child. *This is embarrassing,* some part of him noted. *Crying at a tourist site like I'm in a movie.* But the tears wouldn't stop.
 
 Sera held him—awkwardly at first, then with more certainty. "Hey," she said, "hey, it's okay. First time I brought someone here, he threw up. You're doing better than that."
@@ -101,6 +103,8 @@ She lit candles while he watched, still unsure of his place in this ritual.
 They lit the candles as sirens announced Shabbat across the city—not emergency but invitation, the whole city breathing, transforming.
 
 Outside, the muezzin's call wound through streets where Jewish families walked to synagogue, where Christian bells would ring tomorrow, where the stones held all prayers equally.
+
+His phone buzzed on the counter before candlelight found its level. Samira: "My third graders drew two Jerusalems today—one with domes, one with walls. Both true. Shabbat shalom, if you say that." He typed back: "Shabbat shalom. Your line about stones stayed with me." He set the phone face down, already feeling the quiet gather.
 
 They drank wine that tasted like the land—mineral, ancient, sweet with survival. They broke bread she'd baked that morning, when transformation had been just an idea but now was fact, in their cells, the salt still seasoning their skin.
 

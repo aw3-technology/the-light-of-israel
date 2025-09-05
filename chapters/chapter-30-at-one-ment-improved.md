@@ -52,7 +52,7 @@ What if this is as close as I get? What if tomorrow I'm hollow again?
 
 Sera beside him, lips moving silently. For the twins, for this life they'd built.
 
-"I am—" His voice lost in chaos. "Son of—father of—" The words scattered. "I ran, I—"
+"I am—" His voice lost in chaos. "Son of—father of—" The words scattered. "I ran. I—"
 
 Sun touching horizon. The shofar—one impossible blast, longer than lungs should allow.
 
@@ -66,11 +66,11 @@ Breaking fast slowly. Water first—body's scream of relief. Hands still shaking
 
 Neighbors knocked, comparing symptoms. The Moroccan family brought cookies that tasted like redemption to empty stomachs.
 
-"You look—different," Sera said later. Dark circles, beautiful exhaustion.
+"You look different," Sera said later. Dark circles, beautiful exhaustion.
 
-"Feel—pieces came—" He couldn't finish.
+"Feel like pieces came—" He couldn't finish.
 
-"At-one-ment." She touched his face. "Being—"
+"Atonement," she said softly. "At-one-ment."
 
 Below, first car engine in twenty-five hours. Life resuming.
 
@@ -82,12 +82,8 @@ They slept, unaware.
 
 Outside, Jerusalem hummed back to life. Traffic resuming. The mystical becoming mundane again.
 
-Ethan Israel Stone, thirty-four, fragments—were they really together? Or would morning scatter them again?
+Ethan Israel Stone, thirty-four—fragments aligned, for now.
 
 Stars above that Abraham was promised. City below, eternal and already honking.
 
-One.
-
-For now.
-
-Maybe that was enough.
+One, for now. Maybe that was enough.

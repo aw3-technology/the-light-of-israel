@@ -148,7 +148,7 @@ They left three days later, earlier than planned, the visit cut short by irrecon
 
 But she was already speaking to someone who didn't exist, the Ethan who might wake up from this dream, might choose ease over meaning, might return to Brooklyn's safety and spiritual emptiness. That Ethan had died somewhere between Be'eri and Berlin, between the Nova festival grounds and the pyramid at Giza. This Ethan, the one building himself along with Jerusalem, was someone she didn't recognize.
 
-The Ministry of Interior, a week later. Five hours of waiting, wrong forms, right forms, missing documents, found documents, the bureaucracy of belonging grinding slow as tectonic plates. The clerk, Russian immigrant herself twenty years ago, looked at his papers with the exhaustion of someone who'd processed ten thousand dreams and watched nine thousand fade.
+The Ministry of Interior, a week later. Five hours of waiting—wrong forms, right forms, missing documents, found documents—the bureaucracy of belonging grinding slow as tectonic plates. The clerk, a Russian immigrant twenty years ago, looked at his papers with the exhaustion of someone who'd processed ten thousand dreams and watched nine thousand fade.
 
 "Parents Jewish?"
 

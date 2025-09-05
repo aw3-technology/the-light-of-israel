@@ -34,7 +34,7 @@ The commute: subway car packed with morning commuters scrolling through another 
 
 At Union Square, a homeless man pointed directly at Ethan through the window. "Israel!" he shouted as the train pulled away. "Wake up!"
 
-Ali's corner bodega. "Seven eighteen," said the elderly Yemeni owner. Ethan handed over exact change. "Have blessed day, brother," the owner said. Ethan nodded without hearing the blessing.
+Ali's corner bodega. "Seven twenty," said the elderly Yemeni owner. Ethan handed over exact change. "Have blessed day, brother," the owner said. Ethan nodded without hearing the blessing.
 
 His work badge read "Ethan Stone, Senior Product Manager." No middle name. He'd stopped using "Israel" in college, when the full name felt like carrying a flag for a country he'd never visited. Now just Ethan Stone—clean, professional, uncomplicated.
 
@@ -54,7 +54,7 @@ The subway home. Brooklyn approaching through scratched windows. Somewhere in hi
 
 Maybe tonight.
 
-The train pulled into his station at 7:18 PM. He noticed the time and almost laughed at himself for looking for patterns.
+The train pulled into his station just after seven. He noticed the time and almost laughed at himself for looking for patterns.
 
 His phone buzzed as he reached street level. 7:19 PM. Unknown number:
 

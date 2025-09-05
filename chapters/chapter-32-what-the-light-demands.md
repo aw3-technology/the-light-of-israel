@@ -2,27 +2,27 @@
 
 Rabbi Levi's study smelled of binding glue and ancient paper, the Thursday evening light cutting through dust motes like visible time. Three years since Ethan had first stumbled through these doors, unable to distinguish aleph from ayin, carrying his grandmother's prayer book like a talisman he couldn't read.
 
-"You're ready to teach," Rabbi Levi said, not a question.
+"You're ready to teach," Rabbi Levi said—not a question.
 
 "I can barely explain what happened on the Temple Mount."
 
-"Exactly. The teacher who thinks he knows teaches nothing. The student who knows he knows nothing—" Rabbi Levi stood, joints creaking like old floorboards. "They're already waiting."
+"Exactly. The teacher who thinks he knows teaches nothing. The student who knows he knows nothing—" Rabbi Levi stood, joints creaking like old floorboards. "They're waiting."
 
 Six people sat on worn cushions, the study's formal chairs pushed against walls stacked with commentaries. The Russian programmer from Ethan's first ulpan class, still fighting Hebrew's backwards flow. An Ethiopian nurse, surgical mask tucked in her pocket, fresh from twelve hours in the emergency ward. An American lawyer whose suit cost more than most Jerusalem apartments. A sabra artist with cerulean paint under her nails. An older Moroccan man who'd introduced himself only as Moshe. A German student whose eyes carried her grandfather's Wehrmacht history like a visible scar.
 
 Ethan's hands shook slightly—not fear but the weight of transmission, the terror of becoming a link in the chain he'd once tried to break.
 
-"Three years ago," he began, voice catching on the memory, "I thought Yom Kippur was pronounced 'Yom Kipper.'"
+"Three years ago," he began, voice catching, "I thought Yom Kippur was 'Yom Kipper.'"
 
 The American lawyer laughed—recognition, not mockery. "I thought Shabbat was a type of bread."
 
 "I came here because October 7th made me realize I was Jewish in my bones but nowhere else. Like discovering you've been speaking a language in your sleep that you don't know awake." Ethan pulled out his grandmother's Hebrew Bible, its margins filled with her Polish-inflected annotations. "Tonight we'll study the portion of Lech Lecha—God telling Abraham to go forth. But really, it means go to yourself."
 
-"The Hebrew is specific," Ethan said, writing the letters on the whiteboard. His handwriting still looked like a child's. "Lech lecha—go to you. Not from your land but to your essence."
+"The Hebrew is specific," Ethan said, writing the letters on the whiteboard—his handwriting still childlike. "Lech lecha—go to you. Not just from your land but to your essence."
 
 *Am I explaining this right?* The doubt came suddenly. *What if I'm just repeating Rabbi Levi's words without understanding?*
 
-"What's that mean exactly?" the nurse asked, exhaustion making her blunt.
+"What does that mean exactly?" the nurse asked, exhaustion making her blunt.
 
 "Who you are beneath... beneath who you learned to be, I guess." He paused, caught between certainty and doubt. "Though honestly, I'm still figuring that out myself."
 
@@ -34,17 +34,17 @@ Ethan felt the group's energy shift. *This is working. Or is it? Are they really
 
 "When I touched the Western Wall for the first time, I expected stone. I found a pulse. Like... like a grandmother's heartbeat."
 
-The Russian programmer leaned forward. "This is poetry or psychology?"
+The Russian programmer leaned forward. "Is this poetry or psychology?"
 
 "I don't know." Ethan shrugged, surprising himself with the honesty. "Maybe both? Look, I'm not a scholar. I'm just trying to share what happened to me."
 
 The American lawyer was taking notes on his phone. "Like synthesis in dialectics?"
 
-"Honestly? I'm not sure about the dialectics part." Ethan felt heat rise in his cheeks. "But I know about tension. Like—you need the tension, or there's no music."
+"Honestly? I'm not sure about the dialectics." Heat rose in his cheeks. "But I know about tension. You need tension, or there's no music."
 
 He drew two circles on the board, overlapping like a Venn diagram. "October 7th. Before, I was here"—pointing to one circle—"Jewish but not. After, everyone expected me to jump here"—the other circle—"fully religious, fully Israeli, fully certain. But the truth happened here"—pointing to the overlap—"in the middle kingdom where nothing is pure and everything is possible."
 
-The artist pulled out a sketchpad, drawing as she talked. "You're describing negative space. The shape between shapes."
+The artist pulled out a sketchpad, drawing as she talked. "You're describing negative space—the shape between shapes."
 
 "Yes!" Ethan felt the teaching clicking. "In Poland, at Treblinka, I understood this. The absence was so present it became presence. The silence was so loud it became song."
 
@@ -52,7 +52,7 @@ The German student was crying silently, tears tracking through makeup she'd care
 
 "As human," Ethan finished gently. "Capable of everything. That's the terrible teaching. We're all capable of everything. The choosing makes us who we are."
 
-"In Jewish mysticism," Ethan continued, feeling the rhythm now, the teaching flowing through him rather than from him, "every person has multiple names. The one your parents give you. The one others call you. The one you call yourself in the middle of the night. And the one God whispers that you spend your whole life trying to hear."
+"In Jewish mysticism," Ethan continued, feeling the rhythm now, the teaching flowing through him more than from him, "every person has multiple names. The one your parents give you. The one others call you. The one you call yourself in the middle of the night. And the one God whispers that you spend your whole life trying to hear."
 
 "What's yours?" the nurse asked.
 
@@ -137,6 +137,12 @@ She nodded, tears again but different—cleaner somehow. "Will you teach every w
 The American lawyer was helping stack cushions, his earlier challenge dissolved into participation. "I didn't expect... this. I expected rules. Laws. Judaism 101."
 
 "This is Judaism 101. The wrestling. The questioning. The refusing to let go until blessed, even if the blessing comes as permanent limp."
+
+A figure lingered in the doorway, tote bag of workbooks against her hip. "I caught the end," Samira said quietly when the room thinned. "That part about the middle kingdom? That's my classroom most days." She touched the doorframe like it was an old tree. "Thursday nights?"
+
+"Every week," Ethan said. "Come if you want. Bring whoever you want."
+
+She nodded. "If buses run on time," she said with a half-smile that contained a city's logistics, then disappeared into the corridor.
 
 Rabbi Levi appeared in the doorway—he always knew when to return. His eyes surveyed the room, taking in the energy's residue, the transformation's afterglow.
 

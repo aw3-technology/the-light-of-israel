@@ -74,7 +74,7 @@ The sun crested the Mount of Olives. Golden light on stone. Instagram perfect, i
 
 "Praying. Elsewhere but praying."
 
-The minyan formed. Ten men, just enough. Some faces were new—tourists, visitors. Some were constants, like Ethan.
+The minyan formed. Ten men, just enough. Some faces were new—tourists, visitors. Some constants, like Ethan.
 
 Ethan wrapped tefillin. The leather straps left marks on his arm that lasted until noon. Sera said they looked like bondage marks. "They are," he'd told her. She hadn't laughed.
 His phone buzzed once. A message preview: "Layla's grandmother's house. We went. Complicated." From Aaron. He'd read it later.
