@@ -16,7 +16,7 @@ The radiator ticked. Same study, same lamp, everything wrong-angled.
 
 The tea glass burned his fingers—mint, oversweetened. Through the window, the Old City walls caught last light.
 
-"At Be'eri, they found a child's drawing," Ethan said. "Crayon on notebook paper. House with a red roof, stick figures holding hands. The paper was—" He stopped. "Seven hours that girl hid. Her little brother's drawing in her hand."
+"At Be'eri, they found a child's drawing," Ethan said. "Crayon on notebook paper. House with a red roof, stick figures holding hands." He stopped. The rest—seven hours, the hiding, the girl—he couldn't say aloud.
 
 Rabbi Levi's eyes stayed steady. "She survived. That's what matters."
 
@@ -36,11 +36,11 @@ He pulled a volume from the shelf—cracked binding, brown pages.
 
 The rabbi drew two diagrams—mirror images, one clear, one distorted.
 
-"The Sitra Achra. The Other Side. Not the opposite of holiness, but its concealment."
+"There's this idea—the Other Side. Not the opposite of holiness, but..." He searched for words. "Like shadows. They only exist where light gets blocked."
 
-Ethan thought of Samira's two versions of the same wall. Different stories, same stones.
+Ethan stared at the diagrams. "That's not what Samira said. She said we see different things because we are different people."
 
-"When God created space for the world, absence became possible. In that absence—choice. Even terrible choice."
+"Maybe both are true," the rabbi said quietly.
 
 Ethan stared at the Hebrew text. The letters swam. "This is just—philosophy. Theory. Those people are still dead."
 
@@ -48,45 +48,47 @@ Ethan stared at the Hebrew text. The letters swam. "This is just—philosophy. T
 
 The door opened—Sera with her own key. She looked between them, understood. Ethan's phone buzzed. Aaron calling. He declined it, but not before seeing the text preview: "Met someone. Palestinian activist. You'd hate her. Or maybe you'd understand. Can't tell anymore."
 
-"The Other Side," she said, not a question.
+She looked at the open book, the diagrams. "More mystical explanations?"
 
-"He's been there. He needs a map to return."
+"He's trying to understand—"
 
-She sat beside him. Jerusalem winter clung to her coat.
-
-"I studied this after my brother." She touched the diagram. "Suicide. Didn't make it easier. Made it bearable."
+"Understand what? That evil has a purpose?" She turned to Ethan. "My brother killed himself last year. Jumped from a building in Tel Aviv. You want me to find the mystical meaning in that?"
 
 "How?"
 
-"The shells crack. Every mitzvah gathers sparks from darkness."
+"There's supposed to be light trapped in darkness," she said, voice tight. "Every good act frees some of it."
 
 "That sounds like bullshit," Ethan said.
 
-"Maybe it is." Sera touched his arm. "But it's the only bullshit that got me out of bed for two years."
+"It is bullshit." Sera stood up abruptly. "But what else do we have? Logic? Facts?" She laughed bitterly. "The facts are that children are dead and evil exists and..."
+
+She didn't finish.
 
 The rabbi turned to another page. The Hebrew somehow made sense:
 
-"The Other Side feeds on separation. Thrives where divine image is forgotten. Cannot create, only distort."
+The rabbi closed the book. "Look, I don't have answers. Just old stories that sometimes help."
 
-Simple. Not a theological treatise. Just description.
+"October 7th..." Rabbi Levi started, then stopped. "I don't know what October 7th was. I just know we're still here."
 
-"October 7th was the Other Side showing its face." Rabbi Levi gestured toward the window. "But look—Jews returning from everywhere."
+"That doesn't feel like enough."
 
-"That doesn't justify—"
-
-"Nothing justifies what happened. Nothing. But maybe—" He paused, searching. "Maybe something can still grow from it. Has to."
+"No," the rabbi said. "It doesn't."
 
 The muezzin's call began. Below, someone sang Shabbat melodies early.
 
 "Israel," Rabbi Levi said. "Wrestling with God. Also yashar-El—straight to God. Direct connection despite everything."
 
-"I don't feel connected to anything. Especially not God. If God let October 7th happen, then—"
+"I don't feel connected to anything. If there is a God, and God let October 7th happen—"
 
-"Then what? You're angry? Good. Be angry. Argue." The rabbi moved to a cabinet. "That's also connection."
+"Then you're angry."
+
+"Yes."
+
+"Good." The rabbi moved to a cabinet. "Stay angry. Don't let anyone talk you out of it."
 
 "Connection? I want to punch something."
 
-"That's what anger does—cracks the shell." He moved to a cabinet, pulled out something wrapped in velvet.
+The rabbi was quiet for a moment. Then he moved to a cabinet, pulled out something wrapped in velvet.
 
 Tefillin. Black leather boxes and straps.
 
@@ -94,21 +96,15 @@ Tefillin. Black leather boxes and straps.
 
 "How does wrapping leather help? I mean, really. What's leather going to do against—" He gestured vaguely south.
 
-The rabbi was quiet for a long moment. "I don't know. Honestly. But my grandfather did it. In the camps, when he could. Made tefillin from scraps." His voice caught. "Didn't save his life. But maybe it saved something else."
+The rabbi was quiet for a long moment. "I don't know. Honestly."
 
-Sera stood. "Come. Walk. This knowledge settles too heavy standing still."
+Sera stood abruptly. "I need air. This room is—" She didn't finish, just headed for the door.
 
-They climbed toward the Mount of Olives. Cemetery stones faced the Temple Mount—thousands waiting.
+They climbed toward the Mount of Olives in silence. Cemetery stones faced the Temple Mount.
 
-"Your grandmother planted trees on the Mount of Olives. After the war. One for each—well, you know."
+"Your grandmother planted trees. Seventeen of them." Rabbi Levi's voice was quiet. "They survived the 2010 fire."
 
-"How do you know that?"
-
-"Someone told me once. Maybe it was her, maybe someone who knew her. Memory gets fuzzy." He shrugged. "Does it matter? She planted them. They're still growing."
-
-"Why would I go back to Be'eri?"
-
-"Because you kept that child's drawing." He looked at Ethan's jacket pocket. "Am I right?"
+Ethan didn't ask how he knew. Some conversations were too fragile for questions.
 
 They walked back through shuttered markets, late-night learning spilling from yeshiva windows.
 
@@ -118,26 +114,14 @@ At the study, Sera handed him the velvet bag. "Tomorrow morning. Early."
 
 "The physical part? No. Kids learn it. But getting up at the same time every morning, believing it matters when the news is full of—" She shrugged. "That's the hard part."
 
-Rabbi Levi paused at his door. "Look, I don't understand half of what I'm telling you. The Zohar, the klipot—it's all theory until you try to live it." He rubbed his forehead. "My wife thinks I'm crazy, spending so much time on this. But what else do we have? Just do it. The doing might teach us something."
+Rabbi Levi paused at his door. "Look, I don't understand any of this. Maybe it's all just—" He rubbed his forehead. "My wife thinks I'm losing my mind. Maybe I am. But the tefillin... just try them. The doing might teach us something the thinking can't."
 
-Ethan walked home alone, tefillin in one pocket, the folded drawing in another—crayon flaking where he'd creased it. Jerusalem at midnight: soldier checking his phone, Arabic radio from a taxi, someone practicing violin.
+Ethan walked home alone, tefillin in one pocket. Jerusalem at midnight: soldier checking his phone, Arabic radio from a taxi, someone practicing violin.
 
-In his pocket, the child's drawing—stick figures still holding hands. Tomorrow he would try. His grandmother's spoon was in a museum now. Her trees still grew in the Carmel Forest.
+In his apartment, he set the velvet bag on his kitchen table. Tomorrow he would try. Maybe it would help. Maybe it wouldn't.
 
-A yahrzeit candle flickered in a window. His grandmother never lit them—"The dead don't need candles. They need trees."
+A yahrzeit candle flickered in the building across the street. Someone else's grief, burning through the night.
 
-Seventeen trees. They survived the 2010 fire. Still growing.
+His grandmother's seventeen trees were still growing somewhere in the Carmel Forest. That seemed impossible.
 
-Something shifted in his chest. Not healing—too soon. But possibility.
-
-The Other Side was real.
-
-So was this side.
-
-In one pocket, tefillin. In the other, the child's drawing—crayon flaking where he'd folded it.
-
-His grandmother had planted trees with a spoon. Seventeen trees in the Carmel Forest, still growing.
-
-That seemed impossible too.
-
-Yet they grew.
+But apparently impossible things happened all the time.

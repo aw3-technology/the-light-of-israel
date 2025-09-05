@@ -24,7 +24,7 @@ She smiled—tired, knowing. Her stamp came down hard: November 15, 2023.
 
 But her hand lingered on his passport an extra second before sliding it back.
 
-The arrivals hall erupted in Hebrew—guttural and melodic at once, the language scraping something raw in his chest. A family reuniting with shrieks that echoed off the high ceiling, kissing of both cheeks—the sound of it, lips on skin, three times, not the European two. Someone's grandmother wore too much perfume, aggressive roses that made him sneeze. A businessman argued into his phone while his other hand conducted an invisible orchestra. Two soldiers, M16s slung casual as backpacks, debated something that sounded violent but was probably falafel. Everyone stood too close, talked too loud, touched too much. After months of New York's careful personal space, the proximity felt like drowning and breathing at once.
+The arrivals hall erupted in Hebrew—which mostly sounded like aggressive throat clearing to Ethan's untrained ear. A family reunion blocked the walkway, everyone shouting at once while he tried to squeeze past with his suitcase. Someone's grandmother wore too much perfume that made him sneeze violently. He'd forgotten to exchange money, realized the ATM only had Hebrew instructions, and stood there squinting at symbols that meant nothing. His jet-lagged brain couldn't process which way the exit was. When he asked "English?" to a security guard, the man just pointed vaguely and walked away.
 
 "Taxi? You need taxi?"
 
@@ -46,17 +46,15 @@ They passed Lod, where palm trees grew next to Soviet blocks. The air smelled of
 
 "I'm discovering that."
 
-"Discovering?" Moshe laughed, swerving around a Vespa carrying three people and a washing machine. "My grandmother from Casablanca used to say, 'You can change your name, your nose, your country. But Friday night, the candles know who you are.'" He lit another Noblesse with the car's lighter, the smell instantly filling the space. Through the smoke, the Mediterranean appeared—impossibly blue.
+"Discovering?" Moshe laughed, swerving around a Vespa. "American thing, right? 'I'm finding myself.' My ex-wife found herself in Cyprus with her yoga instructor." He lit a cigarette. "Cost me half my pension in the divorce."
 
-He hummed along to the radio—Zohar Argov, the Yemenite singer's voice crackling through old speakers. "Ha-Perach BeGani. '82. My wife walked down the aisle to it. Now my daughter plays it on repeat since her boyfriend went to Gaza."
-
-The radio switched to news. October 7th—zayin b'October—needed no translation.
+The radio played something Arabic. Moshe switched stations, landed on news. October 7th—he turned the volume down.
 
 "You have family here?"
 
-"No. Maybe. Everyone's family now, right?"
+"No."
 
-"My daughter, she's at Nova every Friday. Her friend Shani was there. Twenty-two years old." He merged aggressively. "So yes, everyone's family. Family price for you."
+"Smart. Mine all moved to Miami. Say it's too dangerous here, meanwhile they won't walk to the grocery store after dark." He flicked ash out the window. "My daughter texts me every hour from South Beach. 'Abba, are you safe?' I text back: 'The humidity here will kill me before the rockets do.'"
 
 Tel Aviv materialized through morning haze—white Bauhaus buildings sun-bleached and salt-worn. A juice bar next to a synagogue next to a sex shop. Everyone on electric scooters.
 
@@ -68,19 +66,15 @@ The hotel lobby contained decades—Ottoman tiles, British Mandate furniture, a 
 
 "Maybe because of everything."
 
-"Room 613."
-
-The number stopped him for a beat.
+"Room 418. Elevator's broken, so you take the stairs. Air conditioning works maybe half the time."
 
 ---
 
-The room was everything and nothing—bed, desk, bathroom where the shower would alternate between scalding and freezing.
+The room smelled like industrial carpet cleaner and someone else's cigarettes. The bed sagged in the middle, the mini-fridge hummed aggressively, and the bathroom door didn't quite close. The air conditioning wheezed and died within five minutes.
 
-But the window.
+But the window faced west toward the sea.
 
-The Mediterranean stretched infinite—the same water Jonah had sailed, that refugees had crossed—catching morning light like a blue older than memory.
-
-Ethan opened the window and salt air entered like recognition, like his lungs had been waiting for this specific mixture of sea and exhaust. His cells reorganizing, his grandmother's prayers finally arriving at their destination, forty years late but in Jewish time, exactly on time.
+The Mediterranean stretched out blue and vast. He could smell salt and car exhaust, hear construction and waves. His grandmother had crossed this water in 1941. Now he was here, sweating in a budget hotel room, trying to figure out why.
 
 The beach at Frishman took thirty minutes to reach—Ethan stopping at every Hebrew sign, trying to decode letters that looked like the alphabet of wrestling itself.
 
@@ -88,41 +82,45 @@ Sand already crowded at 7 AM—matkot players, Russian women in swimming caps, E
 
 He touched the water—warmer than the Atlantic in July. The Mediterranean didn't care about his dress pants.
 
-"You came after October 7th?" A woman jogging past—sports bra and combat boots.
+"American?" A woman jogged past, slowed down. Hebrew accent thick as honey.
 
-"I'm figuring it out."
+"Yeah. From New York."
 
-"Nobody knows why they come. But you can tell when someone's arrived. You arriving?"
+"Crazy time to visit." She stretched against a palm tree, looked at his dress shoes on the sand. "First time?"
 
-"I'm arriving."
+"Yeah."
 
-She jogged on toward Gordon Beach, where the drummers would gather at sunset.
+She said something in Hebrew that sounded like a question. He stared blankly.
+
+"I said, you look lost." She laughed, not unkindly. "Tel Aviv will teach you, don't worry."
+
+She jogged off before he could ask what that meant.
 
 ---
 
-Breakfast at Café Bucke—plastic chairs, fluorescent lights, the owner's grandmother from Thessaloniki watching from a photograph. Menu in Hebrew, additions in Russian, waitress switching between Arabic and English. An Ethiopian family eating injera with shakshuka.
+Café Bucke was all plastic chairs and fluorescent lights. The menu was entirely in Hebrew. Ethan pointed at something, hoped for the best.
 
-"You're American."
+"You want this?" The waitress held up the menu, skeptical.
 
-"Yes."
+"Yes?"
 
-"Jewish American, yeah? After October 7th..." The waiter shrugged. "Different now. You feel it?"
+"You sure? Is very spicy."
 
-Ethan nodded.
+What arrived was shakshuka—eggs in tomato sauce that set his mouth on fire. He tried to hide his tears, asked for water in his terrible Hebrew: "Ani rotzeh... water?"
 
-The shakshuka came in a scratched skillet. Coffee in a glass, Turkish style with milk foam—the Israeli inability to choose between traditions.
+"Mayim," she corrected, bringing him a glass and laughing. "American stomach, yes? You want yogurt?"
 
-Ethan pointed at the Hebrew menu, attempted: "Ani rotzeh... shakshuka?"
+The other customers were staring now. His face was bright red, sweat beading on his forehead.
 
-The waiter grinned. "Your Hebrew—terrible. But you tried."
+Back in his room, Ethan sat by the window as the sun set over the Mediterranean. The air conditioning had given up entirely, and sweat stuck his shirt to the cheap desk chair. 
 
-Back in room 613, Ethan sat on his balcony as sun descended toward the Mediterranean. The muezzin's call from Jaffa, 5:47 PM. Church bells. Then the Shabbat siren. Sacred and profane coexisting in a strange truce.
+From somewhere came the call to prayer, then church bells, then at exactly sunset—the Shabbat siren.
 
-Tomorrow, Rabbi Levi's contact. Tonight, Ethan Israel Stone sat on a balcony in Tel Aviv, not fleeing from the wrestling.
+The sound was deeper than he'd expected, more mournful. It held the whole city for one long breath, then faded.
 
-He pulled out his phone, started typing to his mother: "Made it to Tel Aviv. It's..." Deleted. Tried again: "I'm here. More complicated than expected." Deleted.
+He pulled out his phone to text his mother, typed and deleted several attempts.
 
-Finally: "I arrived."
+Finally: "I'm here. It's loud and confusing and I can't read anything. The food is too spicy. I think I'm supposed to be here."
 
 Send.
 
@@ -130,10 +128,10 @@ Her response came immediately—three dots appearing, disappearing, appearing ag
 
 "Your grandmother would be proud."
 
-He set the phone down. Outside his window, Tel Aviv's Thursday night becoming Friday. The Mediterranean held light like memory. Tomorrow was possible because Jews had been practicing tomorrow for three thousand years.
+He set the phone down. Tomorrow he'd try to find Rabbi Levi's contact, assuming he could figure out how to work a Hebrew phone directory. Tonight he'd lie on this sagging bed in this overheated room and listen to a city he didn't understand yet.
 
-The Shabbat siren sounded—long, mournful, beautiful. The city paused for exactly one breath, then continued. 
+Through the thin walls, his neighbors were arguing in rapid Hebrew. A motorcycle backfired in the street. Somewhere, someone was playing music too loud.
 
-Ethan closed his eyes and let himself arrive. Really arrive. Not just in Tel Aviv, but in his own story.
+He was here. That was something.
 
-For the first time in months, maybe years, he wasn't trying to be anywhere else.
+For the first time in months, he wasn't trying to be anywhere else.

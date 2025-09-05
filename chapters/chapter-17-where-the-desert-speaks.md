@@ -4,125 +4,103 @@ The road to the Gaza border was different from a month ago.
 
 Monday morning, November 20th, and Sera drove in silence through the Negev while Ethan watched Jerusalem recede in the side mirror, the city's limestone and light giving way to something older, rawer—desert that remembered everything, that held Abraham's footsteps and yesterday's blood with equal gravity. The car's air conditioning wheezed against heat that pressed through windows like a living thing. His water bottle was already half empty, plastic warm against his lips.
 
-"You need to see where it happened," Sera had said at dawn, finding him on the balcony where he'd been watching the sun rise over the Old City. "The news, the videos—they're not enough. You need to stand there."
+"You need to see where it happened," Sera had said at dawn, finding him on the balcony where he'd been watching the sun rise over the Old City. "The news, the videos—" She stopped. "You need to stand there."
 
-"I don't know if I can," he'd admitted.
+"I don't know if I can."
 
-"Your grandmother would have gone," Sera said. "She would have needed to see."
+"Your grandmother would have—" She paused. "She would have needed to see."
 
 Now, an hour south of Jerusalem, the landscape had changed completely. Sandy hills rolled toward horizons that shimmered with heat even in November. Road signs pointed to places that had been dots on maps five weeks ago but were now seared into collective memory: Sderot, Ofakim, Be'eri. Each name a wound, a yahrzeit, a place where dancing became dying.
 
 The first checkpoint appeared like a mirage solidifying into reality. IDF soldiers, impossibly young, M16s casual across their chests. One approached Sera's window—couldn't be older than nineteen, Ethan's age when he was discovering craft beer in college while this kid was discovering how to stay alive.
 
-Sera spoke rapid Hebrew, her voice different here—not the mystical guide of Mount Zion but someone who knew this language of checkpoints and permissions. The soldier's eyes found Ethan in the passenger seat, taking in his obviously American everything.
+Sera spoke rapid Hebrew, pulling paperwork from the glove compartment—official permits stamped with military insignia, press credentials from her freelance work, contact numbers for their IDF escort. Her voice different here—not the mystical guide of Mount Zion but someone who knew this language of checkpoints and permissions.
 
-"Passport," in English.
+"Passport," the soldier said in English, studying Ethan. "Purpose?"
 
-Ethan handed it over, watched the soldier study it with the thorough disinterest of someone who'd done this a thousand times this week alone. "Purpose of visit?"
+"Documenting for overseas publication," Sera said, handing over the permits. "He's with the story."
 
-"He's with me," Sera said in English. "We're going to pay respects."
+The soldier compared documents, made a radio call. Waited. The line of cars behind them grew longer.
 
-The soldier looked at Ethan again, something shifting in his young face—not suspicion but a kind of exhausted recognition. "First time?"
+"Your escort is at kilometer marker twelve," he finally said. "Staff Sergeant Katz. Don't deviate from designated areas."
 
-"Yes."
+They were waved through after twenty minutes of processing. The road continued south, emptier now, the traffic thinning to essential vehicles—military, medical, media, and the strange new category of pilgrim‑witnesses like them, drawn to ground zero of a trauma still radiating outward.
 
-He handed back the passport, said nothing more.
-
-They were waved through. The road continued south, emptier now, the traffic thinning to essential vehicles—military, medical, media, and the strange new category of pilgrim‑witnesses like them, drawn to ground zero of a trauma still radiating outward.
-
-"My friend Noa was at Nova," Sera said suddenly. First words in twenty minutes. "Twenty-four. Taught yoga. She wanted to—" She stopped. "Doesn't matter now."
+"My friend Noa was at Nova," Sera said suddenly. First words in twenty minutes. "Twenty-four. Taught yoga. She..." Her hands tightened on the steering wheel. "I was supposed to go with her. Had the tickets. But I got a call—wedding photography job. Better money." She wiped her eyes with the back of her hand. "I keep thinking if I'd gone, maybe I could have— or maybe we'd both be... I don't know which is worse."
 
 The Nova festival site appeared first as an absence—an empty field that should have been empty but somehow wasn't, as if the ghost of gathering still haunted the space. Cars pulled over along the access road. People stood in small groups or alone, facing the field like it was a wall.
 
-Sera parked. The heat hit immediately, different from Jerusalem's dry embrace—this was desert heat that pulled moisture from your eyes, throat, soul. The field stretched before them, dotted with photographs on stakes driven into earth, flowers withered to paper. The smell hit him—melted plastic, burned fabric. Sage growing wild at the edges, incongruously alive.
+Sera parked. The heat hit immediately. The field stretched before them, dotted with photographs on stakes driven into earth. A single sneaker, child-sized, sat beside the access road. Someone had placed a wilted sunflower next to it.
 
-Ethan walked among the photos. Young faces, beautiful faces, faces caught mid-laugh or mid-dance or mid-kiss. Each one had woken up on October 7th expecting sunrise and music and the particular joy of dancing in the desert until your body became prayer. Instead, they'd become unwilling martyrs in someone else's holy war.
+Ethan walked among the photos. Young faces, beautiful faces, faces caught mid-laugh or mid-dance or mid-kiss. Each one had woken up on October 7th expecting sunrise and music.
 
-"They were celebrating," Sera said, standing beside a photo. Girl with dreads, peace sign tattoo. "Dancing until sunrise. That was the plan."
+"They were celebrating," Sera said, standing beside a photo. Girl with dreads, peace sign tattoo. "Dancing until sunrise." Her voice cracked. "That's Noa. She sent me videos until... 6:47 AM was the last one. Just her feet dancing in the sand. No words." Sera turned away from the photo. "I can't look at her face. Not yet."
 
-The field held sound differently than anywhere Ethan had been. Even with people talking, crying, praying in different languages, there was a quality of silence that pressed against eardrums—the silence of aftermath, of absence, of 364 people who should have been hungover in Tel Aviv apartments but were instead memory, trauma, headline, statistic.
+The field held sound differently than anywhere Ethan had been. Even with people talking, crying, praying in different languages, there was a quality of silence that pressed against eardrums.
 
-Ethan's stomach turned. He made it to a portable toilet—one of the few left from the festival—before vomiting again, his body responding to proximity the same way it had responded to pixels five weeks ago, but stronger now. This wasn't filtered through screens. This was earth that had absorbed blood. Air that had carried screams. A field that would never again be just a field.
+Ethan's stomach turned. He made it to a portable toilet—one of the few left from the festival—before vomiting again, his body responding to proximity the same way it had responded to pixels five weeks ago, but stronger now.
 
 Inside the portable toilet, graffiti in Hebrew he couldn't read. A phone number. Someone had been hiding here, Sera would tell him later. Calling family. The last call.
 
-"Let's go to Be'eri," Sera said. "Yossi is waiting."
+When he came out, Sera was sitting in the car with the engine running, AC blasting. They sat there for fifteen minutes without speaking, watching other visitors move through the field like sleepwalkers.
 
-"Who's Yossi?"
+At kilometer twelve, Staff Sergeant Katz waited in a military jeep—mid-twenties, sunglasses pushed up on her forehead, M4 across her lap. "You're the journalists?" she asked in accented English. "One hour at Nova, two hours at Be'eri. No photos of classified positions."
 
-"Retired here twenty years ago. Grew avocados." Her voice flat. "Now he shows people his burned house. Says someone has to."
+"We're meeting someone at Be'eri," Sera said.
 
-Be'eri Kibbutz sat twelve minutes from the festival site. Twelve minutes. The distance you might drive for coffee. The proximity broke something in Ethan's understanding of geography, of safety, of how close death could dance to life.
+"Yossi Brenner. I know. He's approved for guided tours." Katz's radio crackled. She answered in Hebrew, then turned back. "Stay close. Recent intelligence about tunnels."
+
+Be'eri Kibbutz sat twelve minutes from the festival site, but with the security convoy, the approach took forty minutes.
 
 The kibbutz entrance was wrong—not destroyed, but wrong in the way things are wrong when they've witnessed what they weren't built to witness. Guard booth empty. Gate open. The pastoral gateway abandoned.
 
-Yossi met them at what used to be the community center. Mid-sixties, work clothes that had seen better decades, hands that had built things and grown things. His left eye didn't quite track with his right—old injury, maybe from his years in security, maybe from farming.
+Yossi met them at what used to be the community center, talking to Sergeant Katz in rapid Hebrew. Mid-sixties, work clothes that had seen better decades, hands that had built things and grown things. His left eye didn't quite track with his right—shrapnel damage, Katz would mention later.
 
-"You're the American," he said to Ethan. Not a question.
+"You're the American," he said to Ethan. Not a question. To Katz: "How long do I have?"
+
+"Ninety minutes. Then we need to clear the area."
+
+Yossi nodded, checking his watch. "Enough time. Maybe too much."
 
 "I'm... yes."
 
-He turned and started walking, then stopped. "Your shoes—city shoes. Watch for glass. Also snakes. The burned houses brought out snakes." He almost smiled. "Even the desert creatures know when territory opens up."
+He turned and started walking, then stopped. "Your shoes—city shoes. Watch for glass." He looked back at them, something conflicted in his expression. "You know, I told myself I'd stop doing this. Last week was the fourteenth tour. Fourteen times I've brought strangers through my burned house." He wiped his forehead. "My daughter says I'm becoming a circus act. Maybe she's right."
 
-The first house looked almost normal until you noticed. Bullet holes like inverse constellations across the walls. Windows not broken but melted—fire from inside having turned glass to modern art nobody wanted. Children's bicycles in the yard, rubber tires pooled into shapes that didn't belong in the same world as children.
+The first house looked almost normal until you noticed. Bullet holes across the walls. A coffee mug sat on the porch railing, half-full, the coffee long evaporated to a brown stain. Children's bicycles lay where they'd been dropped, one still upright against a tree.
 
-"The Levi family," Yossi said, then stopped. Started walking again without finishing.
+"The Levi family." Yossi's voice caught. "They had... the kids were..." He stopped walking. Started again without finishing the thought.
 
-They walked through the kibbutz—past a playground where swings moved in wind that shouldn't have been cold but was, past a dining hall with tables still set for breakfast that would never be finished, past gardens where vegetables continued growing because nobody had told them to stop.
+They walked through the kibbutz. A playground sat empty, one swing moving slightly. In the dining hall, someone had set tables for Saturday breakfast—plates, cups, a jar of jam with the lid still on. Tomatoes had ripened unpicked in the community garden.
 
 "Here," Yossi said, stopping at a house that looked like someone had tried to erase it but given up halfway. "This was mine."
 
 The safe room door hung off its hinges. Inside, char marks climbed walls like negative ivy. On one wall, low down where a child might reach, a handprint burned into the paint.
 
-"My daughter." Yossi's voice caught. "Eight. She put her hand here. Checking if the door was getting hot. Smart kid." He stopped. Started again. "Smarter than me."
+"My daughter." Yossi's voice caught. "Eight. She put her hand here. Checking if the door was getting hot. Smart kid." He stopped, stared at the wall. "I shouldn't be showing you this. It's not... she's not your tragedy to carry."
 
-Ethan couldn't speak. The handprint was so small. Without thinking, he placed his own hand over it. Still warm from the sun. Or something else.
+Ethan couldn't speak. The handprint was so small. 
 
-"She survived. We all—six hours in here. She sang Disney songs. Frozen. Over and over." His laugh came out wrong, cut short. "The Levis... they sang too. Different songs. Until they didn't."
+"She survived. We all—six hours in here. She sang Disney songs to stay calm." Yossi touched the wall above the handprint. "Every time I bring people here, I feel like I'm selling her fear. Like I'm making theater out of the worst night of her life." His laugh came out bitter. "But if I don't show you, who will remember what it felt like to be trapped in here?"
 
-They stood in the burned room while outside a dog barked somewhere, the sound so normal it felt obscene. Life continuing around death. The terrible ordinariness of aftermath.
+They stood in the burned room while outside a dog barked somewhere. Sergeant Katz's radio crackled with routine status updates. Yossi offered them water from a thermos—lukewarm, tasting of plastic, but they drank it anyway because their mouths had gone dry.
 
 "Why do you stay?" Ethan finally managed.
 
-Yossi looked at him like he'd asked why humans breathed oxygen. "Where else?" The words came out choked, barely audible. "My avocados... still growing. Her handprint... still here." He touched the wall gently. "She wants to paint over it. Purple. I said no. Not yet."
+Yossi looked at him for a long moment. "You know what's fucked up? Every group asks me that. 'Why do you stay?' Like there's some—" He kicked at a piece of charred wood. "Truth is, I don't know anymore. My avocados are dying. Irrigation system's... Neighbors are leaving." He touched the wall. "She wants to paint over it. Purple. I keep saying no, but maybe I'm the one who..." He trailed off, didn't finish.
 
 They left the kibbutz as afternoon sun turned everything gold. A military helicopter passed overhead—door gunner looked younger than Ethan's college interns. The vibration shook the car. Ethan's hands were shaking too.
 
-Sera drove toward the Gaza border, the fence appearing first as a line on the horizon, then resolving into the thing itself—wire and watching, the membrane between two realities that had proved more porous than anyone wanted to believe.
+They drove back to Jerusalem mostly in silence. Somewhere past Kiryat Gat, Sera pulled over, hands shaking.
 
-She pulled over at a rise where you could see into Gaza itself. Buildings, roads, lives continuing or trying to continue. Smoke rose from somewhere—cooking, burning, signaling, who knew. The distance was nothing. Less than nothing. You could throw a stone. Children on both sides probably had, before stones became rockets became raids became October 7th.
+"I shouldn't have brought you here," she said to the windshield. "This isn't... I'm not being your guide. I'm using you. To face what I can't face alone." She looked at him finally. "That's fucked up, isn't it?"
 
-"My cousin lived there once," Sera said. "Gaza. Before 2005. Had Palestinian friends. Their kids played together." Long pause. "I don't know what happened to them."
+Ethan stared at the roadside, where someone had left a small Israeli flag stuck in the gravel. "I keep thinking about the other side," he said finally. "Gaza. What it looks like right now. Whether there are... burned handprints on walls there too." He turned to her. "Is it wrong that I can only see this? That I can't... that this is all I can carry?"
 
-The sun was setting now, desert light performing its daily miracle of making everything look holy, even this scarred landscape, even this fence between cousins, even Ethan's face reflected in the car window—tear-tracked, dust-covered, forever changed.
+Sera was quiet for a long moment. "I don't know. Maybe that's all any of us can carry. Our own piece of it."
 
-Sera pulled over again, seemingly random spot on the highway back toward Jerusalem. "Here," she said. "We say Kaddish here."
+They sat in the car for twenty minutes, watching traffic pass, before she started driving again.
 
-"Why here?"
-
-"Because here is where we are."
-
-They stood by the side of the road, cars passing in occasional rushes of wind and engine noise. A Bedouin man on a camel appeared, moving along some track that predated the highway. He raised his hand—greeting or blessing.
-
-Ethan looked at Sera, then toward the darkening desert. "I'll start," he said, surprising himself. The words came haltingly at first: "Yitgadal v'yitkadash..."
-
-Sera joined him, their voices finding harmony in the ancient Aramaic. Ethan's mouth made shapes that felt older than his own life—shapes his grandmother's mouth had made in Poland, in Bergen-Belsen, in Brooklyn, the same words for different dead across different deserts.
-
-"Yitgadal v'yitkadash sh'mei raba..."
-
-Magnified and sanctified be the great name. The prayer that never mentions death, only praises God. The prayer that insists on sanctity specifically in the face of loss. The prayer that Jews had been saying for a thousand years in a thousand places of destruction, and now Ethan was saying it too, here on a desert highway with Gaza behind them and Jerusalem ahead and the stars beginning to appear in patterns that had watched Abraham walk this same desert, asking the same questions, receiving the same silence that was somehow also an answer.
-
-When they finished, they stood in the dark for a moment. The stars were brilliant here, away from city lights—the desert's compensation for its harshness, this nightly revelation of infinity.
-
-"How do you live with this?" Ethan asked.
-
-"How do you live without it?" Sera's voice was tired. "How do you pretend death isn't always close?"
-
-They drove back to Jerusalem in silence, the city's lights appearing first as a glow on clouds, then resolving into the thing itself—ancient and modern, sacred and profane, surviving against all logic, all probability, all reasonable expectation.
-
-Back in his apartment after midnight, Ethan couldn't sleep. Desert dust had settled into his clothes, his hair, the creases of his palms—he'd showered twice but could still feel it. He stood on the balcony looking south toward the desert that held festival grounds and kibbutzim and borders and bodies and somehow also held holiness, or perhaps holiness held it.
-
-He thought of Europe—the trip he'd planned, the escape it promised. But tonight, only the desert mattered. Only the dust that wouldn't wash off. Only the small handprint burned into a wall.
+Back in his apartment after midnight, Ethan couldn't sleep. Desert dust had settled into his clothes, his hair, the creases of his palms—he'd showered twice but could still feel it. 
 
 His phone buzzed: Rabbi Levi.
 
@@ -136,22 +114,6 @@ His phone buzzed: Rabbi Levi.
 
 "Different worse. This is yours now. Thursday."
 
-Ethan stayed on the balcony until dawn, watching the light change over Jerusalem's stones, feeling the weight of what he'd seen settling into his bones like sediment, like scripture, like the desert dust that would never quite wash off.
+Ethan stayed on the balcony until dawn, watching the light change over Jerusalem's stones. The muezzin's call began from the Old City, followed by church bells. 
 
-He'd been drafted into something ancient—older than October 7th, older than Israel itself, old as the first human who looked at suffering and asked "What now?" Old as the first person who answered: "Now we remember. Now we rebuild. Now we choose life, specifically because we've seen death."
-
-The muezzin's call began from the Old City, followed by church bells. Somewhere, Jewish morning prayers were starting—ten thousand rooms, ten thousand people wrapping themselves in tradition and trauma.
-
-Ethan went inside, put on his kippah. Stood facing south, toward the desert. He didn't know the morning prayers yet, but his hands moved to his heart, then outward—a gesture he'd seen Yossi make at the burned house, offering something to absence.
-
-"For the Levis," he whispered. "For Noa. For the child with the handprint. For..."
-
-The names ran out. Silence felt more honest.
-
-The desert dust was still under his fingernails.
-
-Somewhere in his mind, Europe waited—another journey, another reckoning. But that was future tense. This was present: dust and memory, witness and weight.
-
-He pressed his palms together, feeling the grit between them. Real. Undeniable. His.
-
-Begin.
+He went inside, looked at his hands under the kitchen light. Desert dust was still under his fingernails, dark against pale skin. He tried to scrub it out with a nail brush, but some of it had worked too deep to remove.

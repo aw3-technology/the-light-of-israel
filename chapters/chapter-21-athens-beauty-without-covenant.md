@@ -2,7 +2,7 @@
 
 The Parthenon stood precise against the November sky, and Ethan understood why some Jews had once chosen beauty over truth.
 
-The thought came unbidden as he climbed marble steps worn smooth by centuries. His legs shook—not from exertion but from accumulated weight. Jerusalem to Athens, Rome and Berlin to come. Three and a half hours that spanned two thousand years.
+The thought came unbidden as he climbed marble steps worn smooth by centuries. Here was perfection without demand—no covenant to keep, no particular history to carry. Just beauty itself, asking nothing but admiration. His legs shook, not from exertion but from temptation. How easy it would be to dissolve into this universal embrace, to let Athens wash the weight of Jerusalem from his shoulders.
 
 His phone showed seventeen unread messages from Sera. "Landed safe?" and "Remember to eat" and finally just "❤️" sent at the moment his plane crossed from Asia to Europe, from the particular to the universal.
 
@@ -20,13 +20,13 @@ Professor Yannis Levy, silver-haired, linen easy over bone. "Rabbi Levi said you
 
 "I like to come here first. Every Jewish visitor should see the competition before the remnant. Besides, the university is full of strikes. The students are protesting—solidarity with Palestine today. After October 7th, different edge. They spray-painted 'Zionists Out' on my office door. I left it."
 
-Yannis led him along ancient stones, pointing toward the modern city below. "Twenty-three hundred years ago, Jewish boys reversed their circumcisions to compete naked in gymnasiums. That's Hellenism—beauty so seductive you'd surgically alter your covenant mark."
+Yannis led him along ancient stones, pointing toward the modern city below. "Twenty-three hundred years ago, Jewish boys reversed their circumcisions to compete naked in gymnasiums." Yannis paused to adjust his glasses, looking out at tourists with their cameras. "That's Hellenism—beauty so seductive you'd surgically alter your covenant mark."
 
 "Some did. Not all."
 
-"The ones who didn't became Maccabees." He gestured at the Parthenon. "But look—Greek carries the New Testament. The Talmud borrows Greek logic."
+Yannis wiped sweat from his forehead with a handkerchief. "The ones who didn't became Maccabees." He gestured at the Parthenon, then stopped. "But look—Greek carries the New Testament. The Talmud borrows Greek logic. We're all compromised."
 
-"'The particular is less knowable than the universal,'" Yannis said. "Beautiful. Wrong. October 7th was particular. The world prefers abstraction—'cycle of violence'—to avoid seeing particular Jews die."
+He was quiet for a moment, watching a group of German tourists. "'The particular is less knowable than the universal.' Beautiful. Wrong." His voice turned harder. "October 7th was particular. The world prefers abstraction—'cycle of violence'—to avoid seeing particular Jews die."
 
 "Come. Let me show you where we've been hiding since their Temple stopped being fashionable."
 
@@ -40,31 +40,29 @@ Inside, smaller than Jerusalem's grand spaces. The memorial wall hit first—nam
 
 "How many now?"
 
-"In all Greece? Maybe five thousand. We barely make a minyan some mornings. But 'even ten Jews gathered can bring divine presence.' So we gather. We annoy the universe with our continued existence."
+"In all Greece? Maybe five thousand. We barely make a minyan some mornings." He gestured at the small sanctuary. "But 'even ten Jews gathered can bring divine presence.' So we gather. We cling to the edges."
 
-An elderly woman entered, golden chai catching eternal lamp light. She pressed warm cookies into Ethan’s hands: honey, almond, exile.
-
-"Same cookies Josephus mentions," Yannis said. "Recipe survived Temple, Spain, Ottomans, Nazis. We encode memory in everything—text, food, melody."
-
-Ethan bit into sweetness that tasted ancient. The woman said something urgent. Yannis darkened. "Her granddaughter was at Nova. Safe. But she can't listen to music anymore. Twenty-two and music makes her vomit."
+An elderly woman entered, nodding at them both. She said something urgent to Yannis. His face darkened. "Her granddaughter was at Nova. Safe. But she can't listen to music anymore. Twenty-two and music makes her vomit."
 
 Later, climbing stairs to Yannis's apartment: "My daughter Anna will be there. PhD in philosophy. She'll challenge you. It's her love language."
 
 The apartment was book-lined, philosophy and Judaism mixing on sagging shelves. A young woman looked up from her keyboard.
 
-"You're the American who found God. How contemporary. Tell me, what makes your conversion different from influencers doing ayahuasca?"
+"You're the American who found God. How contemporary." She looked up from her laptop, closing it with a sharp click. "Tell me, what makes your conversion different from influencers doing ayahuasca?"
 
-She drank from a mug: 'Socrates Died For This Shit' in ancient Greek.
+She drank from a mug: 'Socrates Died For This Shit' in ancient Greek. Her fingers drummed against the ceramic.
 
 "I didn't find anything. I just stopped hiding from what was always there."
 
-"And what was always there?"
+"And what was always there?" She set the mug down harder than necessary.
 
 "The fact that I'm Jewish whether I want to be or not. Hamas doesn't care if I keep Shabbat."
 
-"So you're Jewish because antisemites say so? That's your theology?"
+Anna's jaw tightened. "So you're Jewish because antisemites say so? That's your theology?"
 
 "I can choose to be Jewish on my terms or have it chosen for me on theirs. There's no third option. October 7th proved that."
+
+But even as he said it, Ethan felt the pull of the Parthenon outside—that perfect beauty that asked nothing, demanded nothing, simply was. How much easier to dissolve into Athens' universal embrace than to carry Jerusalem's weight.
 
 She snorted. "Jerusalem. Let me guess—did you cry at the Wall? Have some big moment?"
 
@@ -84,11 +82,11 @@ They ate in practiced tense silence. Sera’s sunset pinged his phone. Jerusalem
 
 "Someone I met in Jerusalem. She lost three friends at Nova."
 
-"My father wants me at services tomorrow. Will you be there?"
+"My father wants me at services tomorrow." She looked away. "I said maybe. Which means no, but slowly." A pause. "Will you be there?"
 
 "Yes."
 
-Ethan took candlesticks from his bag, centered them between wine and bread. Anna stared like they were unwanted evidence.
+Ethan took candlesticks from his bag, centered them between wine and bread. Anna stared like they were unwanted evidence, then looked away, then back.
 
 "My grandmother lit candles every Friday for seventy years. Never missed once." He struck a match. "She lit them not despite what happened but because of it."
 
@@ -112,13 +110,13 @@ The flames reflected against Athens night where the Parthenon glowed, beautiful 
 
 His phone rang. Anna.
 
-"I'll come tomorrow. Don't make a big deal."
+"I might... maybe I'll try tomorrow. The service." A long pause. "Don't make a big deal if I show up. And don't make a big deal if I don't."
 
 "Okay."
 
-"Those cookies? My grandmother’s recipe. Survived the camps. She said sweetness was resistance. I thought trauma response. Now I’m not sure."
+"Those cookies?" Her voice was different now, smaller. "My grandmother's recipe. Survived the camps. She said sweetness was resistance. I always thought trauma response. Now I'm..." She trailed off. "I don't know what I think anymore."
 
-She hung up. The candles burned, small but insistent, particular but eternal.
+She hung up abruptly. The candles burned, small but insistent, particular but eternal.
 
 ---
 
@@ -136,6 +134,10 @@ At kiddush, she took a cookie, bit carefully. When Yannis introduced Ethan as "o
 
 "Collecting cities like stamps." She handed him the tin without looking at him. "Whatever. Take these to Rome, I guess."
 
-Outside, the Parthenon's glow reflected in the synagogue windows—beauty and covenant side by side. Beauty still gleamed, but covenant carried the flame. The taste of honey lingered, sweet and complex, resistance encoded in sweetness.
+Outside, the Parthenon blazed against the night sky—perfect columns, floodlit marble, beauty without burden. Beautiful and finished, complete in itself, needing nothing from him.
 
-Ethan walked toward his hotel, candlesticks in his bag, Athens settling into Saturday night around him.
+Behind him, the small synagogue went dark except for the eternal flame. Fragile. Partial. Demanding everything.
+
+Ethan stood between them—Athens offering the universal, Jerusalem insisting on the particular. The Parthenon would outlast them all, magnificent and empty. The synagogue might not survive another generation, but it carried something the marble couldn't: the weight of covenant, the stubborn refusal to let the light go out.
+
+He walked toward his hotel, candlesticks in his bag, choosing weight over beauty, the particular over the perfect.

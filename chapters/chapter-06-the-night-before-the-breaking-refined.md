@@ -10,11 +10,17 @@ Thai food sat untouched, smelling wrong. His stomach turned with that feeling be
 
 Outside, Brooklyn continued its Friday night rhythm while something gathered at the edges of perception.
 
-The candlesticks caught his eye. His grandmother's brass holders, discovered that afternoon in the closet. Unlit. Friday night at 8:41 PM.
+The candlesticks caught his eye. His grandmother's brass holders, discovered that afternoon in the closet. Unlit.
 
-He picked them up—heavier than memory. His fingers found grooves worn by her hands, decades of Friday nights carved into brass. Almost without thinking, he set them on the counter, reached for matches. His hand stopped mid-air. What was the blessing? What came after lighting? The not-knowing felt like locked doors, like being outside his own inheritance.
+He picked them up—heavier than memory. His fingers found grooves worn by her hands, decades of Friday nights carved into brass. This time he struck a match. The flame wavered, then caught.
 
-He set the matches down. Tomorrow, maybe. After coffee with Aaron.
+He held it close to the first wick, close enough to feel heat. The wax began to soften.
+
+Then blew it out.
+
+Not hesitation this time—choice. Some moments required darkness before light. Some preparations took longer than striking matches.
+
+He set the burnt match aside. Soon, maybe. But not yet.
 
 Browser tabs multiplied: "Hebrew letter meanings" (clicked by accident, closed, reopened). "Tensions escalate along Gaza border."
 
@@ -64,9 +70,7 @@ Back to bed. Sleep came floating now, lucid but distant. In the space between dr
 
 ---
 
-5:41 AM.
-
-Dawn preparing but not yet broken. Birds gathering song. His phone: completely dead. He plugged it in, watched the apple appear, disappear—the daily resurrection of connectivity—then set it face-down on the nightstand.
+Dawn preparing but not yet broken. Birds gathering song. His phone: completely dead. He plugged it in, watched the apple appear, disappear—then set it face-down on the nightstand.
 
 He thought about shower. About coffee. Instead he pulled the blanket over his head. Saturday could wait.
 
@@ -76,29 +80,18 @@ On the nightstand, his phone finished its resurrection under Do Not Disturb. Not
 
 6:47 AM.
 
-In five seconds, the world would break.
-In four seconds, history would pivot.
-In three seconds, everything would become before and after.
-In two seconds—
-In one—
+One candle, somehow lit.
 
-The birds stopped singing.
-Brooklyn held its breath.
-October 7th.
+He stared at it through half-sleep. Had he lit it in the dream? Was this still the dream? The flame steady, impossible.
 
-His phone began to buzz against wood—muted, insistent, unheard.
+His phone began to vibrate. Once. Twice. Then silence.
 
-Not one notification but dozens, hundreds. Breaking news becoming broken world. The buzz becoming roar becoming the sound everything makes when it discovers distance is illusion, safety temporary.
+From the kitchen, the scent of something burning—not wax, something else. Sweet and acrid.
 
-But for this moment—this last moment before the world divided—Ethan Stone slept in his bed in Brooklyn, candlesticks waiting in the kitchen.
+The silence stretched. Even the birds had stopped.
 
-Had his grandmother's dream been prophecy or warning? Had the candlesticks glowed or just reflected his need to see light in the darkness coming?
+Ethan Stone reached toward the nightstand, toward the phone that held messages he hadn't read yet, toward a day that felt different from all the days before.
 
-Israel.
-The wrestling was about to begin.
-
-In his last moment of sleep, his hand moved—reaching for something, grasping air. As if already practicing for the prayer he didn't know he'd need.
-
-His phone buzzed again.
-And again.
-And again.
+The candle burned.
+The phone waited.
+October 7th began.

@@ -30,7 +30,7 @@ The study door stood ajar, warm light spilling out.
 
 The words hit like recognition, like coming home to find someone keeping the lights on. Rabbi Levi Ben-David stood from behind a desk older than America, showing no surprise at Ethan's shock.
 
-"How did you—my middle name. Nobody knows—"
+"How did you—nobody knows my middle name."
 
 "Your grandmother Rivka knew it. Spoke it often." The rabbi was younger than expected, maybe fifty, beard more pepper than salt, eyes like libraries. "She was my teacher's student in Brooklyn. Before the Parkinson's."
 
@@ -40,13 +40,13 @@ Ethan felt something crack inside—fear, maybe relief. "She talked about me?"
 
 Floor-to-ceiling bookshelves rose like walls of compressed wisdom. The rabbi gestured to a worn chair.
 
-"But that could be—I mean, anyone could have told you. The secretary, someone at the synagogue—"
+"But someone must've told you..."
 
-"You think I'm performing magic tricks?" Rabbi Levi poured tea from a samovar, wincing as he settled into his chair. "Old back injury. Wrestling. Actual wrestling, not the metaphorical kind."
+"You think I'm performing magic tricks?" Rabbi Levi poured tea from a samovar.
 
 "I'm not religious."
 
-"Neither was Moses when the bush caught fire." He cleaned his glasses, missed a spot, tried again. "What brought you here?"
+"Neither was Moses when the bush caught fire." He cleaned his glasses, missed a spot, gave up. His phone buzzed again—he glanced at it irritably. "What brought you here?"
 
 "October 7th."
 
@@ -60,19 +60,17 @@ Silence. Rabbi Levi let it stretch, let the words find their weight.
 
 "Good." The rabbi cleaned his glasses, considering. "Most people think they know. It prevents becoming."
 
-The rabbi pulled a taped-together volume from the shelf. "Your depression. And yes, I can see it. Keep taking medication if you're on it. Sometimes depression is the soul in exile from itself."
+The rabbi pulled a taped-together volume from the shelf. "Your depression. I can see it. Keep taking medication if you're on it."
 
 "How do you—"
 
-"Know that look? Half my congregants are medicated. Including me. Sertraline, ten years." He paused. "Sometimes depression is grief for a self we've never met."
+"Half my congregants are medicated. Including me." He paused. "Sometimes it's grief for a self we've never met."
 
-A book fell from a shelf—actually fell, pages fluttering open. The Zohar, landing spine-up between them.
+A book slipped from a shelf—pages fluttering open. The Zohar, landing spine-up between them. The radiator kicked on with a shudder.
 
-Ethan stared. "Books don't just—"
+Ethan glanced between the book and the vent. "Did the radiator—?"
 
-"No." Rabbi Levi made no move to pick it up. "They don't."
-
-The moment hung between them, unexplained.
+Rabbi Levi shrugged, bending to retrieve it. "Old building. Things shift." But his eyes held a question too.
 
 "You're making me nervous standing there like you might bolt."
 
@@ -82,7 +80,7 @@ Ethan sat. The chair embraced him like it had been waiting.
 
 Ethan glanced from the shelves to his phone. "It feels like a system."
 
-The rabbi smiled. "Torah and software—both are systems for processing reality." His phone buzzed. He glanced, frowned. "My daughter. Crisis about her bat mitzvah portion. Sixteen texts about whether Leviticus relates to climate change."
+"It is." His phone buzzed. He glanced, silenced it.
 
 Through the door, footsteps—another student waiting.
 
@@ -96,13 +94,9 @@ Outside, October had turned properly cold. The stairs down felt different—not 
 
 The N train came immediately. Nearly empty except for an elderly Black woman reading Hebrew, Koren edition with commentary.
 
-She looked up. "You've been to see the rabbi."
+She noticed his psalm page. "Good choice—that one stays with you." She smiled, returned to her reading.
 
-"How did you—"
-
-"That look. Scrambled but settling. He's good, Rabbi Levi. Forty years ago, converting, everyone said a Black woman had no business with Torah. He said Torah had business with me."
-
-At 14th Street, she stood. "That paper in your pocket—Psalm 137. My first assignment too. Still makes me cry. The good kind."
+At 14th Street, she stood. "Shabbat shalom," she said softly.
 
 His apartment looked the same but felt different. The candlesticks sat waiting on the dining table, tarnished silver ready to hold light.
 
@@ -118,10 +112,10 @@ He looked at the psalm, the candlesticks, his reflection in the dark window—hi
 
 Ethan selected his Thursday meetings, clicked decline.
 
-"Israel," he said aloud. First time in twenty years.
+"Israel," he whispered. First time in twenty years.
 
-The sound of it like coming home to a place he'd never been.
+His phone buzzed—Aaron again. The sound fractured the moment, but something had shifted. He looked at the psalm, the candlesticks.
 
-The radiator clanked its own rhythm. Somewhere uptown, a rabbi in a study where books fell at odd moments waited for Thursday.
+He set the psalm beside the candlesticks and whispered his name again.
 
-For Ethan Israel Stone to remember what he'd never really forgotten.
+"Israel."

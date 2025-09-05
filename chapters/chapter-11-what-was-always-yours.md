@@ -10,19 +10,17 @@ Outside: a protest march down Eastern Parkway—"Free Palestine" mixing with "Ne
 
 In his hands, a photo that stopped his breath—thirteen-year-old him drowning in a tallit, his grandmother gripping his shoulder like she could transfer tradition through touch.
 
-The Torah portion surfaced suddenly: Lech-lecha. Go forth. Abraham commanded to leave everything behind.
-
-Twenty years later, the irony cut deep.
+The Torah portion surfaced suddenly: Lech-lecha. Something about Abraham. A journey.
 
 —
 
-*Just after seven on the bedside clock. His bar mitzvah morning. His grandmother in his room before his parents woke, finding him on Xbox, suit still in its bag.*
+*Just after seven on the bedside clock. His bar mitzvah morning. His grandmother in his room before his parents woke, finding him on Xbox, suit still in its bag. She smelled like Shalimar perfume and the honey cake she'd been baking since four AM.*
 
 *"Ethan Israel." His Hebrew name, rusted from disuse.*
 
 *He didn't pause the game. "I know, Grandma. Today I become a man." Sarcastic. Practiced.*
 
-*She pulled the controller from his hands, actually pulled it, the game dying with electronic protest. "Today you receive what was always yours."*
+*She pulled the controller from his hands—surprisingly strong for seventy-eight—the game dying with electronic protest. "Today you receive what was always yours." She settled onto his unmade bed, careful not to wrinkle her good dress.*
 
 *"It's just a party."*
 
@@ -30,7 +28,7 @@ Twenty years later, the irony cut deep.
 
 *"That's not fair."*
 
-*"No, bubbeleh. It's not."*
+*"No, bubbeleh. It's not." She straightened his bedsheets absently, the gesture automatic after decades of mothering. "But fair isn't the point. Survival is."*
 
 He'd rolled his eyes. Actually rolled his eyes at a Holocaust survivor.
 
@@ -68,9 +66,9 @@ Brown leather soft as skin. Margins crowded with annotations—Yiddish, Hebrew, 
 
 One note, pencil-faint: "For Ethan Israel when he is ready."
 
-"She knew I'd come back?"
+"She knew?"
 
-"She hoped." His mother's voice caught. "Even after the Christmas tree. The soccer on Saturdays. After you told people you were 'nothing.' She hoped."
+A pause. His mother's voice got quieter. "She hoped. Even after... everything."
 
 *After the party, his grandmother pressed the prayer book into his hands by the coat check. He reeked of weed, eyes red.*
 
@@ -78,7 +76,7 @@ One note, pencil-faint: "For Ethan Israel when he is ready."
 
 *"You will."*
 
-*Her hand on his cheek, gentle despite everything. "No, bubbeleh. You're beginning."*
+*Her hand on his cheek, gentle despite everything. Something in her eyes he couldn't read then—not disappointment. Something else.*
 
 *He'd shoved it under coats in the car. The prayer book marked him as different.*
 
@@ -86,13 +84,13 @@ Now, Google Translate open, he tried to decipher her notes. One phrase recurring
 
 The Jewish spark that couldn't be extinguished. She'd been tending it while he tried to smother everything else.
 
-His phone buzzed. Rabbi Levi: "Your portion was Lech-lecha, wasn't it?"
+His phone buzzed. Rabbi Levi: "How are you holding up?"
 
-"How did you know?"
+"Looking at old photos. Trying to remember."
 
-"It's always Lech-lecha for the ones who come back. Abraham's journey. Yours too."
+"Memory has its own schedule. Don't force it."
 
-Outside: "Jews for Justice" on cardboard. "Never Forget" on another sign. The city holding all its contradictions at once.
+Outside: "Jews for Justice" on cardboard. "Never Forget" on another sign. The same words his grandmother used, claimed by voices shouting past each other. Even his inheritance had become contested territory.
 
 "I want to read it again," he texted. "But understanding it this time."
 
@@ -114,48 +112,16 @@ Outside: "Jews for Justice" on cardboard. "Never Forget" on another sign. The ci
 
 She'd died two years later. He'd been at college, missing her calls, too busy with normal American life to return them.
 
-The last voicemail still saved somewhere: "Ethan Israel, I love you. Remember who you are."
-
-He hadn't.
+He hadn't remembered who he was.
 
 Not for twenty years.
 
-Outside, the protesters passed. At his window, Ethan noticed someone familiar leaving the synagogue across the street—Rachel Klein from their disastrous date, exiting what looked like the community center.
-
-Ten minutes later, his doorbell rang.
-
-"I saw you in the window," Rachel said, embarrassed. "My father died. Three weeks ago." She laughed bitterly. "I keep wanting to say Kaddish, but I don't know the words. I googled it, but... it feels like cultural appropriation of my own culture. How fucked up is that?"
-
-Ethan found himself handing her his grandmother's prayer book, open to the Kaddish. "Here. The transliteration's on the left."
-
-Rachel looked at him, really looked. "You're different. From our date. You were so... empty then. Now you look like you're carrying something."
-
-"I am," he said simply.
-
-She left with a photocopy of the Kaddish page, and Ethan realized she'd been right—he had been empty then. Now he was full of questions, which felt like the beginning of answers.
-
-Inside, Ethan traced his grandmother's handwriting with his finger, following Hebrew letters he was finally beginning to recognize. The prayer book open to a page she'd marked: the Shema.
-
-"Shema Yisrael," he whispered, the words foreign on his tongue but somehow familiar in his bones.
-
-Hear, O Israel. But he'd made himself deaf. On purpose.
+Inside, Ethan traced his grandmother's handwriting with his finger, following Hebrew letters he was finally beginning to recognize. 
 
 His phone lit up—Jake about tomorrow's security situation. Ethan let it ring.
 
-He picked up the photo again. Thirteen-year-old Ethan, terrified and faking it. Thirty-three-year-old Ethan, terrified and finally admitting it.
+He picked up the photo again. Thirteen-year-old Ethan, drowning in his father's tallit, his grandmother's hand on his shoulder. Her grip so tight he'd complained later that it hurt.
 
-Lech-lecha.
+Now he understood. She hadn't been holding him back.
 
-Go forth.
-
-Twenty years late, but the command still stood.
-
-Had his grandmother known he'd come back? Or had she just hoped, desperately, against twenty years of evidence?
-
-The prayer book lay open. Her notes like breadcrumbs through forest—but breadcrumbs could be eaten by birds, could disappear.
-
-Tomorrow: security threats, client concerns.
-
-Tonight: the boy he'd been, the man he'd refused to become, the possibility of who he might still be.
-
-The path home, if it existed at all.
+She'd been holding on.

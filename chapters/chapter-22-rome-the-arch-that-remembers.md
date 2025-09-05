@@ -34,51 +34,35 @@ Carciofi arrived—artichokes deep-fried until they opened like bronze flowers. 
 
 Ethan bit into the artichoke. The texture was wrong—too tender, almost meaty. "This doesn't taste like..."
 
-"Like what you expected? Good. Nothing here is what you expect." Michele poured wine. "We've been here since before Rome thought it owned the world. Watched Caesar die. Watched the Popes. Watched Mussolini march. Still here."
+"Like what you expected? Good. Nothing here—" Michele poured wine, the bottle clattering against glasses as someone shouted in the kitchen. "Nothing here is what you expect. We've been here since—" A crash of plates. He paused, listening, then relaxed. "Giulia. Still breaking things at twenty-six."
 
 "But the destruction—the Temple—"
 
-"Yes, they destroyed it. Carried the treasures through that arch." Michele leaned forward, oil burns catching light. "You know where those treasures are?"
+"Yes, they destroyed it." Michele's hands gestured, oil burns catching light. "Carried the treasures through that arch. You know where—" 
 
-"The Vatican?"
+A waiter rushed past with smoking artichokes. The oil sizzled, drowning out Michele's words. He waited, patient with the rhythm of the kitchen.
 
-"Maybe. Or the Tiber—fell in during some riot, waiting in the mud." He shrugged. "But the real treasure got out. The… presence. Went into exile with us. They stole gold but—" He gestured. "You understand?"
+"—those treasures are? The Vatican maybe. Or the Tiber—fell in during some riot." He shrugged, wiping oil from his fingers. "But the real treasure got out."
 
-Ethan didn't, but nodded anyway. The restaurant filled with Thursday regulars. Two lawyers arguing in Romanesco, switching to Hebrew for punchlines. A grandmother feeding her grandson, complaining he was too thin.
+Ethan set down his fork. "But what if it didn't? What if we're just telling ourselves stories to make exile feel like choice?" The words came out sharper than he intended. "I stood at that arch today and all I felt was... loss. Not triumph. Not survival. Just two thousand years of loss."
 
-"Tomorrow, Shabbat. You come. But today—" Michele wiped his hands on his apron. "You need to see the Vatican. See what they did with our God."
+Michele's smile faded. Around them, the restaurant continued—lawyers arguing, a grandmother feeding her grandson—but something had shifted at their table.
 
-The Vatican felt like accumulated guilt in marble. He expected anger. Felt pity and recognition—like a child playing with stolen toys, not understanding what they’d taken.
+"Tomorrow, Shabbat. You come. Tonight we cook."
 
-Father Antonio found him in the Sistine Chapel. Young priest, maybe thirty-five, studying the brain-shaped cloud surrounding God.
-
-"You're looking for the Hebrew."
-
-"Can you see it?"
-
-"I study Jewish‑Christian relations. How we became we by defining against you." Spanish, maybe Portuguese. "Rabbi Di Segni teaches me. Last week someone asked why Jews can’t accept Jesus. The rabbi said, ‘Look outside. Is the world redeemed?’" He shrugged. "No answer."
-
-They stopped before a marble fragment from a Roman synagogue. First century. "The Pope keeps saying he'll return these things," Father Antonio said. "But what if returning isn't enough? What if the damage is in the taking, not the keeping?"
-
-Ethan stared at the carved stone—someone's holy space reduced to museum curiosity. "Is that what scares me? That my own return might be just another kind of taking?"
-
-"Or maybe," the priest said quietly, "the fear is that it won't be taking at all. That it will be genuine, and you'll have to live up to it."
-
-That evening, Michele’s grandmother held court at table seven. Ninety‑three, Bulgari earrings—"from before." She’d survived October 16, 1943, hidden in the hospital on Tiber Island.
+That evening, Michele's grandmother held court at table seven. Ninety‑three, sharp eyes, hands that moved when she talked. She'd survived October 16, 1943, hidden in the hospital on Tiber Island.
 
 "I was twenty," she said in practiced English. "Pretty. My Samuel fixed watches—Orologi Limentani, you can still see the sign. The Germans came at 5:30 AM, Shabbat morning. Took over a thousand. Sixteen came back. Not Samuel."
 
-She grabbed Ethan's hand with fingers like living parchment. "You're searching. All young Jews who come here are. But the permission is already here—in the persistence. Not some miracle oil lasting eight days. That's poetry. The miracle is me serving artichokes to you in 2023."
+She grabbed Ethan's hand with fingers like parchment. "You're searching. All young Jews who come here are. But the permission—" She stopped, staring past him. "Samuel used to say that. Permission. As if God needed our permission to be God."
 
-But something in Ethan resisted the easy comfort. "What if persistence isn't enough? What if we're just... stubborn survivors clinging to something that should have died naturally?" He paused, the words turning sharper. "What if my own persistence—this whole journey—is just another kind of empty ritual? What if I return home and discover I'm still the same person who ran from October, just with better stories to tell?"
+Her voice changed, became smaller. "Sometimes I think we stayed out of stubbornness. Pure spite. The Romans said we'd disappear, so we didn't. But what does that prove?" She looked directly at Ethan. "That we were right? Or that we were too stupid to know when we were beaten?"
 
-The table went quiet. Michele's daughter—Giulia, twenty-six, Roman law degree—looked up from her phone. "Actually," she said in crisp English, "that's exactly the wrong question."
+But something in Ethan resisted even this uncertainty. "What if persistence isn't enough? What if we're just... stubborn survivors clinging to something that should have died naturally?" He paused. "What if this whole journey is just another kind of empty ritual?"
 
-"You think survival is accident?" Her voice sharpened. "You think we stayed because we were stupid? Three chances to go to America. My brother went to Argentina in '39. Smart man. Rich man. Dead man—heart attack at sixty, no children. I stayed in Rome with Fascists, with war, with priests calling us Christ‑killers. You know why?"
+The grandmother's grip tightened. "Empty? You think Samuel died for empty?" Her voice hardened again. "You think I hid in a hospital for three months, eating floor scraps, for empty?" 
 
-Ethan shook his head.
-
-"Because somebody has to tend the flame. Somebody has to remember the recipes." She released his hand. "You want to quit being Jewish? Fine. Others tried. But don't call it wisdom. Call it what it is—fear." Her eyes narrowed. "And don't think running away to find yourself is different from running away to lose yourself. The movement is the same. Only the story changes."
+Then, quieter: "But maybe you're right. Maybe empty is all we have left. Maybe that's enough."
 
 Giulia set down her phone. "Nonna, he's not asking about quitting. He's asking about meaning. And honestly?" She turned to Ethan. "Your question is more sophisticated than her answer. Persistence for what? To prove Romans wrong? To spite Christians? To maintain genetic purity?" She laughed sharply. "Half my friends are intermarried. Their kids eat prosciutto and light Shabbat candles. Are they failing at being Jewish, or succeeding at being Italian?"
 

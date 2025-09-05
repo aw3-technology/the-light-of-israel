@@ -18,7 +18,7 @@ Jerusalem stone everywhere—that particular shade of limestone that existed now
 
 The sherut stopped near Jaffa Gate. "Easier for tourists," the driver said. The moment Ethan's feet touched Jerusalem stone, he understood. The ground felt different—every step pressing through layers of history. His grandmother had walked stones like these, somewhere.
 
-He entered through the massive Ottoman portal, its stones worn smooth by millions of pilgrims, traders, conquerors, seekers. A kid in a Messi jersey kicked a crushed Coke can against walls that had seen the Crusades. Inside the Old City, time collapsed. An Armenian priest argued with an Arab merchant over the price of SIM cards while Israeli soldiers bought ice cream from a Palestinian vendor, their M16s slung over shoulders like students' bookbags. Church bells competed with the muezzin's call to prayer competed with someone's ringtone playing "Hava Nagila," the whole thing impossible, impossible that it existed, impossible that it worked, impossible that he was here. The smell of shawarma mixed with incense, both fighting the diesel fumes from tour buses.
+He entered through the massive Ottoman portal, stones worn smooth by millions of pilgrims. A kid in a Messi jersey kicked a Coke can against walls that had seen the Crusades. Inside the Old City, time collapsed. Israeli soldiers bought ice cream, their M16s slung casual as backpacks. Church bells competed with someone's ringtone playing "Hava Nagila," the whole thing impossible that he was here.
 
 The Jewish Quarter's streets narrowed and widened without logic, stone steps descending into passages that opened onto sudden squares where children in kippot played soccer against walls that might have been built by Herod or Suleiman or last year—everything here measured in different calendars, different catastrophes, different returns.
 
@@ -40,11 +40,11 @@ The apartment unfolded impossibly—larger inside than outside, rooms opening on
 
 He fumbled with silverware placement while conversation flowed in three languages around him, everyone preparing for something he intellectually understood but viscerally didn't—the transformation that would occur at sundown, the ordinary apartment becoming sanctuary, time itself changing its nature.
 
-Then she walked in.
+Someone emerged from the kitchen carrying challah.
 
-She emerged from the kitchen carrying challah, flour dusting her forearms, her dark hair escaping from a ponytail, looking harried. She moved with the particular efficiency of someone who'd learned to compress mourning into motion, grief into purpose—Ethan recognized it immediately, his hyper-empathy picking up the frequency of recent loss vibrating just beneath her competent surface. Late twenties, maybe thirty, wearing jeans and a white shirt with what looked like hummus stained near the pocket.
+"Finally! The oven was being temperamental," she announced, setting the bread down. One loaf rolled toward the edge. Ethan caught it reflexively.
 
-"Finally! The oven was being temperamental," she announced to no one in particular, setting the challah down harder than intended, one loaf rolling toward the edge. Ethan caught it reflexively.
+Dark hair, flour on her arms, jeans and a white shirt. Late twenties, maybe thirty.
 
 "Thanks," she said, noticing him for the first time. "I'm Sera." Her accent was Israeli but softened, educated, careful with consonants in a way that suggested she'd lived elsewhere.
 
@@ -52,15 +52,13 @@ She emerged from the kitchen carrying challah, flour dusting her forearms, her d
 
 "First time in Jerusalem?" She switched to English after hearing his accent on his name.
 
-"First time anywhere that matters."
+"Yeah. First time." He paused, then added awkwardly, "It's... different than I expected."
 
-The words came out wrong, too intense. He saw her eyebrows raise slightly.
+"Different how?"
 
-"That's... a line," she said, but not unkindly. "Did you read that in a guidebook?"
+He gestured vaguely at the window. "More... I don't know. Real?"
 
-"No, I—sorry, that sounded—"
-
-"Like you're trying very hard," she finished, but she was almost smiling. "It's okay. Jerusalem makes everyone a little dramatic."
+She smiled. "That's one way to put it. Jerusalem makes everyone a little dramatic."
 
 "Sera made aliyah from New York three years ago," Mrs. Rosenberg announced, bustling past with wine bottles.
 
@@ -68,7 +66,7 @@ Sera shot her a look. "Mrs. Rosenberg loves to advertise."
 
 The French woman asked softly, "Were you there? During—"
 
-"No." Sera's voice came out sharp, then softer. "No. I was in Jerusalem." Her hand went unconsciously to a small pendant at her throat—not religious, Ethan noticed, but a tiny camera charm. She shook her head. "Tonight we don't talk about October."
+"No." Sera's voice came out sharp, then softer. "No. I was in Jerusalem." She shook her head. "Tonight we don't talk about October."
 
 An uncomfortable silence fell. One of the soldiers checked her phone. Ethan's phone buzzed—Aaron, again. But this time different:
 
@@ -90,9 +88,9 @@ Dinner unfolded in controlled chaos—plates passing, languages mixing, children
 
 "So what brings you to Jerusalem?" The French woman asked Ethan. "Tourism? Heritage trip? Romance?"
 
-"I don't know," he said, surprising himself again with honesty. "I was in Tel Aviv for work, and then—" How to explain October 7th, the walls, the calling, the sense that his life had been a prelude to something he couldn't name? "I just had to come."
+"I don't know," he said, surprising himself with honesty. "I was in Tel Aviv for work, and then—" How to explain October 7th, the walls, the sense that everything had changed? "I just felt like I should see it."
 
-"Had to," Sera repeated, not a question but a recognition. "Jerusalem does that. Calls people who don't even know they're listening."
+"Should see it," Sera repeated, nodding. "Jerusalem does that. Gets under people's skin."
 
 "Is that what happened to you?" he asked.
 
@@ -116,66 +114,60 @@ They stood in comfortable silence, the kind that usually took months to develop 
 
 "Why did you really come to Jerusalem?" she asked finally.
 
-"I told you, I don't know. After October—after everything changed—I felt like I'd been sleepwalking my whole life. Like I'd been performing this version of myself that wasn't wrong exactly, just... incomplete. And then I heard about this job in Tel Aviv, and it felt like—" he paused.
+"I told you, I don't know. After October—after everything changed—I felt... unsettled, I guess. Like I wasn't where I was supposed to be. And then I heard about this job in Tel Aviv, and—" he paused. "Does that sound crazy?"
 
-"Like something calling you home to a place you'd never been?"
-
-He looked at her, surprised. "How did you—"
-
-"It's not that original," she said, but not meanly. "Half the people who make aliyah say the same thing. The other half come for practical reasons and make up spiritual ones later."
+"Not particularly," she said. "Half the people who make aliyah say something similar. The other half come for practical reasons and make up meaningful ones later."
 
 "Which were you?"
 
-"Both. Neither. I came because I was twenty-five and thought Jerusalem would fix me. Spoiler: it didn't. It just gave me better problems."
+"Both. Neither." She paused, checking something on her phone. "I came because I was twenty-five and stupid. Thought Jerusalem would fix me." A shrug. "Didn't work out that way."
 
 A siren wailed in the distance—ambulance, not air raid, but everyone tensed for a microsecond anyway. The Old City's reflexes.
 
 "You have a story too," she said, deflecting. "Everyone who comes here does."
 
-"My middle name is Israel." The words came out before he could stop them. His throat felt tight. "Ethan Israel Stone. But I never—I don't use it. Haven't told anyone in years." He was speaking too fast now. "Not since college. Maybe high school. It felt like—like carrying a flag for a country I'd never seen."
+"Nothing that interesting." He looked out over the city. "Just... felt like I should be here, I guess."
 
-She studied him in the moonlight, and he could see her understanding reshaping itself, recognizing something in him that he hadn't known was showing.
+She was quiet for a moment, studying him in the moonlight.
 
-"Israel." She was quiet for a moment. "Heavy name to carry."
-
-"I don't even know what it means."
-
-"Wrestling," she said simply. "It means wrestling."
+"Sometimes that's enough," she said finally.
 
 Below them, the Western Wall plaza emptied and filled in waves, the eternal rhythm of approach and retreat, of seeking and finding and losing and seeking again. A cat crossed between shadows, indifferent to the holiness it walked through. Somewhere, church bells rang. Somewhere else, a baby cried and was comforted.
 
-"I should go," Ethan said eventually, though every cell in his body wanted to remain on this roof, in this moment, with this woman who made him feel both more lost and more found than he'd ever been.
+"I should probably get going," Ethan said eventually. "It's getting late."
 
 "Where are you staying?"
 
 "A hostel near the Damascus Gate."
 
-"I'll walk you to the Jewish Quarter's edge. The Old City changes after midnight. You need to know which shadows are just shadows and which ones have teeth."
+"I can point you in the right direction. The Old City's like a maze after dark."
 
-They descended through stone passages that seemed to rearrange themselves with each turn, Sera navigating by instinct or memory or something deeper than either. At a corner where four streets met at impossible angles, she stopped.
+They descended through stone passages, Sera navigating by memory. At a corner where streets met at odd angles, she stopped.
 
-"That way." She pointed down dark steps. "Three arches, left at the broken fountain, follow the cardamom smell."
+"That way." She pointed down steps. "Three arches, left at the broken fountain. You'll figure it out."
 
-He almost asked to see her again, then caught himself. Too desperate.
+An awkward pause. 
 
-"There's this thing tomorrow night. After Shabbat. At Simcha's—" She stopped. "Actually, forget that. Too crowded. The Wall's better. Nine o'clock? We could walk. Or just—I don't know. See what happens."
+"Maybe I'll see you around," she said, then immediately looked like she regretted it.
 
-She spilled wine on her shirt while reaching for her jacket. "Shit. Sorry. I mean—" She laughed, embarrassed. "I don't usually curse in front of—whatever. It's late."
+"Yeah. Maybe." 
 
-"The Wall? To pray?"
+She was already turning to go. "Well. Thanks for catching the challah."
 
-"Not really. I go there to think. Argue with God, maybe. Or myself." She stepped backward, nearly tripping. "Same thing."
+"Sure. No problem."
+
+She walked back toward the Jewish Quarter, not looking back.
 
 Ethan watched her vanish into the Old City's geometry, then found his way back through passages that felt different now, charged with possibility. The hostel room was bare and small and perfect, with a window that faced the Wall—he'd requested it specifically, needing to wake to that view, that reminder of why he'd come. He watched people approach that ancient remnant all night, each one carrying their own version of what it meant, their own wrestling match with presence and absence.
 
 Somewhere in the city, Sera was sleeping or not sleeping, existing in the same darkness, under the same moon that had witnessed Jerusalem rise and fall and rise again, endless return, eternal becoming.
 
-His phone showed three missed calls from his mother, two voicemails. He listened to the first: "Ethan, honey, your father found something in the attic. Your grandmother's candlesticks. The ones from Poland. I thought—maybe you'd want to know. Since you're... there."
+His phone showed three missed calls from his mother, one voicemail. He listened: "Ethan, honey, your father found something in the attic. Your grandmother's candlesticks. The ones from Poland. I thought—maybe you'd want to know. Since you're... there."
 
-The second: "Also, we went to temple last week. First time since your bar mitzvah. It was strange. Good strange, maybe. Your father cried during the Mourner's Kaddish. Call us."
+A pause, then: "Call us when you can."
 
-The messages felt like bridges between worlds—his parents, secular for so long, fumbling toward something they'd lost or never had. 
+The message felt like a bridge between worlds—his parents, secular for so long, maybe starting to wonder what they'd lost. 
 
-He fell asleep sitting up, watching the city that never quite slept. Tomorrow night. The Wall. Nine o'clock.
+He fell asleep sitting up, watching the city that never quite slept.
 
-In his dreams, Sera's voice mixed with his grandmother's, both asking the same question in different languages: Who are you becoming?
+In his dreams, voices mixed—his grandmother's, his mother's from the voicemail, and something else, a question in Hebrew he almost understood: Who are you becoming?

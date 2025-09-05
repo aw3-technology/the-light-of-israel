@@ -28,7 +28,7 @@ He let his legs rise.
 
 The sensation was alien—his body horizontal without effort, the dense water supporting him like hands, like prayers. His back touched the surface and suddenly he was floating, truly floating, suspended between mirrors.
 
-Tears came without warning—salt meeting salt. He tried to wipe them away but his hands were wet, slippery. *Crying in the Dead Sea,* he thought. *That's either poetic or pathetic.*
+His eyes watered—from the salt or something else. He blinked it away.
 
 "This is what letting go feels like," Sera's voice close now. "Honestly, first time I came here, I panicked. Thought I was going to flip and die somehow. Took my dad twenty minutes to convince me to try again."
 
@@ -38,7 +38,7 @@ Time dissolved. They floated while the sun moved across the sky in ways that did
 
 She began with his back, her hands spreading the mud. The texture was weird—gritty but smooth, like expensive face cream mixed with sand.
 
-"Like Adam from clay," she murmured, then laughed. "Sorry, occupational hazard. Tour guide brain. But seriously, doesn't it feel like becoming someone else?"
+"Doesn't it feel like becoming someone else?" she murmured.
 
 The mud dried in the desert air, cracking across his skin. He caught his reflection in her sunglasses—completely covered, unrecognizable. *If my mother could see me now.*
 
@@ -60,7 +60,7 @@ His skin emerged new—literally renewed, the minerals having stripped away laye
 
 The cable car rose through history—Roman camps still visible below, the siege ramp still scarring the mountainside. At the top, the ruins of Herod's palace where luxury had become last stand, where swimming pools had become ritual baths.
 
-"They chose death over slavery," she said in the reconstructed synagogue, the oldest he'd ever stood in.
+She was quiet in the reconstructed synagogue. "My dad brought me here when I was twelve," she said finally. "Told me they chose what they could control."
 
 He heard Samira's matter-of-fact voice from yesterday—two drawings of the same scene. These stones remembered zealots and governors; in another quarter, stones remembered a grandfather's house. The parallels didn't cancel each other—they complicated him in a way that felt like honesty.
 
@@ -72,7 +72,7 @@ Sera held him—awkwardly at first, then with more certainty. "Hey," she said, "
 
 They descended as the sun began its own descent, the light turning the desert gold, then amber, then something beyond color.
 
-"Qumran," she pointed to caves visible in the distance, where the Dead Sea Scrolls had waited two thousand years to be discovered. "Your grandmother's stories—truth preserved in caves."
+"Qumran," she said quietly, pointing to caves in the distance. "Sometimes things wait until we're ready to find them."
 
 "Wait," Ethan said suddenly. "Can we stop at Qumran? Just for a minute?"
 
@@ -82,7 +82,7 @@ She looked at him, surprised. "Shabbat's in two hours."
 
 At the Qumran visitor center, closed but parking lot empty, Ethan pulled out his notebook—the one Rabbi Levi had given him. He wrote quickly, urgently:
 
-*The Dead Sea holds you when you can't hold yourself. Masada: They chose how to die so we could choose how to live. Salt preserves everything—grief, memory, possibility. We're still here.*
+*The Dead Sea holds you when you can't hold yourself. Salt preserves everything. We're still here.*
 
 "What are you writing?" Sera asked, curious.
 
@@ -90,13 +90,13 @@ At the Qumran visitor center, closed but parking lot empty, Ethan pulled out his
 
 The drive back to Jerusalem as Friday afternoon became Friday evening, Shabbat approaching with its weekly insistence on marking time, on making holy what could be holy if you just stopped.
 
-Both of them covered in salt residue—the Dead Sea didn't let you go completely, left its mark on your skin like a passport stamp from the lowest place.
+His phone buzzed. Samira: "My third graders drew two Jerusalems today—one with domes, one with walls. Both true. Shabbat shalom, if you say that." He typed back quickly: "Shabbat shalom. Your line about stones stayed with me."
+
+Both of them carried the sea's residue—mineral traces that wouldn't wash away easily.
 
 Her hand found his across the gear shift—not romantic but necessary, the completion of a circuit that had been building since that first Shabbat.
 
-At a red light, she turned to him. "You've got salt—" she started to say, then stopped, wiped something from his cheek. "Everywhere, actually."
-
-The kiss was sudden, imperfect—both of them covered in mineral residue, tasting like the sea, bumping teeth slightly before finding the right angle. When they broke apart, she made a face. "Okay, that was saltier than expected."
+At a red light, she turned to him. "You've got salt—" she started to say, then stopped, her finger tracing something from his cheek. "Everywhere, actually." Her hand lingered a moment too long.
 
 Jerusalem embraced them with Friday afternoon urgency—everyone rushing to prepare before sunset divided sacred from ordinary. Her apartment was small but high, windows facing the Old City where the walls caught last light like vessels.
 
@@ -104,7 +104,7 @@ The apartment was cramped with books in three languages, a guitar in the corner 
 
 She lit candles while he watched, still unsure of his place in this ritual.
 
-"The salt won't come out for days," she said, examining her hands in the candlelight. "Gets everywhere."
+She examined her hands in the candlelight. "Still feels like the sea."
 
 "Is that scientifically accurate?"
 
@@ -114,13 +114,14 @@ She lit candles while he watched, still unsure of his place in this ritual.
 
 "Good. Because nothing about this is perfect."
 
-They lit the candles as sirens announced Shabbat across the city—not emergency but invitation, the whole city breathing, transforming.
+As the candles steadied, she kissed him—salt and wine and something like coming home. When they broke apart, she smiled. "Now it's Shabbat."
+
+Sirens announced the holy time across the city—not emergency but invitation, the whole city breathing, transforming.
 
 Outside, the muezzin's call wound through streets where Jewish families walked to synagogue, where Christian bells would ring tomorrow, where the stones held all prayers equally.
 
-His phone buzzed on the counter before candlelight found its level. Samira: "My third graders drew two Jerusalems today—one with domes, one with walls. Both true. Shabbat shalom, if you say that." He typed back: "Shabbat shalom. Your line about stones stayed with me." He set the phone face down, already feeling the quiet gather.
 
-They drank wine that tasted like the land—mineral, ancient, sweet with survival. They broke bread she'd baked that morning, when transformation had been just an idea but now was fact, in their cells, the salt still seasoning their skin.
+They drank wine that tasted like the land—mineral, ancient, sweet with survival. They broke bread she'd baked that morning.
 
 "Wait," Ethan said, reaching for his phone. "I want to turn it off properly. Not just silent—off."
 
@@ -134,15 +135,11 @@ His soul was on—that was the only way to describe it, the sensation of being f
 
 "Today was hard," he said.
 
-"Everything here is hard. That's why Israelis are prickly. Too much history, too much salt."
+"Everything here is hard. That's why Israelis are prickly. Too much history."
 
 "But you still float."
 
-"What's the alternative?" She shrugged, then her face softened. "My grandmother used to say the Dead Sea was where God kept his tears. All the times he wanted to cry for us but couldn't."
-
-"Why couldn't he?"
-
-"Because if God started crying for the Jews, he'd never stop. So he stored them up, made them into something else. Something that holds you when you can't hold yourself."
+"What's the alternative?" She shrugged, then her face softened. "My grandmother used to say the Dead Sea holds what can't be held anywhere else."
 
 The Jerusalem stone glowed gold in the candlelight. Outside, the muezzin's final call faded into Shabbat silence. The whole city held its breath between one holiness and another.
 
@@ -152,4 +149,4 @@ Ethan looked at her across the table—this woman who'd taught him to float, who
 
 "To whatever this is," she echoed, and they drank the too-warm wine that tasted like survival itself.
 
-The salt would stay in their skin for days. The memory would stay longer. Some transformations, Ethan was learning, were meant to mark you.
+The candles flickered. Outside, Jerusalem settled into Shabbat quiet. They carried the sea in their skin.

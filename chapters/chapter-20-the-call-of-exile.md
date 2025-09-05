@@ -28,23 +28,19 @@ Inside, she made coffee while he tried to explain the dream. The words came out 
 
 The rabbi's study felt different. Maps covered his usually clear desk—Europe, Mediterranean, North Africa. Red pins like wounds.
 
-"The Shabak called." Rabbi Levi didn't look up from the maps. "About you."
-
-He pushed a folder across the desk—Ethan at the Wall, at checkpoints, with Palestinian activists. Time stamps, locations, a file building itself.
-
-"I'm not—"
+""They're watching," Rabbi Levi said, not looking up from the maps. "But that's not why you're leaving."
 
 "The dream. Tell me."
 
-As Ethan spoke, the rabbi's fingers found cities on the map. Warsaw. Rome. Berlin.
+As Ethan spoke, the rabbi's fingers found cities on the map. Warsaw. Rome. Berlin. "West," the rabbi murmured. "She pointed west."
 
-"They're giving you a week." He glanced at the window—was someone watching? "After that..."
+"They're getting nervous," he said, glancing at the window. "American who changes too fast, asks too many questions."
 
 "But I just—"
 
-"Started? Yes. That's why you have to leave." The rabbi's eyes were kind but firm. "Voluntary exit or handcuffs. Choose."
+"Started? Yes. And you could stay, fight the bureaucracy, wait for lawyers." The rabbi's eyes were kind but firm. "Or you could follow the dream. Your grandmother pointed west for a reason."
 
-Four cities, the rabbi explained, pushing yellowed tickets across the desk. Athens, Rome, Berlin, Cairo. A Lithuanian couple's cancelled tour—their son had been called up for reserves. "Their loss, your escape route."
+Four cities, the rabbi explained, pushing yellowed tickets across the desk. Athens, Rome, Berlin, Cairo. "Where we were lost," he said. "Where sparks still wait." A Lithuanian couple's cancelled tour—their son had been called up for reserves. "Their loss, your escape route."
 
 "You have three days," Rabbi Levi said. "Your grandmother's birthday is November 30th—make that your departure. Tell them you're touring Jewish heritage sites. Come back on a different visa, when things calm down."
 
@@ -52,15 +48,9 @@ Four cities, the rabbi explained, pushing yellowed tickets across the desk. Athe
 
 "Tomorrow they might revoke your permit to stay in East Jerusalem. The day after, who knows?"
 
-At the travel agency on King George, the agent's hands trembled over the keyboard. Next door, yellow tape from this morning's evacuation.
+At the travel agency, a stressed agent found him tickets—a Lithuanian couple's cancellation. "Cash only," he said. Athens, Rome, Berlin, Cairo.
 
-"This week?" He didn't look up. Outside, soldiers checked IDs. "My son got his Tzav 8 yesterday."
-
-Emergency call-up. Ethan understood.
-
-The agent found something—a Lithuanian couple's cancellation. "Cash only." His printer wheezed out tickets. Athens, Rome, Berlin, Cairo.
-
-"My grandfather walked these cities," the agent said quietly. "Running. You'll fly them. Looking." A bitter smile. "Progress."
+"My grandfather walked these cities," the agent said quietly. "Running. You'll fly them. Looking." The dream image flashed—his grandmother pointing west, shadows behind her.
 
 Sera was packing when he returned—not cooking. Her military duffle on the bed.
 
@@ -74,7 +64,7 @@ Sera was packing when he returned—not cooking. Her military duffle on the bed.
 
 "Don't. Just... we have tonight. One night before everything changes."
 
-That night, they held each other like drowning people. She taught him the traveler's prayer in Hebrew, her fingers tracing letters on his chest—but also showed him where she'd been wounded in the 2014 Gaza war, shrapnel scars like inverted stars.
+That night, they held each other like drowning people.
 
 "I might not have email access," she said into the darkness. "Or phone. For weeks."
 
@@ -108,7 +98,7 @@ Silence. Then: "Oh, sweetheart. Oh no."
 
 Rabbi Levi's study, night before departure. Maps gone. One candle.
 
-"Exile isn't punishment." His voice barely above whisper. "It's how sparks spread."
+"Exile isn't punishment." His voice carried old authority. "It's how sparks spread. How light finds its way into dark places."
 
 He pressed something into Ethan's hand—a travel mezuzah, worn smooth.
 
@@ -120,19 +110,9 @@ He pressed something into Ethan's hand—a travel mezuzah, worn smooth.
 
 Through the window, an ambulance siren. Then another.
 
-"Go," Rabbi Levi said. "Gather what we scattered."
+"Go," Rabbi Levi said. "Find what we lost. Gather what we scattered. Your grandmother knew—the sparks are waiting."
 
-The last night with Sera, they created their own Shabbat on a Tuesday. Ethan unpacked the travel candlesticks she'd given him—his grandmother's replicas—and set them on her small table.
-
-"I want to light these," he said. Not asking. Deciding.
-
-Sera paused, wine bottle in hand. In Israel, tradition said she should light them. But something in his voice—
-
-"Yes," she said. "You should."
-
-He struck the match himself, cupped the flame against the window's draft. The candles caught, burned steady. His blessing came in Hebrew now, words that had found him rather than been taught. She blessed wine. They ate slowly, telling stories. She gave him a small stone from the Dead Sea, smooth and dense with salt.
-
-"To remember the lowest point," she said. "And that you can float."
+The last night with Sera, they lit candles. Not Friday, but it felt like Shabbat anyway. Sacred time carved from ordinary Tuesday.
 
 "My unit—" she started in the darkness, then stopped.
 
@@ -142,47 +122,17 @@ He waited.
 
 The weight of it—what tunnels meant in Gaza, what finding them meant, what entering them meant.
 
-She pressed an envelope into his hand, sealed, addressed. "Athens. If I don't—"
-
-"Sera."
-
-"Promise."
 
 Outside, the scream of an F-16. They both knew what that meant. The war was already everywhere.
 
-Ben Gurion Airport, 4 AM. Sera drove in uniform, her rifle in the back seat. Three checkpoints between Jerusalem and the airport—double the usual. At the second, a soldier recognized her unit insignia, saluted.
+Ben Gurion Airport, 4 AM. Sera drove in uniform, her rifle in the back seat.
 
-"Stay safe down there, Lieutenant."
+At departures, she pressed the Dead Sea stone into his palm.
 
-Lieutenant. She'd never mentioned her rank.
+"To remember," she said. "That you can float."
 
-At departures, she handed him something wrapped in newspaper—travel-sized candlesticks, replicas of his grandmother's.
+Security took three hours. They knew his file, his West Bank visits. "Forty days," he told them. "Tourist visa when I return."
 
-"Don't be sentimental with these," she said about the candlesticks. "Use them."
-
-Security: three hours. They swabbed everything twice. Phone inspection. The agent knew his file.
-
-"Mr. Stone. West Bank. Twelve visits in six weeks."
-
-"Research."
-
-"Type?"
-
-"Personal."
-
-The agent marked something on his screen. "Return date?"
-
-"Forty days."
-
-"New visa when you come back. Clean slate." Not advice—an order.
-
-At the gate, another check. Shin Bet this time, the investigator from Interior.
-
-"Mr. Stone. Convenient timing."
-
-"Tourism."
-
-"Of course." He stepped aside. "Safe travels."
 
 At the gate, final security. Behind the glass, Sera in uniform. She wasn't supposed to be here—had pulled rank, used connections. Their eyes met across the security line.
 
@@ -204,16 +154,10 @@ She'd never said it in English. Saved it for goodbye.
 
 The plane lifted. Below, Israel became coast, became memory, became something he'd have to earn the right to return to.
 
-In his pocket: her envelope for Athens, the Dead Sea stone, her untranslated love.
-
-Rabbi Levi's text: "Jeremiah 29:7. Seek the peace of the city where I have sent you into exile."
-
-Exile beginning. Love suspended. War coming.
-
 The Mediterranean spread below, the same sea Jews had been crossing for millennia. But this time, Ethan wasn't fleeing.
 
 He was being sent.
 
-In his pocket, the travel mezuzah Rabbi Levi had pressed into his palm grew warm against his fingers. *How sparks spread,* the rabbi had whispered. Through doorways. Across borders. Into exile.
+In his pocket, the travel mezuzah Rabbi Levi had pressed into his palm grew warm against his fingers. Each doorway he would cross, each city he would enter—carrying the spark west, following his grandmother's pointing hand into exile that wasn't exile but mission.
 
-Ethan understood now. This time, he was carrying the spark.
+The spark that could not be extinguished, only scattered. Only spread.

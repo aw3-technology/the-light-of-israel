@@ -70,7 +70,7 @@ The look she gave him. Empty.
 
 He'd never seen the photo again.
 
-Houston Street. His phone buzzed a third time. Rachel, maybe? He'd texted her Tuesday, no response. The meeting would be over by now anyway.
+Houston Street. His phone buzzed a third time. Rachel, maybe? He'd texted her Tuesday, something about coffee, but she hadn't responded. Or maybe Marcus, wondering why his assigned tickets weren't moving. The standup meeting would be over by now anyway—his absence noted, judged, filed away for performance reviews.
 
 
 *"These were my mother's. And her mother's. Heavy, no? Feel how heavy."*
@@ -81,7 +81,7 @@ Houston Street. His phone buzzed a third time. Rachel, maybe? He'd texted her Tu
 
 Someone will remember. The candlesticks were in his closet, wrapped in yellowed tissue paper.
 
-His phone buzzed. Work. He didn't look.
+His phone buzzed. Definitely work now. He checked: Marcus. "Where are you? Client meeting moved to 2 PM." The client meeting he'd forgotten about completely. The one that could save his job or end it.
 
 
 Delancey Street. A melody caught in his throat—he was humming something, had been humming for blocks without noticing.
@@ -112,10 +112,14 @@ Silence. Or an answer too quiet to hear.
 
 Ethan stood in his kitchen, holding his grandmother's candlesticks. Empty, waiting. He opened the drawer, found matches left from winter blackouts. Struck one. The flame caught, steady and warm.
 
-He held it over the candlestick, watching wax begin to pool in the base from some long-ago candle. The flame danced, reflected in the tarnished silver—two lights where there was one.
+He held it over the candlestick, watching old wax begin to soften in the base—remnants from some Friday night decades ago. The flame reflected in the tarnished silver, multiplying. For a moment he could smell Shanghai cooking oil, hear his grandmother's voice singing Hebrew he'd never learned.
 
-Then blew it out.
+His phone buzzed on the counter. Marcus again. 1:47 PM.
 
-The smell of sulfur faded. The candlesticks remained on the counter. He didn't put them away. Tomorrow was his grandmother's yahrzeit. They could wait one more day.
+The match burned down to his fingers. He dropped it, watched it die on the kitchen floor.
+
+The candlesticks remained on the counter, waiting. Empty but somehow expectant. Tomorrow was his grandmother's yahrzeit. Tomorrow he'd light them properly, or try to. But today he had a meeting to save his job, emails to answer, a life to live in the present tense.
+
+He didn't put the candlesticks away.
 
 Outside, that child's voice again, learning the Shabbat melody. Getting the words wrong, starting over. Learning.

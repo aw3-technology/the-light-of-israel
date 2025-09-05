@@ -157,7 +157,7 @@ On screen, the man was walking somewhere, but Ethan had lost the thread of the s
 
 Ethan sat in his dark apartment, the only light from screens, the smell of sulfur fading.
 
-In the attic in Westchester, in a box marked "Mom's Things," a blue vase with a crack down its side waited with her Hebrew books and photographs.
+In the attic in Westchester, in a box marked "Mom's Things," a blue vase with a crack down its side waited with her Hebrew books and photographs. And in his closet, wrapped in tissue paper, her candlesticks waited too.
 
 The music through the wall whispered those words again—"Shema Yisrael."
 

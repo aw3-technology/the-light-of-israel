@@ -6,7 +6,6 @@ Sunday evening, October 8th. The subway ride from Brooklyn felt like crossing in
 
 He'd seen the announcement on Instagram while lying in bed at 4 PM, still in yesterday's clothes, the screen's blue light the only illumination in his apartment where curtains stayed drawn against a Sunday that felt too raw for sunshine. "Vigil for the Victims—Washington Square Park, 7 PM, Bring Light Against Darkness." The graphics simple, stark—a candle, a Star of David, the date October 7th as a set of digits he couldn't stop looking at.
 
-Not his community—the thought automatic, practiced through decades of being Jew-ish, not Jewish.
 
 But his thumb had screenshotted it anyway. His body had risen, showered, dressed. The black shirt was unintentional but appropriate. On the platform, the overhead fluorescents hummed at a frequency that made his teeth ache, or maybe that was just the tension he'd been carrying since yesterday.
 
@@ -14,15 +13,15 @@ The train carried others toward the same destination. An elderly couple spoke He
 
 "Are we going to pray, Abba?" the boy asked.
 
-"We're going to remember," the father answered, and something in his voice made Ethan look away, out the window into tunnel darkness that reflected his own face back strange, distorted, more honest than mirrors.
+"We're going to remember," the father answered, and something in his voice made Ethan look away, out the window into tunnel darkness.
 
 At Union Square, the demographic shifted. A woman wrapped an Israeli flag around her shoulders, the fabric worn soft at the edges. Two Hasidic men argued in rapid Yiddish—one kept saying "But the Rebbe said," while the other countered with something about Pittsburgh, about Poway, about how nowhere was safe anymore.
 
-Ethan stood though seats emptied around him. The metal rail was cold under his palm, grounding. His phone showed seventeen missed calls from his mother, three from Aaron, one from a number he didn't recognize but that had a 972 country code—Israel, though he knew no one there, had never been, had avoided Israel like he'd avoided everything that might make claims on his carefully maintained neutrality.
+Ethan stood though seats emptied around him. The metal rail was cold under his palm, grounding. His phone screen was dark. He'd turned it off somewhere between Brooklyn and here.
 
 The walk from the station took forever and no time at all. The October wind carried the smell of burning leaves from somewhere, though there were no trees burning in Manhattan, just candles—hundreds of them already visible as he turned onto Washington Square Park South.
 
-The Washington Square Arch, usually lit by streetlamps, now flickered with candlelight reflected in its marble. The crowd was already thick—bodies pressed close enough that Ethan could smell someone's lavender perfume mixing with the smoke from havdalah candles someone had brought, the wrong ritual for the moment—and somehow right anyway.
+The crowd was already thick—bodies pressed close enough that Ethan could smell someone's lavender perfume mixing with the smoke from candles.
 He checked his phone as he stepped under the arch: 7:17 PM.
 
 A hand materialized holding a yahrzeit candle—thick glass, the kind you buy at Key Food for $2.99. The woman attached to it had deep-set eyes behind wire-rimmed glasses, a scar running through her left eyebrow. She didn't speak, just touched her flame to his wick. The fire jumped between them.
@@ -37,17 +36,11 @@ She paused, studied him. "First yahrzeit candle?"
 
 She vanished into the crowd before he could ask what she meant.
 
-"First time?" The woman wore an IDF t-shirt under an open cardigan, her hair pulled back with what looked like a child's scrunchie—purple with glitter stars.
+Someone near the fountain had started "Hatikvah," but a younger voice interrupted with "Od Yavo Shalom Aleinu," and for a moment the two melodies tangled, competed, before settling into an uneasy harmony.
 
-"First time what?"
+"Acheinu kol beit yisrael." The prayer for captives. Someone was leading it, voice cracking on the high notes.
 
-"Being with us. You have that look—like you're surprised you came."
-
-She pressed something into his hand—a photocopied sheet with Hebrew songs transliterated into English. The paper was still warm from the copy shop. Someone near the fountain had started "Hatikvah," but a younger voice interrupted with "Od Yavo Shalom Aleinu," and for a moment the two melodies tangled, competed, before settling into an uneasy harmony.
-
-"Acheinu kol beit yisrael." The prayer for captives. An older man with a Zabar's tote bag was leading it, his voice cracking on the high notes.
-
-Ethan found himself not just humming but mouthing the words—words he didn't know he knew, surfacing from some basement of memory. His hand moved to steady the second candle, and without thinking, he lit it from the first. For his grandmother. For the year of not mourning properly.
+Ethan found himself not just humming but mouthing the words—words he didn't know he knew. His hand moved to steady the second candle, and without thinking, he lit it from the first.
 
 The speeches began late. Someone had brought a portable PA system that kept cutting out, making the speakers sound like they were broadcasting from underground. The mic cord was patched with silver duct tape that caught the candlelight.
 
@@ -61,17 +54,11 @@ The rabbi wore jeans under his tallit, Adidas sneakers that had seen better days
 
 "We are here because—" The mic squealed. He adjusted it, tried again. "We are here because we don't know where else to be. Some of you believe in God. Some don't. Some did yesterday but don't today. That's okay. Tonight we're not here for God. We're here for each other."
 
-The counter-protesters had been there all along, Ethan realized—he just hadn't noticed them until their drum started. A djembe, played with professional skill. Their signs were LED-lit: "RESISTANCE IS NOT TERRORISM." "FROM THE RIVER TO THE SEA."
+The drum started somewhere behind him—djembe rhythms that didn't match the moment. Ethan caught fragments: a young woman's voice cracking on "Really? TODAY?" Someone else shouting back about occupation. An older man trying to pull someone away from something.
 
-The Jewish crowd fractured instantly. A young woman in a Hebrew University sweatshirt shouted: "Today? Really? TODAY?"
+Through it all, the Kaddish continued—voices growing hoarse, wavering, but not stopping.
 
-The argument rippled through like electricity. A man stepped toward the protesters. Others pulled him back.
-
-The rabbi's voice cracked through the PA system: "Please. We're losing each other here."
-
-Chants rose from both sides—"Am Yisrael Chai," "Free Palestine"—while in the middle, mourners continued the Kaddish.
-
-Ethan found himself moving—not toward either faction but to the Kaddish circle. He raised his second candle higher, adding his light to theirs. "Yitgadal v'yitkadash," he whispered, the words coming from that same basement of memory. He was choosing—not a side but an action, not politics but presence.
+Ethan found himself moving to the Kaddish circle. He raised his second candle higher, adding his light to theirs. "Yitgadal v'yitkadash," he whispered, the words coming from somewhere he'd forgotten he knew.
 
 An elderly man with numbers tattooed on his forearm grabbed Ethan's elbow: "You see? Even now, even in our grief, we fight. This is also Jewish."
 
@@ -81,36 +68,19 @@ An elderly man with numbers tattooed on his forearm grabbed Ethan's elbow: "You 
 
 "I don't even know what I believe."
 
-"So you came anyway. That's already belief." The man pointed to Ethan's two candles. "One for them, one for you. You're learning."
+"So you came anyway." The man pointed to Ethan's two candles. "One for them, one for you."
 
 The crowd dissolved into streams. Ethan stood holding his two candles, wax dripping onto his sleeves—one for the dead, one for his grandmother, both for something he was only beginning to understand.
 
-His phone vibrated. Aaron: "Saw you on the news. You okay?"
-
-Ethan typed back: "No. But I'm here."
 
 The park smelled like extinguished candles—smoke and melted wax that would forever mean this night.
 
-A Parks Department employee in a reflective vest was sweeping up programs, his broom scraping against concrete in a rhythm like davening. The counter-protesters had moved on to arguing among themselves about tactics. The djembe player was packing up, the drum's heartbeat finally silent.
+The park was emptying. Someone was sweeping up programs, broom scraping against concrete.
 
-The walk to the subway—past the closed falafel shop with its faded Hebrew lettering, past the NYU dorm where someone had already hung an Israeli flag from their window, past a homeless man who called out "Shalom aleichem" either in greeting or mockery, impossible to tell. His reflection in the bodega window showed wax on his sleeve, ash on his collar.
+The walk home—wax on his sleeve, ash on his collar. The bridge wind carrying salt and diesel and something ancient.
 
-He walked the Brooklyn Bridge instead of taking the train—needed the wind off the East River, the way it carried salt and diesel and something ancient. The cables hummed above him at a frequency he felt in his molars.
-
-His apartment building's door required three tries with the key—his hands were shaking. The hallway smelled like his neighbor's curry, usually comforting but tonight too present.
-
-A piece of paper taped to his door. Yellowed, like it had been saved. His name in Hebrew letters. A phone number—718 area code. Brooklyn.
-
-Inside: pencil marks forming a hand-drawn map. His building circled, plus six others. At the bottom, in shaky English:
-
-"Thursday 7pm. We're starting again."
-
-Starting what? The paper smelled of cigarettes and brisket. Real. Specific. Someone had been watching, waiting, knowing that crisis makes Jews remember they're Jews.
-
-His apartment was exactly as he'd left it except for the candlesticks—his grandmother's brass menorah he'd been using to hold mail. Tonight it looked like what it was: a ritual object waiting for its purpose to be remembered.
+His apartment was exactly as he'd left it—mail scattered on the counter, yesterday's coffee mug in the sink.
 
 He set his two yahrzeit candles on the kitchen counter. One still burning for October 7th's dead. One for his grandmother, finally lit after a year of darkness.
 
-Thursday was in four days.
-
-For the first time since his grandmother died, he wasn't planning to stay home.
+Two flames in the kitchen window, reflecting back at him through black glass.
