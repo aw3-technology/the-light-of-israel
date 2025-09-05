@@ -90,36 +90,14 @@ After dinner, after songs, Michele asked, "You understand now?"
 
 "Good. Confusion is the beginning. Americans want answers. Jews live in the question."
 
-Saturday night, Ethan returned to the Forum. A Birthright group took photos. Two couples walked wide around the arch—muscle memory of avoidance. Others sang, harmonies building against lit marble.
-
-Ethan photographed himself standing beyond the arch, looking back. Not triumphant—triumph was Roman. Just present.
-
-He texted the photo to Sera: "Still standing."
-
-She responded: "That's all we ever do. Come home." Then, a moment later: "Had breakthrough in therapy today. Finally said Michal's name without crying. Only took two months."
-
-Another text came in—Aaron: "Layla and I are official. Her grandmother was from Haifa. She asks hard questions about '48. I don't have answers."
-
-His mother called. He let it go to voicemail, then listened: "Your father's been reading about Jewish mysticism online. He ordered tefillin. I don't know what's happening to us. To all of us."
-
-Home. The word felt different now. Heavier. More complicated. Meanwhile, Rabbi Levi was back in Jerusalem, teaching other lost souls. Ethan imagined him in that same study, drawing the same diagrams for someone else—another searcher trying to make sense of October's darkness.
+Saturday night, Ethan returned to the Forum. The arch stood lit, tourists taking photos. He walked around it, not under—old habit or new understanding, he couldn't tell.
 
 Sunday morning, Michele handed him a package—recipe cards in faded handwriting.
 
-"For your children, when you have them. Tell them this: we were too tough to digest. Now they eat our food and don’t know it’s Jewish. That’s not revenge. That’s…" He searched. "That’s Italy."
+"For your children, when you have them."
 
-The train pulled from Termini, past EUR’s fascist architecture—Mussolini’s 'Third Rome,' now hosting tech companies. Through the window: umbrella pines and November light, beauty persisting alongside everything else.
+The train pulled from Termini toward Germany. In his bag, recipes stained with oil, annotated in languages he couldn't read. Outside the window, Italy became a blur of hills and vineyards.
 
-His phone buzzed. Sera: "How was Rome?"
+The train entered a tunnel through the mountains. In the darkness, Ethan saw his reflection superimposed on nothing—his face carrying north toward Berlin, toward his grandmother's harder history. 
 
-"Complicated."
-
-"Good. Simple places don't teach anything."
-
-Outside: Lazio becoming Tuscany, vineyards and hilltop towns. In four hours he'd cross into Germany. Toward Berlin, where his grandmother's family had lived before they became smoke.
-
-Recipes in his bag were stained with oil, annotated in three languages. One note: "More salt after 1967—we won the war." Small rebellions.
-
-The train entered a tunnel through the Apennines. In the darkness, Ethan saw his reflection superimposed on black—his face going north toward the harder history, the one without Rome's consolations.
-
-Behind him, Rome continued. The arch still stood. The Jews still stood. Both facts equally unlikely. The train climbed toward Germany, carrying questions that had no easy answers.
+The recipes weighed nothing. The questions they carried felt heavier than marble.

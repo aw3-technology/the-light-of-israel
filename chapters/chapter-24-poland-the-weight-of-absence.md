@@ -22,11 +22,6 @@ Ethan walked the track's length, each tie a heartbeat, a name. Here was where se
 
 Groups of visitors moved through in waves—some weeping, some silent, some snapping selfies. *What am I among them?* he wondered. *The descendant of people who left before the killing? A tourist of my own family's destruction?*
 
-Kazimierz—Kraków's Jewish Quarter—had become Europe’s way of handling Jewish absence: “Jewish‑style” restaurants, hipster cafes in former prayer houses. Of 65,000 Jews before the war, maybe 200 remained.
-
-In the Old Synagogue museum, a guest book entry stopped him cold: "Looking for anyone who knew the Steinbergs from Brzeziny. I am the only one left."
-
-Three months old. No contact. Another ghost seeking ghosts.
 
 His grandmother's birth town lay three hours east, past fields that looked peaceful forever, past villages where church spires had watched Jews marched away.
 
@@ -70,33 +65,15 @@ The house was modest, white‑washed, with windows that had watched everything a
 
 He opened his mouth, closed it. A long quiet. "You want the truth? I stayed because I was afraid. Afraid to leave the only place I knew, afraid I wouldn’t be special somewhere else. Here, I’m the last Jew of Brzeziny. Somewhere else, I’d be... nobody."
 
-The road to the forest was unpaved, unwanted. Stanisław insisted. They walked, feet crunching frozen leaves that had been falling for eighty Octobers.
+"One more place," Stanisław said, leading him to the forest edge. An unmarked clearing except for a small stone. Polish on one side: "Here lie 2,000 Jews of Brzeziny." Hebrew on the other: "May their memory be a blessing."
 
-An unmarked clearing except for a stone Stanisław placed in 1962, when he’d finally saved enough. Polish on one side: "Here lie 2,000 Jews of Brzeziny." Hebrew on the other: "May their memory be a blessing."
+"October 28, 1942," he said. "I watched from the Nowaks' attic. The whole town marched past." He paused, swayed slightly. "I can't remember their faces anymore, but I remember the sound. Is that terrible?"
 
-"October 28, 1942," he said. "I watched from the Nowaks’ attic. The whole town marched past. They made them dig. Then—" He swayed. "I shouldn’t have watched. A child shouldn’t see... But I watched. All day. I can’t remember their faces anymore, but I remember the sound. Is that terrible?"
+"Your grandmother's parents. Her brothers. All here." He gestured at the frozen ground. "I've said Kaddish here every Friday for sixty years. Today, you say it."
 
-The trees around the clearing stood like witnesses, their silence so complete it seemed intentional. No birds here. No wind. Nature itself holding its breath.
+Ethan began the ancient words: "Yitgadal v'yitkadash sh'mei raba..."
 
-"Your grandmother’s parents. Her brothers. Her sister Mindel. All here." He gestured at the frozen ground. "I’ve said Kaddish here every Friday for sixty years. Today, you say it."
-
-Ethan began the ancient words, the Aramaic emerging as if it had been waiting in his throat since birth: "Yitgadal v'yitkadash sh'mei raba..." Magnified and sanctified be the great Name...
-
-The forest went silent. He spoke the names he knew—Steinberg, Rosen, Goldberg—and other names seemed to rise from the frozen ground, carried by the December air.
-
-When he finished, dusk was settling over the trees. The first stars were becoming visible.
-
-"One more thing," he said, leading Ethan back through town to a building that looked abandoned, windows boarded, door hanging askew. Inside, beneath rotting floorboards, stone steps descended into darkness.
-
-Stanisław produced a flashlight, its beam revealing carved stone, Hebrew letters, the architecture of sanctity preserved in secret. At the bottom, a depression in the stone floor, dry now but still bearing the shape of what had been.
-
-"The mikvah," he said. "Ritual bath. The Nazis filled it with concrete, but I cleared it out in the eighties. Thought maybe... but who would use it? Just me here."
-
-The carved stone was cracked, stained with decades of neglect. Water stains showed where springs had once fed the pool, but that was long ago. Ethan knelt and touched the rough stone bottom, imagining the generations who had sought purification here.
-
-"It was Rivka, wasn't it?" Stanisław's voice was uncertain in the darkness. "Sometimes I worry I've invented her, that I've been alone so long I'm remembering people who never existed. But you're here. So she was real. Wasn't she?"
-
-Ethan stood in the empty basin, feeling the weight of ritual without the comfort of water, the form without the substance. "She was real," he said, though he wasn't sure if he was convincing Stanisław or himself.
+When he finished, Stanisław was quiet for a long moment. "It was Rivka, wasn't it?" His voice was uncertain. "Sometimes I worry I've invented her. But you're here. So she was real."
 
 At the clearing, as December light failed, he filled a small bag with earth. "Take them home," Stanisław said, pressing it into Ethan's hands. "They should know someone remembered. Their names were spoken."
 
