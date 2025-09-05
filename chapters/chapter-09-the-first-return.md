@@ -28,7 +28,7 @@ The ceiling vaulted toward heaven, painted stars on midnight blue. The ark domin
 
 He slid into the back row, far left, emergency exit in peripheral vision.
 
-The prayer book opened backwards—Hebrew, right to left, his hands remembering before his mind. Page 34. Kabbalat Shabbat. Receiving the Sabbath. English translation in parallel columns like subtitles for a movie he'd seen before in a language he'd never quite learned.
+The prayer book opened backwards—Hebrew, right to left, his hands remembering before his mind. Page 34. English translation in parallel columns like subtitles for a movie he'd seen before in a language he'd never quite learned.
 
 "Lecha dodi likrat kallah..."
 
@@ -58,7 +58,7 @@ The Torah scroll emerged from the ark—dressed in velvet, crowned in silver, ca
 
 "Aliyah l'Torah..."
 
-Names called in Hebrew—the secret names parents give at birth, where "Steven" becomes "Shmuel," where assimilation gets footnoted by ancestry. The rabbi had to repeat it louder—Samuel Goldstein was deep in conversation about his grandson's college applications.
+Names called in Hebrew. The rabbi had to repeat it louder—Samuel Goldstein was deep in conversation about his grandson's college applications.
 
 Would they call him? Ethan ben David v'Miriam. Or maybe Israel ben David v'Miriam. The wrestling one, sitting in the back row of return.
 
@@ -88,7 +88,7 @@ Everyone turned to neighbors, saying "Shabbat Shalom," the greeting that was wis
 
 Next week. She assumed he'd return. Assumed this wasn't tourism but beginning.
 
-The service ended with Adon Olam—the song every Jewish child learns, the same words his grandmother sang.
+The service ended with Adon Olam—the song every Jewish child learns, the same words his grandmother sang. The melody swelled, three hundred voices finding harmony without trying, and for one moment Ethan's voice joined them—off-key, uncertain, but there. The Hebrew syllables tumbled from somewhere deeper than memory, his chest vibrating with communal sound, the room holding him in its ancient rhythm until the last note dissolved into silence.
 
 "Join us for oneg," Ruth appeared again. "Wine and challah in the social hall. You look like you could use both."
 
@@ -96,7 +96,9 @@ But Ethan fled.
 
 Not dramatically—just sideways through the crowd, backwards through the lobby. The voices were too warm, too ready to fold him in. The smell of challah made his throat close—his grandmother's Friday table suddenly present, unbearably so. He needed air that wasn't thick with belonging he hadn't earned.
 
-Past security still saying "Shabbat Shalom," past the opportunity for connection that felt like drowning.
+Past security—the guard catching his eye, nodding once, a gesture that said both goodbye and see you next week. Ruth at the door, touching his elbow lightly. "Shabbat Shalom," she whispered, and something in her tone suggested she knew he'd be back, that running was part of returning, that the door would stay open.
+
+Past the opportunity for connection that felt like drowning.
 
 On Broadway, he stopped, hand finding the kippah still on his head—forgotten, worn into the world. He pulled it off, held it like evidence of something beginning.
 
