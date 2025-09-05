@@ -12,7 +12,7 @@ Immigration moved with efficient hostility. The officer studied his stamps: Athe
 
 She looked up, taking in his American passport. "Returning from tourism?"
 
-"From exile." *Pretentious. God, that sounded pretentious.*
+"From exile." *Pretentious, maybe. But true.*
 
 "Are you making aliyah?"
 
@@ -20,7 +20,7 @@ She looked up, taking in his American passport. "Returning from tourism?"
 
 "Thinking isn't a visa category." She stamped his passport hard. "Tourist. Ninety days."
 
-*Tourist.* The word felt like a slap. *After everything—Poland, the camps, the Wall—I'm still a tourist.*
+*Tourist.* The word felt like a slap. *After everything—Poland, the camps, the Wall—still a tourist.*
 
 Sera waited at arrivals. No sign, just her, looking—had she cut her hair? Lost weight? Or had forty days changed his memory of her face?
 
@@ -110,7 +110,7 @@ That evening, fifth night of Hanukkah. Yossi had invited friends—loud Israelis
 
 "I'm right here," Ethan said in Hebrew.
 
-"Exactly. You're here but not here. You're performing—how do you say it in English? Performing arrival."
+"Exactly. You're here but not here. You're performing—how do you say?—arrival."
 
 *Performing. Is that all this is?* Sera didn't defend him. That silence said everything.
 
@@ -132,7 +132,7 @@ The call to his parents went predictably.
 
 "Subleasing. Illegally. Landlord found out."
 
-*I'm thirty-six and homeless and unemployed and in love with someone who's tired of me.*
+*I'm thirty-five and homeless and unemployed and in love with someone who's tired of me.*
 
 "Is this about that girl?"
 
@@ -142,7 +142,7 @@ The call to his parents went predictably.
 
 *Maybe not. But what else do I have?*
 
-Later, Sera and he finally alone, Yossi's laughter echoing from the living room.
+Later, Sera and he finally alone, Yossi's laughter echoing from the living room. The kitchen smelled like cumin and lemon from lunch, a forgotten pan cooling on the stove. A basil plant on the sill drooped—Sera killed houseplants with love and too much water.
 
 "I don't know how to do this," Ethan admitted.
 

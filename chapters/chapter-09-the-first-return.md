@@ -20,7 +20,7 @@ BJ. A nickname. Everything belonged here except him.
 
 "I haven't—it's been a while since—"
 
-"Since October 7th?" Her hand found his arm, squeeze that said everything. "Here." She pressed a burgundy kippah into his hand, bobby pins materialized from her purse. "The books are inside. Sit anywhere except the first three rows—those belong to the regulars. Page 36 to start."
+"Since October 7th?" Her hand found his arm, squeeze that said everything. "Here." She pressed a burgundy kippah into his hand, bobby pins materialized from her purse. "The books are inside. Sit anywhere except the first three rows—those belong to the regulars. Page 34 to start."
 
 The sanctuary doors opened and sound poured out—not music yet but the hum of gathering, voices layering into harmonics without trying. The temperature dropped five degrees. Old building, stone walls, October seeping through stained glass.
 
@@ -28,7 +28,7 @@ The ceiling vaulted toward heaven, painted stars on midnight blue. The ark domin
 
 He slid into the back row, far left, emergency exit in peripheral vision.
 
-The prayer book opened backwards—Hebrew, right to left, his hands remembering before his mind. Page 36. Kabbalat Shabbat. Receiving the Sabbath. English translation in parallel columns like subtitles for a movie he'd seen before in a language he'd never quite learned.
+The prayer book opened backwards—Hebrew, right to left, his hands remembering before his mind. Page 34. Kabbalat Shabbat. Receiving the Sabbath. English translation in parallel columns like subtitles for a movie he'd seen before in a language he'd never quite learned.
 
 "Lecha dodi likrat kallah..."
 

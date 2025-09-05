@@ -88,7 +88,7 @@ After dinner, after songs, Michele asked, "You understand now?"
 
 "I'm more confused than when I started."
 
-"Good. Confusion is the beginning. Americans always want the answer. Jews learn to live in the question."
+"Good. Confusion is the beginning. Americans want the answer. Jews learn to live in the question."
 
 Saturday night, Ethan returned to the Forum. A Birthright group took photos. Two couples walked wide around the arch—muscle memory of avoidance. Others sang, harmonies building against lit marble.
 

@@ -60,7 +60,7 @@ Aaron Gold looked like success—tailored shirt, rimless glasses, maintained stu
 
 "Every day's rough when you're defending people the system wants to disappear." The words came out practiced, automatic.
 
-"Right." Ethan ordered an Old Fashioned. Nineteen dollars paid out for whiskey and sugar.
+"Right." Ethan ordered an Old Fashioned. Nineteen dollars paid out for whiskey and sugar. His jaw ached—he'd been clenching again without noticing.
 
 Sarah looked up from her phone, dark circles under her eyes from staring at screens all day. "Did you guys see about the flooding in Pakistan? Twenty million displaced. And that thing in Gaza—the hospital. CNN says October could be worse."
 
@@ -76,7 +76,7 @@ Music played overhead—something indie, forgettable. Behind the bar, glasses cl
 
 "Speaking of ineffective," Aaron said, turning to Ethan, "how was the date with Rachel?"
 
-"Fine. She was nice. We had nothing in common."
+"Fine. She was nice. We had nothing in common." He straightened a cocktail napkin that didn’t need straightening.
 
 "Damn," Marcus whistled. "That's dark, even for you."
 
@@ -94,7 +94,7 @@ The conversation drifted. Netflix shows. Weekend plans. Aaron ordered another ro
 
 "Did you see Jerusalem?" Marcus asked, scrolling through news. "More settlements."
 
-Aaron's jaw tightened. "Netanyahu's using Judaism as cover for—" He stopped, knuckles white around his glass.
+Aaron's jaw tightened. "Netanyahu's using Judaism as cover for—" He stopped, knuckles white around his glass. Ethan felt his chest go tight in reflex, the old pressure.
 
 "For what?"
 

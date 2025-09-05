@@ -1,4 +1,4 @@
-# Chapter 4: Family Distance
+# Chapter 4: 613 and the Space Between
 
 His mother called three times before Ethan answered, and even then, he almost let it go to voicemail.
 
@@ -12,7 +12,7 @@ Third call: surrender.
 
 "Finally! I was starting to worry. You know how I worry when you don't answer."
 
-Netflix frozen mid-episode, someone's face twisted in what the subtitles called "[ANGUISHED EXPRESSION]." He left it paused.
+Netflix frozen mid-episode, someone's face twisted in what the subtitles called "[ANGUISHED EXPRESSION]." He left it paused and aligned the remote with the edge of the coffee table like precision could fix a conversation.
 
 "Sorry, I was just—" The words caught. His mouth opened to say "drowning" but what came out was: "Working late."
 
@@ -26,7 +26,7 @@ Through the phone: dishwasher hum, news voices, ice against glass.
 
 The 'really' hung in the air like a door held open exactly three inches—enough to suggest entrance, not enough to actually enter.
 
-"Working late, as always. You know me."
+"Working late, as always. You know me." His thumb worried at the battery cover on the remote until it creaked.
 
 The lie came easier each time. On the muted TV, the subtitles scrolled: "[DRAMATIC PAUSE]" then "[SIGHS HEAVILY]."
 
@@ -139,7 +139,7 @@ The vase. Cobalt blue with a crack down one side that his grandmother said made 
 
 Of course she did. Two-day shipping for a memorial.
 
-The call ended at 7:36 PM.
+The call ended at 7:35 PM.
 
 He unmuted Netflix. The episode resumed, but the subtitles had glitched—different characters now, almost familiar. One word appeared repeatedly: "Teshuvah." His thumb hovered over Google, then withdrew.
 
@@ -147,7 +147,7 @@ One browser tab was still open to High Holiday services in Brooklyn, buried unde
 
 From somewhere in the building, that music again. Words this time: "Shema Yisrael."
 
-His phone buzzed. A text from his mother: "Forgot to mention—Grandma's apartment was 6E."
+His phone buzzed. A text from his mother: "Forgot to mention—Grandma's apartment was 613."
 
 He stood and walked to his window. Brooklyn spread out below, lights beginning to pierce the darkness. Tomorrow was Friday. Then Saturday, the yahrzeit.
 
@@ -168,4 +168,4 @@ Ethan sat in his dark apartment, the only light from screens, the smell of sulfu
 In the attic in Westchester, in a box marked "Mom's Things," a blue vase with a crack down its side waited with her Hebrew books and photographs.
 
 The music through the wall whispered those words again—"Shema Yisrael."
-Tomorrow was the yahrzeit.
+Saturday was the yahrzeit.

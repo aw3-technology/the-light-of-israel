@@ -2,7 +2,7 @@
 
 "After what you've seen," the rabbi said, "you need to understand where evil comes from."
 
-December evening in Jerusalem. Ethan sat in Rabbi Levi's study, Negev dust still in his clothes, char smell in his hair. Three days since Be'eri. Three days since Nova. His hands wouldn't stop shaking.
+Jerusalem evening. Ethan sat in Rabbi Levi's study, Negev dust still in his clothes, char smell in his hair. Three days since Be'eri. Three days since Nova. His hands wouldn't stop shaking.
 
 The radiator ticked. Same study, same lamp, everything wrong-angled.
 
@@ -30,7 +30,7 @@ He pulled a volume from the shelf—cracked binding, brown pages.
 
 The rabbi drew circles connected by lines on paper. The Tree of Life. Then another beside it—mirror image but wrong, like reflection in dark water.
 
-"The Sitra Achra. The Other Side. Not opposite of holiness, but its concealment."
+"The Sitra Achra. The Other Side. Not the opposite of holiness, but its concealment."
 
 The lamp flickered once.
 
@@ -42,7 +42,7 @@ The lamp flickered once.
 
 Ethan stared at the Hebrew text. The letters swam. "This is just—philosophy. Theory. Those people are still dead."
 
-"Yes. They are." The rabbi's voice was quiet. "Philosophy doesn't bring them back. But maybe it keeps us from joining them. In despair, I mean."
+"Yes. They are." The rabbi's voice was quiet. "Philosophy doesn't bring them back. But maybe it keeps us from joining them—in despair, I mean."
 
 The door opened—Sera with her own key. She looked between them, understood.
 

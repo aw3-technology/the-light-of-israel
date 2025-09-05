@@ -1,6 +1,6 @@
 # Chapter 21: Athens — Beauty Without Covenant
 
-The Parthenon stood precise against the November sky, and Ethan understood why Jews had once chosen beauty over truth.
+The Parthenon stood precise against the November sky, and Ethan understood why some Jews had once chosen beauty over truth.
 
 The thought came unbidden as he climbed marble steps worn smooth by twenty-five centuries of pilgrims, tourists, conquerors. His legs shook—not from exertion but from accumulated weight. Jerusalem to Athens, via tomorrow's destinations of Rome and Berlin. From Ben Gurion to Athens International, three and a half hours that spanned two thousand years of exile.
 
@@ -12,7 +12,7 @@ The taxi driver had been Ethiopian. "First time in Athens?"
 
 "You coming from Israel." Not a question. "I can tell. Jews from Israel carry Jerusalem in their shoulders."
 
-Now, standing before the Parthenon's columned perfection, Ethan felt those shoulders—weighted with three weeks in the Old City, marked by tefillin straps he'd learned to wrap. The Jerusalem in his shoulders met the Athens in his eyes, and the collision felt like history itself.
+Now, standing before the Parthenon's columned perfection, Ethan felt those shoulders—weighted by three weeks in the Old City, marked by tefillin straps he'd learned to wrap. The Jerusalem in his shoulders met the Athens in his eyes, and the collision felt like history itself.
 
 "You're early."
 
@@ -26,7 +26,7 @@ Yannis led him along ancient stones, pointing toward the modern city below. "Twe
 
 "The ones who didn't, we called them Maccabees. They won militarily. But look—" He gestured at the Parthenon, still standing. "Greek is the language of the New Testament. The Talmud is full of Greek loan words."
 
-"'The particular is less knowable than the universal,'" Yannis said. "Beautiful idea. Completely wrong. October 7th was particular—specific people killing specific people. But the world wants it universal—'cycle of violence,' abstract nonsense that avoids seeing particular Jews particularly dying."
+"'The particular is less knowable than the universal,'" Yannis said. "Beautiful idea. Completely wrong. October 7th was particular—specific people killing specific people. But the world wants it universal—'cycle of violence,' abstractions that avoid seeing particular Jews particularly dying."
 
 "Come. Let me show you where we've been hiding since their Temple stopped being fashionable."
 
@@ -88,9 +88,9 @@ They ate in practiced tense silence. Ethan's phone: Sera's sunset from the Mount
 
 "Yes."
 
-Without asking, Ethan stood and retrieved the candlesticks from his bag. He set them on the table deliberately, centering them between the wine and bread. Anna stared like they were unwanted evidence.
+Without asking, Ethan stood and retrieved the candlesticks from his bag. He set them on the table deliberately, centering them between wine and bread. Anna stared like they were unwanted evidence.
 
-"My grandmother lit these every Friday for seventy years. Never missed once." He struck a match. "I stood in her Auschwitz barracks two days ago. The wood still smells like fear. She lit candles not despite what happened but because of it."
+"My grandmother lit candles every Friday for seventy years. Never missed once." He struck a match. "She lit them not despite what happened but because of it."
 
 The flames caught, small but insistent. "If she didn't, the light goes out."
 
@@ -106,7 +106,7 @@ Later, Yannis walked him to his hotel. "Anna challenges because she's afraid. Of
 
 At the entrance, Yannis paused. "Greeks gave the world philosophy. We gave prophecy. I chose philosophy forty years. Then October 7th and philosophy had nothing to say about Jews burning. So now I choose prophecy. Not because it's true—who knows? But because it's mine."
 
-In his room, Ethan set candlesticks on the desk. Friday night. He lit them without the blessing—still didn't know it by heart. His mouth shaped the words he didn't yet know, body remembering what mind hadn't learned.
+In his room, Ethan set candlesticks on the desk. Friday night. He lit them without the blessing—still didn't know it by heart. His mouth shaped words he didn't yet know, body remembering what mind hadn't learned.
 
 The flames reflected against Athens night where the Parthenon glowed, beautiful and empty.
 

@@ -26,41 +26,41 @@ Near them, white kids from Columbia chanted "From the River to the Sea." The Pal
 
 That's when he saw Aaron.
 
-His best friend since freshman year at NYU, his roommate through law school applications, through breakups, through his grandmother's death when Aaron had sat shiva with him despite Ethan not knowing that's what they were doing. Aaron who'd become a civil rights lawyer, who defended immigrants, who quoted James Baldwin and Abraham Joshua Heschel with equal reverence.
+His best friend since NYU—roommate through applications and breakups, the one who'd sat shiva with him even when Ethan didn’t know the word for it. Now a civil rights lawyer who defended immigrants, who quoted Baldwin and Heschel with equal reverence.
 
 Aaron wearing a keffiyeh.
 
-The same Aaron who'd gone with him to that first protest—Occupy Wall Street, 2011, both of them twenty-two and certain they could change everything. "We're on the right side of history," Aaron had said then, arm around Ethan's shoulder, both of them drunk on possibility. They'd gotten arrested together that night, called Ethan's grandmother from jail because Aaron's parents would have killed him. She'd brought them soup the next day.
+The same Aaron who'd gone with him to Occupy Wall Street in 2011—both twenty-two, certain they could change everything. Arrested together. Calling Ethan's grandmother from the precinct. She brought soup the next day.
 
 "From the River to the Sea, Palestine Will Be Free."
 
-The chant rose as their eyes met—eighteen years of friendship compressed into three seconds of recognition, evaluation, loss.
+The chant rose as their eyes met—nearly twenty years of friendship compressed into three seconds of recognition, evaluation, loss.
 
-"Ethan! Thank God. I've been texting you for days."
+"Ethan! I've been texting you for days."
 
-The embrace automatic, muscle memory from eighteen years of friendship, though the keffiyeh against his cheek felt like betrayal, like costume—Aaron playing at revolution with other people's symbols, other people's struggle, pain he'd adopted because it fit his narrative of justice, of righteousness, of being on the right side of history.
+The embrace automatic. The keffiyeh against his cheek felt like costume anyway.
 
-"This is incredible, right?" Aaron's voice carried forced enthusiasm.
+"This is… a lot," Aaron said, voice too bright.
 
 "Aaron—"
 
-"We're witnessing genocide, Ethan. The whole world is finally waking up."
+"We're witnessing genocide, Ethan. The world is finally waking up."
 
-A woman near them, hijabi, Palestinian flag draped over her shoulders, glanced at Aaron with something like exhaustion. "Please," she said quietly, "this isn't about waking up. My family has been awake for seventy years."
+A woman nearby, hijabi, Palestinian flag draped over her shoulders, glanced at Aaron with something like exhaustion. "Please," she said quietly, "this isn't about waking up. My family has been awake for seventy years."
 
 Aaron flushed, adjusted his keffiyeh.
 
 "It's complex—"
 
-Aaron's voice went raw. "They're murdering children, Ethan."
+"They're murdering children."
 
-"I know. I saw the videos from Gaza. I also saw—" Ethan's voice cracked. "The babies from the kibbutz."
+"I know. Gaza. And—" Ethan's voice cracked. "The kibbutz babies."
 
 "That's different—"
 
-"How? Tell me how dead children are different."
+"How?" 
 
-The Palestinian woman from earlier moved closer, her daughter now on her hip. "Please," she said to both of them. "My cousin was at that music festival. She was a peace activist. She taught Arabic to Israeli children." Her voice broke. "Hamas killed her too. But her death doesn't justify—" She gestured helplessly at her daughter. "This one asks for her aunt every day."
+The Palestinian woman from earlier moved closer, her daughter on her hip. "Please," she said to both of them. "My cousin was at that music festival. A peace activist." Her voice broke. "Hamas killed her too. But her death doesn't justify—" She gestured at her daughter. "This one asks for her aunt every day."
 
 Aaron's face went white. The woman walked away before either of them could respond.
 
@@ -76,7 +76,7 @@ Aaron's face went white. The woman walked away before either of them could respo
 
 "Or when the other means ignoring massacres."
 
-They stood there, eighteen years of friendship fracturing in real time. Behind Aaron, the CNN ticker showed the death toll climbing on both sides.
+They stood there, nearly twenty years of friendship fracturing in real time. Behind Aaron, the CNN ticker showed the death toll climbing on both sides.
 
 "You've gone full Zionist," Aaron said, but it sounded more like a question.
 
@@ -126,13 +126,13 @@ Rachel's voice, her hand on his arm, pulling him away from the chaos. But this t
 
 "No," he said. "I'm not running."
 
-He looked across the divide at Aaron, still wrapped in his keffiyeh, still certain. Then at Rachel, exhausted and torn. Then at the Palestinian mother, walking away with her daughter.
+He looked across the divide at Aaron in his keffiyeh. Then at Rachel. Then at the Palestinian mother, walking away with her daughter.
 
-"Your people need you," Rachel said, but her voice was uncertain.
+"Your people need you," Rachel said, uncertain.
 
 "Which people?" 
 
-Rachel looked exhausted. "My brother's in the IDF. My cousin works for B'Tselem. Family dinners are impossible. We're all Jews. We all want to survive. We just can't agree what that means."
+Rachel looked exhausted. "My brother's in the IDF. My cousin works for B'Tselem. Family dinners are impossible. We all want to survive. We just can't agree what that means."
 
 She paused. "The ones asking the same question—those are your people."
 
@@ -140,9 +140,9 @@ She left him there, returning to her sign, her vigil, her stubborn insistence on
 
 Ethan walked away, the protests still audible behind him. By the reservoir, a Jewish father taught his son to skip stones while wearing a "Ceasefire Now" button. Life continuing.
 
-Something was crystallizing. Maybe it had started with seeing Aaron in the keffiyeh. Maybe with the Palestinian mother's story. Maybe just from standing between two crowds and refusing to choose a corner.
+Something was crystallizing—from Aaron in a keffiyeh, from the mother's story, from standing between corners and refusing both.
 
-He might book a flight to Tel Aviv. Or he might not. But he wouldn't decide from here, from this distance, from this American safety.
+He might book a flight to Tel Aviv. Or not. But not from here, not from American distance.
 
 His phone buzzed with texts:
 
@@ -160,15 +160,15 @@ His grandmother would have understood this—crowds turning against complexity. 
 
 Walking home across the bridge at sunset, Brooklyn ahead. But different now. The decision already made.
 
-That night, Ethan opened his laptop to book the flight. El Al had seats available. Of course they did.
+That night, Ethan opened his laptop to book the flight. El Al had seats.
 
 His phone lit with a message from Aaron:
 
-"I keep thinking about that woman. Her cousin. Remember when we went to that Darfur protest junior year? You said 'bearing witness isn't enough but sometimes it's all we have.' I thought that was bullshit then. Now... My grandfather used to say 'In the camps, we learned that sometimes survival itself is resistance.' I don't know what to do with that."
+"I keep thinking about that woman. Her cousin. Remember the Darfur protest junior year? You said 'bearing witness isn't enough but sometimes it's all we have.' I thought that was bullshit. Now… My grandfather used to say 'Sometimes survival itself is resistance.' I don't know what to do with that."
 
 Then:
 
-"If you go to Israel, tell me what you see. Not what you're supposed to see. What you actually see." 
+"If you go, tell me what you see. Not what you're supposed to see. What you actually see."
 
 Ethan typed back: "I already booked the flight."
 
@@ -192,9 +192,9 @@ The conversation ended there. Everything that mattered between them suspended in
 
 Ethan confirmed his flight. November 4th. Tel Aviv.
 
-Outside, sirens wailed through Brooklyn. The protests would continue tomorrow. The crowds would gather. The chants would rise.
+Outside, sirens wailed through Brooklyn. Tomorrow: more crowds, more chants.
 
-But Ethan would be gone, flying toward the thing itself rather than its representations, toward the place where his middle name meant something beyond metaphor.
+Ethan would be gone—toward the thing itself, not its representations, toward where his middle name meant more than metaphor.
 
 The space between crowds was shrinking.
 

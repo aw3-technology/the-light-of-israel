@@ -72,9 +72,9 @@ Ethan hesitated. This felt like performance, like trying too hard. But the oil o
 
 "I am Ethan Israel Stone. Son of David who forgot, grandson of Rivka who—" His voice cracked. "I don't know if I believe this. I don't know if she's watching or if you really knew her or if I'm just desperate enough to see patterns where there aren't any."
 
-The name echoed off ancient stones. Echo or harmony—he couldn't tell the difference anymore.
+The name echoed off ancient stones. Echo or harmony—he couldn't tell the difference anymore. He closed his eyes and listened for the small space before sound, the breath that made a word possible.
 
-They emerged into morning light. Church bells, muezzin calls, Hebrew prayers. Jerusalem holding all its children's voices.
+They emerged into morning light. Church bells, muezzin calls, Hebrew prayers. Jerusalem holding all its children's voices. They stood there a moment longer than needed, saying nothing, letting the light settle before they moved.
 
 In the Christian Quarter, a priest was locking a chapel door. He noticed Ethan's kippah, the oil catching light.
 

@@ -1,8 +1,8 @@
 # Chapter 17: Where the Desert Speaks
 
-The road to the Gaza border was different than a month ago.
+The road to the Gaza border was different from a month ago.
 
-Monday morning, November 15th, and Sera drove in silence through the Negev while Ethan watched Jerusalem recede in the side mirror, the city's limestone and light giving way to something older, rawer—desert that remembered everything, that held Abraham's footsteps and yesterday's blood with equal gravity. The car's air conditioning wheezed against heat that pressed through windows like a living thing. His water bottle was already half empty, plastic warm against his lips.
+Monday morning, November 20th, and Sera drove in silence through the Negev while Ethan watched Jerusalem recede in the side mirror, the city's limestone and light giving way to something older, rawer—desert that remembered everything, that held Abraham's footsteps and yesterday's blood with equal gravity. The car's air conditioning wheezed against heat that pressed through windows like a living thing. His water bottle was already half empty, plastic warm against his lips.
 
 "You need to see where it happened," Sera had said at dawn, finding him on the balcony where he'd been watching the sun rise over the Old City. "The news, the videos—they're not enough. You need to stand there."
 
@@ -28,11 +28,11 @@ The soldier looked at Ethan again, something shifting in his young face—not su
 
 He handed back the passport, said nothing more.
 
-They were waved through. The road continued south, emptier now, the traffic thinning to essential vehicles—military, medical, media, and the strange new category of pilgrim-witnesses like them, drawn to ground zero of a trauma still radiating outward.
+They were waved through. The road continued south, emptier now, the traffic thinning to essential vehicles—military, medical, media, and the strange new category of pilgrim‑witnesses like them, drawn to ground zero of a trauma still radiating outward.
 
 "My friend Noa was at Nova," Sera said suddenly. First words in twenty minutes. "Twenty-four. Taught yoga. She wanted to—" She stopped. "Doesn't matter now."
 
-The Nova festival site appeared first as an absence—an empty field that should have been empty but somehow wasn't, as if the ghost of gathering still haunted the space. Cars pulled over along the access road. People stood in small groups or alone, facing the field like it was a temple wall.
+The Nova festival site appeared first as an absence—an empty field that should have been empty but somehow wasn't, as if the ghost of gathering still haunted the space. Cars pulled over along the access road. People stood in small groups or alone, facing the field like it was a wall.
 
 Sera parked. The heat hit immediately, different from Jerusalem's dry embrace—this was desert heat that pulled moisture from your eyes, throat, soul. The field stretched before them, dotted with photographs on stakes driven into earth, flowers withered to paper. The smell hit him—melted plastic, burned fabric. Sage growing wild at the edges, incongruously alive.
 

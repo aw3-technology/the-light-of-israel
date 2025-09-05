@@ -2,7 +2,7 @@
 
 Learning Hebrew at thirty-three felt like rewiring his brain, but Ethan Israel Stone's soul already knew the words.
 
-July in Jerusalem, the heat different from Brooklyn summer—dry, ancient, pressing down like hands in blessing or burden depending on the day. Six weeks since his return from the journey through exile, six weeks of Sera's apartment becoming theirs, six weeks of tourist visa ticking toward expiration while he navigated the byzantine process of becoming Israeli, of transforming return into remaining.
+July in Jerusalem, the heat different from Brooklyn summer—dry, ancient, pressing down like hands in blessing or burden depending on the day. Seven months since his return from the journey through exile, seven months of Sera's apartment becoming theirs, seven months of tourist visa ticking toward expiration while he navigated the byzantine process of becoming Israeli, of transforming return into remaining.
 
 The Ulpan classroom at eight in the morning already stifling, windows open to catch breeze that never came, twenty-three new immigrants bent over Hebrew worksheets like prayer books, conjugating verbs that refused to follow patterns, wrestling with a language that read backward and thought in circles and somehow made more sense than English when it came to describing the soul.
 
@@ -50,7 +50,7 @@ The courtyard sounds faded—Russian arguments, French complaints, Arabic from t
 
 "When?" *Joy and terror in equal measure. A baby. My baby. Our baby. What if I'm not ready? What if we can't afford—*
 
-"Shavuot. When you returned. That first night." Her smile was tired but radiant. "The holiday of receiving. We received more than we knew."
+"Hanukkah. That first week you were back." Her smile was tired but radiant. "The holiday of light. We received more than we knew."
 
 His phone buzzed—his parents, their daily check-in since he'd told them about staying, their confusion and concern transmitted through carefully worded texts that avoided saying what they really thought: that he'd lost his mind, that he was throwing away his American life for a country they saw only through CNN's lens, through Palestinian protests at Columbia, through their own parents' stories of fleeing Europe, not understanding why anyone would flee toward instead of away.
 

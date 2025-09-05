@@ -8,7 +8,7 @@ Friday morning, November 17th, the rental car descending through landscapes that
 
 The Dead Sea appeared like mercury spilled across the landscape, too still to be water, more mirror than sea, reflecting sky so perfectly that heaven and earth became indistinguishable—the kind of unity mystics spent lifetimes seeking but which existed here naturally, chemically, the lowest point on earth somehow closest to heaven.
 
-"We're entering the earth's—" Sera stopped, shook her head. "Sounds too mystical when I say it out loud. But there's something about going this far down, you know?"
+"We're entering the earth's—" Sera stopped, shook her head. "Sounds too mystical out loud. But there's something about going this far down, you know?"
 
 Ein Bokek beach materialized—hotels and spas clustered around the impossible water, Russian immigrants laughing in the shallows, their bodies bobbing like corks. Thirty-four percent salinity, she'd explained, so dense that drowning was physically impossible, forcing you to float whether you trusted it or not.
 
@@ -30,7 +30,7 @@ The sensation was alien—his body horizontal without effort, the dense water su
 
 Tears came without warning—salt meeting salt. He tried to wipe them away but his hands were wet, slippery. *Crying in the Dead Sea,* he thought. *That's either poetic or pathetic.*
 
-"This is what letting go feels like," Sera's voice close now. "Though honestly, first time I came here, I panicked. Thought I was going to flip over and die somehow. Took my dad twenty minutes to convince me to try again."
+"This is what letting go feels like," Sera's voice close now. "Honestly, first time I came here, I panicked. Thought I was going to flip and die somehow. Took my dad twenty minutes to convince me to try again."
 
 Time dissolved. They floated while the sun moved across the sky in ways that didn't matter when you were suspended in water older than religion, older than names.
 
@@ -68,7 +68,7 @@ Sera held him—awkwardly at first, then with more certainty. "Hey," she said, "
 
 "We're still here," she whispered. "They're gone—Rome, the empire, all of it dust. But we're still here. That's the miracle. Not the dying but the continuing."
 
-They descended as the sun began its own descent, the light turning the desert gold then amber then something beyond color.
+They descended as the sun began its own descent, the light turning the desert gold, then amber, then something beyond color.
 
 "Qumran," she pointed to caves visible in the distance, where the Dead Sea Scrolls had waited two thousand years to be discovered. "Your grandmother's stories—truth preserved in caves."
 
@@ -102,7 +102,7 @@ They lit the candles as sirens announced Shabbat across the city—not emergency
 
 Outside, the muezzin's call wound through streets where Jewish families walked to synagogue, where Christian bells would ring tomorrow, where the stones held all prayers equally.
 
-They drank wine that tasted like the land—mineral, ancient, sweet with survival. They broke bread she'd baked that morning, when transformation had been just an idea but now was fact, was in their cells, was the salt still seasoning their skin.
+They drank wine that tasted like the land—mineral, ancient, sweet with survival. They broke bread she'd baked that morning, when transformation had been just an idea but now was fact, in their cells, the salt still seasoning their skin.
 
 His phone was off—the first Shabbat he'd ever properly observed, the first time he'd chosen to separate from the world's demands, to say that this time, this space, this woman across from him was sacred.
 

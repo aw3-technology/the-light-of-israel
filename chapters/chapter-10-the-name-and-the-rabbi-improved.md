@@ -92,7 +92,7 @@ Through the door, footsteps—another student waiting.
 
 Rabbi Levi's expression softened. "Your Hebrew name, especially. Made it sound like a prayer. Your grandmother connected to the divine through speaking your name."
 
-Outside, October had turned properly cold. The thirty-six steps down felt different—not descent but integration.
+Outside, October had turned properly cold. The stairs down felt different—not descent but integration.
 
 The N train came immediately. Nearly empty except for an elderly Black woman reading Hebrew, Koren edition with commentary.
 
@@ -122,6 +122,6 @@ Ethan selected his Thursday meetings, clicked decline.
 
 The sound of it like coming home to a place he'd never been.
 
-The radiator clanked its own rhythm. Somewhere uptown, a rabbi in a study where books fell at odd moments waited patiently for Thursday. For the rivers of Babylon to do their work. For Ethan Israel Stone to remember what he'd never really forgotten.
+The radiator clanked its own rhythm. Somewhere uptown, a rabbi in a study where books fell at odd moments waited patiently for Thursday. For the rivers of Babylon to do their work. For Ethan Israel Stone to remember what he'd never really forgotten—the breath before the word.
 
 Just hidden. Like light. Like his name. Like the way home.

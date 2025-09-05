@@ -77,6 +77,7 @@ The sun crested the Mount of Olives. Golden light on stone. Instagram perfect, i
 The minyan formed. Ten men, just enough. Some faces were new—tourists, visitors. Some were constants, like Ethan.
 
 Ethan wrapped tefillin. The leather straps left marks on his arm that lasted until noon. Sera said they looked like bondage marks. "They are," he'd told her. She hadn't laughed.
+His phone buzzed once. A message preview: "Layla's grandmother's house. We went. Complicated." From Aaron. He'd read it later.
 
 The prayers began—Shacharit, morning service, the same words said by Jews everywhere at this moment, distance briefly thinning, connecting Melbourne to Moscow to Manhattan to here, to this Wall, to this moment when Ethan Israel Stone davened with intention, with the sense that prayer wasn't request but recognition, wasn't asking but acknowledging, wasn't seeking but finding what was always there.
 
@@ -161,6 +162,7 @@ Ethan sat at the kitchen table, solid wood, built to last. The first piece of fu
 "The first one."
 
 "Aleph," Ethan said, and began to draw it on the paper. His son's hand over his, learning the shape. "It makes no sound by itself."
+"Hineni," he whispered, almost to himself. Here I am.
 
 "Why?"
 
@@ -171,6 +173,7 @@ Ari traced the letter, tongue out in concentration.
 Through the window, Jerusalem. Still there. Still impossible.
 
 His grandmother's candlesticks sat on the shelf—polished now, used every Friday. Beside them, new ones. Smaller. For the twins when they were older. If there was an older.
+Tonight they'd light together—his parents, Sera, the boys—no speeches, just small flames and a table that held all their versions of home.
 
 There would be. Had to be.
 
@@ -191,3 +194,5 @@ They continued through the morning—father teaching son the ancient letters. Ou
 Aleph. Bet. Gimmel.
 
 *Beginning,* Ethan thought. *Or maybe just continuing.*
+
+You didn't need Hebrew to teach patience to a child, or holiness to a room. The breath before the word was its own kind of prayer.

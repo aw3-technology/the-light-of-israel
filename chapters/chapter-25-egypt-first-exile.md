@@ -1,6 +1,6 @@
 # Chapter 25: Egypt — First Exile
 
-The Nile hadn't changed since Moses, but Ethan Israel Stone had.
+The Nile flowed as ever; Ethan Israel Stone had not.
 
 Thursday morning, December 7th. Ethan stood on his Cairo hotel balcony watching the sun rise over the Nile. Below, car horns and call to prayer, the smell of diesel and breakfast rising with the heat.
 
@@ -97,15 +97,15 @@ His phone buzzed: sunset in two hours. First night of Hanukkah.
 
 He'd brought his grandmother's travel candlesticks. Mohamed drove him to a beach resort on the Red Sea—not the biblical crossing point, but water that connected to that water, to that moment.
 
-On the beach, Ethan set up the candlesticks. The Red Sea stretched before him—not the actual crossing point, probably, but water that connected to that water.
+On the beach, Ethan set up the candlesticks. The Red Sea stretched before him—maybe not the crossing point, but water that touched that water.
 
-*This is ridiculous,* he thought, lighting the first candle. *I'm performing Judaism for an audience of one Egyptian taxi driver and some confused tourists.*
+*This is ridiculous,* he thought, lighting the first candle. *Performing Judaism for one Egyptian taxi driver and a few confused tourists.*
 
 But the blessing came anyway: "Baruch atah Adonai..."
 
 *Eight nights of lights because oil lasted longer than it should have. Like Jews themselves.*
 
-Mohamed had followed, stood watching. "What you doing?"
+Mohamed had followed, stood watching. "What are you doing?"
 
 "Hanukkah. We were conquered, our Temple destroyed, but we fought back. Light survived."
 
@@ -115,7 +115,7 @@ A pause. "But now everything is different."
 
 "Everything's always different," Ethan said. "We learned to survive the differences. Here, in Egypt."
 
-They stood watching candles fight the wind. Then Ethan walked to the water's edge, pulled out the vial of Polish earth.
+They stood watching candles fight the wind. Then Ethan walked to the water's edge and pulled out the vial of Polish earth.
 
 *What am I doing?* The absurdity hit him. *Scattering Holocaust victims in the Red Sea like some mystical tourist.*
 

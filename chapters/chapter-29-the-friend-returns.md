@@ -126,13 +126,13 @@ The waiter brought more coffee, slammed it down. At the next table, someone read
 
 "She said I had to love myself to love her."
 
-"How progressive."
+Aaron rubbed the bridge of his nose. "For the record, that's how she put it."
 
 "Stop."
 
 "Stop what? Being angry? You disappeared because I went to synagogue."
 
-"You disappeared to Jerusalem. You're raising Jewish kids in a—" Aaron stopped.
+"You disappeared to Jerusalem. You're raising Jewish kids in a—" Aaron stopped. "I don't want to fight like that." His voice flattened into courtroom calm. "But—"
 
 "Say it."
 
@@ -140,13 +140,13 @@ The waiter brought more coffee, slammed it down. At the next table, someone read
 
 The word sat there. *Is that what this looks like to him? To her?*
 
-"Is that what she calls it?"
+"Is that what she calls it?" Ethan kept his tone level.
 
 "She won't say Israel. Calls it '48.'"
 
 "And you? What do you call it?"
 
-Aaron rubbed his temples. "Depends who I'm talking to. Everything about this is fucking exhausting."
+Aaron rubbed his temples. "Depends who I'm talking to. Everything about this is—" he exhaled—"exhausting."
 
 The café filled with lunch crowd. Tech workers, immigrants, expats. Three generations argued in Hebrew at one table. A Palestinian family ate in silence at another.
 

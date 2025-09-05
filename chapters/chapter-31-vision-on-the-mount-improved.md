@@ -106,4 +106,6 @@ Somewhere on the Temple Mount, Ahmad was finishing his shift, thinking about his
 
 Ethan touched where his head had hit stone. The bump was real. The vision felt real too, though he couldn't say how.
 
+He sat on the stairwell for a minute before going in—cool air, old dust, a custodian's broom somewhere below. He breathed until his hands steadied.
+
 The not-knowing felt more honest than knowing would have been.

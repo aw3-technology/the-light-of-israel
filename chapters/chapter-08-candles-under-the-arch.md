@@ -51,7 +51,7 @@ The rabbi wore jeans under his tallit, Adidas sneakers that had seen better days
 
 "We are here because—" The mic squealed. He adjusted it, tried again. "We are here because we don't know where else to be. Some of you believe in God. Some don't. Some did yesterday but don't today. That's okay. Tonight we're not here for God. We're here for each other."
 
-The counter-protesters had been there all along, Ethan realized—he just hadn't noticed them until their drum started. A djembe, played with professional skill. Their signs were LED-lit, battery-powered, impossible to ignore: "RESISTANCE IS NOT TERRORISM." "FROM THE RIVER TO THE SEA." One girl who couldn't be older than nineteen held a poster with photos of dead Palestinian children.
+The counter-protesters had been there all along, Ethan realized—he just hadn't noticed them until their drum started. He jumped at the first strike without meaning to. A djembe, played with professional skill. Their signs were LED-lit, battery-powered, impossible to ignore: "RESISTANCE IS NOT TERRORISM." "FROM THE RIVER TO THE SEA." One girl who couldn't be older than nineteen held a poster with photos of dead Palestinian children.
 
 Half the Jewish crowd turned to look. The other half deliberately didn't. A young woman in a Hebrew University sweatshirt shouted: "Today? Really? TODAY?"
 

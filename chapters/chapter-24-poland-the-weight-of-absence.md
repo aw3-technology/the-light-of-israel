@@ -128,12 +128,8 @@ On the plane to Tel Aviv—the next stop in his journey through Jewish geography
 
 He texted Sera: "I found them. I found the absence of them."
 
-She responded with just a heart emoji. 
+She responded with just a heart emoji.
 
 He understood. Some things have no words. Some absences are so complete they become their own presence. Some birds sing at Auschwitz because they don't know not to, and that ignorance is either the world's cruelty or its grace, and after walking through the geography of erasure, Ethan could no longer tell the difference.
 
-Through the airplane window, Poland disappeared. In his lap, the earth of Brzeziny weighed exactly as much as two thousand names, as the arithmetic of accident that determined who sang Kaddish and who became Kaddish.
-
-The birds at Auschwitz sang because that's what birds do. The water in the mikvah persisted. Stanisław remained. Memory resisted. Forgetting was death. And sometimes an American Jew stands in a Polish forest saying Aramaic words over unmarked graves, and for one moment the absence becomes presence, two thousand voices whisper: we were here, we mattered, we are remembered.
-
-Through the airplane window, Poland disappeared. In his lap, the earth of Brzeziny weighed exactly as much as memory, as the accident that made him witness instead of victim.
+Through the airplane window, Poland disappeared. In his lap, the earth of Brzeziny weighed exactly as much as memory, as the accident that made him witness instead of victim. The birds at Auschwitz sang because that's what birds do. The water in the mikvah persisted. Stanisław remained. Memory resisted. Forgetting was death. And sometimes an American Jew stands in a Polish forest saying Aramaic words over unmarked graves, and for one moment the absence becomes presence, two thousand voices whisper: we were here, we mattered, we are remembered.

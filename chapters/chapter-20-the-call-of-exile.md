@@ -140,7 +140,7 @@ She pressed an envelope into his hand, sealed, addressed. "Athens. If I don't—
 
 "Promise."
 
-Outside, the scream of an F-16. They both knew what that meant. The war was already starting.
+Outside, the scream of an F-16. They both knew what that meant. The war was already everywhere.
 
 Ben Gurion Airport, 4 AM. Sera drove in uniform, her rifle in the back seat. Three checkpoints between Jerusalem and the airport—double the usual. At the second, a soldier recognized her unit insignia, saluted.
 

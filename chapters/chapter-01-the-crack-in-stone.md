@@ -34,11 +34,11 @@ The commute: subway car packed with morning commuters scrolling through another 
 
 At Union Square, a homeless man pointed directly at Ethan through the window. "Israel!" he shouted as the train pulled away. "Wake up!"
 
-Ali's corner bodega. "Seven twenty," said the elderly Yemeni owner. Ethan handed over exact change. "Have blessed day, brother," the owner said. Ethan nodded without hearing the blessing.
+Ali's corner bodega. "Seven eighteen," said the elderly Yemeni owner. Ethan handed over exact change. "Have blessed day, brother," the owner said. Ethan nodded without hearing the blessing.
 
 His work badge read "Ethan Stone, Senior Product Manager." No middle name. He'd stopped using "Israel" in college, when the full name felt like carrying a flag for a country he'd never visited. Now just Ethan Stone—clean, professional, uncomplicated.
 
-The office: twentieth floor, glass and steel overlooking other glass buildings full of other people optimizing other metrics. At the 9:30 standup he heard himself say, "Drop-off at value realization; ship the onboarding tweak, measure lift, iterate." Some part of his mind observed that he was speaking a language that had replaced actual human communication. His phone lit with his mother's text: "Your grandmother would be disappointed."
+The office: eighteenth floor, glass and steel overlooking other glass buildings full of other people optimizing other metrics. At the 9:30 standup he heard himself say, "Drop-off at value realization; ship the onboarding tweak, measure lift, iterate." Some part of his mind observed that he was speaking a language that had replaced actual human communication. His phone lit with his mother's text: "Your grandmother would be disappointed."
 
 Rivka Stone. Suddenly he could smell her kitchen—challah dough under his small fingers as she taught him to braid, chicken soup with too much dill, the waxy scent of Shabbat candles she'd light every Friday, whispering prayers in two languages. "Close your eyes, shayna punim," she'd say. "Feel the warmth on your face. That's God saying hello." She'd died last October 7th, and with her went the last thread connecting him to something older than his understanding.
 
@@ -46,15 +46,15 @@ For a moment, standing in his sterile office, Ethan felt something crack inside.
 
 By 6 PM, the office emptied. Ethan sat alone, laptop open to an empty compose window waiting like an unasked question. Outside, the sun set behind SoHo's glass canyon, casting shadows that made the city momentarily beautiful.
 
-The elevator descended like sinking through water, mirrors reflecting infinite identical tired men in identical expensive clothes.
+The elevator descended from eighteen like sinking through water, mirrors reflecting infinite identical tired men in identical expensive clothes.
 
-On the street, evening air carried food trucks and exhaust and the faintest hint of autumn. He passed 547 West Broadway, the numbers catching his eye before he dismissed the strange familiarity—maybe a gallery his grandmother had once insisted on seeing.
+On the street, evening air carried food trucks and exhaust and the faintest hint of autumn. He passed 541 West Broadway, the numbers catching his eye before he dismissed the strange familiarity—maybe a gallery his grandmother had once insisted on seeing.
 
 The subway home. Brooklyn approaching through scratched windows. Somewhere in his apartment, in a closet he rarely opened, was a box of his grandmother's things. He'd never looked through it.
 
 Maybe tonight.
 
-The train pulled into his station at 7:19 PM. He noticed the time and almost laughed at himself for looking for patterns.
+The train pulled into his station at 7:18 PM. He noticed the time and almost laughed at himself for looking for patterns.
 
 His phone buzzed as he reached street level. 7:19 PM. Unknown number:
 

@@ -2,7 +2,7 @@
 
 The Jewish Museum's void stretched three stories of empty space, and Ethan heard his grandmother's silence echo.
 
-April 2024, nearly Passover. Berlin spreading gray beneath a sky that couldn't decide between rain and snow. The void—architect Libeskind called it that, literally—rose through the museum like a throat that had screamed itself empty, concrete walls at angles that hurt to perceive.
+Early December 2023. Berlin spreading gray beneath a sky that couldn't decide between rain and snow. The void—architect Libeskind called it that, literally—rose through the museum like a throat that had screamed itself empty, concrete walls at angles that hurt to perceive.
 
 Ethan gripped the safety rail, knuckles white. Below: nothing. Above: nothing. The space where Jewish Berlin had been deleted.
 
@@ -14,7 +14,7 @@ A guard—young, trained to watch for people who stood too long at edges.
 
 "Museum closes in one hour."
 
-An hour to understand the incomprehensible. How Berlin could be both Beethoven and Buchenwald. The Wannsee Conference where fifteen men had lunched—soup, chicken, potatoes, wine.
+An hour to not understand the incomprehensible. How Berlin could be both Beethoven and Buchenwald. The Wannsee Conference where fifteen men had lunched—soup, chicken, potatoes, wine.
 
 Outside, Thursday afternoon Berlin: cyclists, outdoor cafés despite the cold, construction cranes building futures on ground that would never be clean. Platform 17 at Grunewald station. The S-Bahn carried commuters now, same trains that had carried Jews to collection points.
 
@@ -56,7 +56,7 @@ Her arm showed numbers, faded but visible.
 
 "October 7th." She stared at nothing. "You want to know if it's the same. It's not—well, maybe. No. It's the rhyme. History doesn't repeat, it rhymes. Kill the Jews. Always the same poem, different verses."
 
-Outside, Berlin's December darkness. This apartment had been Aryanized, this street renamed. Hannah had survived on potatoes and the promise of return. 
+Outside, Berlin's December darkness. This apartment had been Aryanized, this street renamed. Hannah had survived on potatoes and the promise of return.
 
 "Sometimes I dream I'm still in that—" She stopped. "No, that's not—I dream normal things. Missing the U-Bahn. But I wake up thinking I smell—his cigarettes, her cabbage soup. The couple who—" She rubbed her wrists. "I still eat too fast. Hide food. Yogurt behind books. Last week I found a sandwich in my coat from—when? 1987? Petrified." She laughed. "Like me."
 
@@ -90,7 +90,7 @@ Two women entered speaking Hebrew, kissed David on both cheeks. He brightened, d
 
 After they left, David stared at his empty cup. "My parents keep asking when I'm coming home. But what's home? Tel Aviv where I check for rockets, or Berlin where I check for—other things?"
 
-That afternoon: Wannsee. The villa where fifteen men had designed hell. The lake was beautiful—families sailing where genocide had been engineered. Ethan's stomach cramped, sharp pain climbing his ribs. He vomited beside roses, bile and the morning's coffee.
+That afternoon: Wannsee. The villa where fifteen men had designed hell. The lake was beautiful—families sailing where genocide had been engineered. Cold air carried damp leaves and diesel from a service truck. Ethan's stomach cramped, sharp pain climbing his ribs. He vomited beside roses—bile, coffee, metal on his tongue.
 
 A guard offered water. "Are you ill?"
 
@@ -106,7 +106,7 @@ Family names from the databases:
 - Ruchel Steinberg, Auschwitz, 1942
 - Her children: Sarah (6), David (4), Miriam (18 months)
 
-Morning. Platform 17 before dawn. He placed twenty-three stones, one for each murdered family member. His hands trembled—cold or something else. The tremor had started in Berlin, grown worse each day.
+Morning. Platform 17 before dawn. He placed twenty-three stones, one for each murdered family member. His hands trembled—cold or something else. The tremor had started in Berlin, growing worse each day.
 
 *What am I doing?* The stones felt meaningless, a tourist's ritual. Hannah lived with this every day. David ran from it. And Ethan? Ethan collected names like souvenirs of suffering.
 
@@ -126,4 +126,4 @@ Ethan stood frozen, phone in one hand, stones in the other. Behind him: Berlin w
 
 But the names in his notebook wouldn't let him. Twenty-three stones, twenty-three people who'd stood on this platform with suitcases and hope.
 
-His legs carried him toward the train. Not from courage. From the simple inability to stop.
+His legs carried him toward the train. Not from courage. From the simple inability to stop. That night he slept in snatches, Berlin air seeping through the window seals, dreams thin and sharp as wire.

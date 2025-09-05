@@ -2,7 +2,7 @@
 
 Ethan had been swiping for forty-five minutes and couldn’t recall a single face.
 
-Left, left, left, right, left—Brooklyn dusk bleeding orange through his window while profiles blurred past. Yoga poses at sunset, founders at Machu Picchu, declarations of loving both adventure and lazy Sundays. Sarah had called him "emotionally absent" eight months ago. She was right; knowing hadn't made him any more present.
+Left, left, left, right, left—Brooklyn dusk bleeding orange through his window while profiles blurred past. Yoga poses at sunset, founders on summits, the same declarations about adventures and lazy Sundays. Sarah had called him "emotionally absent" eight months ago. She was right; knowing hadn't made him any more present.
 
 Rachel Klein would be his thirty-seventh first date since Sarah. Her message had cut through the noise: "Your bio says you optimize user journeys. Can you optimize this awkward opening message?" Direct. Funny enough. Wednesday evening date—low stakes, easy exit.
 
@@ -26,6 +26,7 @@ The ride took its usual span—long enough to skim Rachel's profile, short enoug
 Three couples exited as he arrived. Perfect timing.
 
 Rachel sat in the second booth, exactly like her photos—proof and letdown at once. Highlights catching restaurant light, studied effortlessness. A small scar above her left eyebrow that her fingers kept finding.
+From the kitchen: citrus zest releasing under a cook's knife, a thread of garlic, steam carrying orange peel and char.
 
 Brief embrace. Bergamot and something sharper—ginger root, maybe. The scent of someone who shopped at Whole Foods and read articles about adaptogens.
 
@@ -35,17 +36,17 @@ Brief embrace. Bergamot and something sharper—ginger root, maybe. The scent of
 
 Rachel ordered orange wine before he'd opened the menu. "Trust me," she said, fingers grazing his wrist. "It's having a moment."
 
-"So tell me about optimizing user journeys," she said, leaning forward. "Your profile made it sound almost interesting."
+"So tell me about optimizing user journeys," she said, leaning forward. "Your profile made it sound almost—" she searched—"interesting."
 
 "I figure out why people abandon their shopping carts."
 
-"Late capitalism's hero." Her laugh was surprisingly loud, unguarded. She covered her mouth, embarrassed. "Sorry, I snort when I actually laugh."
+"Late capitalism's hero." Her laugh was surprisingly loud, unguarded. She covered her mouth, embarrassed. "Sorry, I—" a small snort—"when I actually laugh."
 
 "Don't apologize. It's the first real thing I've heard all week."
 
 "Real is dangerous on first dates."
 
-The wine arrived—orange, cloudy, from the Golan Heights; Ethan clocked the label with a half-memory of a map his grandmother kept folded into a cookbook, then let the thought pass. They toasted Wednesday night in Brooklyn. The wine tasted like apricot and stone dust. Around them, plates clattered and a ripple of laughter moved through the room like seltzer; identical rituals played out at other tables.
+The wine arrived—orange, cloudy, from the Golan Heights; Ethan clocked the label with a half-memory of a map his grandmother kept folded into a cookbook, then let the thought pass. They toasted Wednesday night in Brooklyn. The wine tasted like apricot and stone dust, a faint bitterness like citrus pith. Around them, plates clattered and a ripple of laughter moved through the room like seltzer; identical rituals played out at other tables.
 
 "So, Ethan—biblical name."
 
@@ -75,7 +76,7 @@ The accuracy stung. "What about you?"
 
 "Same nothing?"
 
-"Exactly. Like we're all auditioning for roles but nobody knows what the play is."
+"Exactly. Like we're all auditioning for roles but nobody knows what the play is. Or even the lines."
 
 "Digital diaspora," he said without thinking.
 

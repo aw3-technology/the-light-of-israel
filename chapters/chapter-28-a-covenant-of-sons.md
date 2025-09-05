@@ -26,7 +26,7 @@ The monitor's beeping changed pitch. The midwife's eyes sharpened, hands moving 
 
 Ethan's world narrowed to the sound of that monitor, the controlled urgency in the midwife's voice calling for the doctor, Sera's grip crushing his fingers.
 
-The first twin emerged as dawn crept across Jerusalem's hills, purple-faced and silent for three eternal seconds before his cry drowned out the distant all-clear siren. The second came eighteen minutes later—stuck, the doctor's hands guiding, Sera screaming in a way that would echo in Ethan's dreams—as the sun fully claimed the sky.
+The first twin emerged as dawn crept across Jerusalem's hills, purple-faced and silent for three eternal seconds before his cry drowned out the distant all-clear siren. The second came about twenty minutes later—stuck, the doctor's hands guiding, Sera screaming in a way that would echo in Ethan's dreams—as the sun fully claimed the sky.
 
 "He's not breathing properly," someone said about the second twin. Suction, oxygen, hands working with practiced urgency while Ethan stood frozen, time stretching until finally, finally, a weak cry that strengthened into a wail.
 
