@@ -52,33 +52,33 @@ Floor-to-ceiling bookshelves rose like walls of compressed wisdom. The rabbi ges
 
 "No. October 7th woke something. You can't wake what isn't there. What was already there?"
 
-The radiator clanked. The books seemed to lean in.
+The radiator clanked. 
 
 "I don't know who I am."
 
-Ethan's voice cracked on the admission. Three years of therapy, he'd never said it that simply. I don't know who I am. The words hung in air thick with dust and possibility.
+Silence. Rabbi Levi let it stretch, let the words find their weight.
 
-"Good. Most people think they know, which prevents them from becoming. Not knowing is wisdom's beginning. Socrates said that—probably stole it from the Jews."
+"Good." The rabbi cleaned his glasses, considering. "Most people think they know. It prevents becoming."
 
 The rabbi pulled a taped-together volume from the shelf. "Your depression. And yes, I can see it. Keep taking medication if you're on it. Sometimes depression is the soul in exile from itself."
 
 "How do you—"
 
-"Know that look? Half my congregants are medicated. Including me. Sertraline, ten years. Sometimes what feels like depression is grief for a self we've never met."
+"Know that look? Half my congregants are medicated. Including me. Sertraline, ten years." He paused. "Sometimes depression is grief for a self we've never met."
 
 A book fell from a shelf—actually fell, pages fluttering open. The Zohar, landing spine-up between them.
 
 Ethan stared. "Books don't just—"
 
-"Fall? No, they don't." Rabbi Levi made no move to pick it up. "But this room has its own weather."
+"No." Rabbi Levi made no move to pick it up. "They don't."
 
-Or maybe the shelf was overpacked. Maybe someone had pulled adjacent volumes recently, disturbing the balance. Maybe the building's foundations shifted with October's temperature change. Ethan wanted a rational explanation almost as much as he feared one.
+The moment hung between them, unexplained.
 
 "You're making me nervous standing there like you might bolt."
 
 Ethan sat. The chair embraced him like it had been waiting.
 
-"Read this Thursday." The rabbi handed him a photocopied page. Psalm 137. By the rivers of Babylon. "Don't try to understand. Just let it speak."
+"Thursday." The rabbi handed him a photocopied page. Psalm 137. By the rivers of Babylon.
 
 Ethan glanced from the shelves to his phone. "It feels like a system."
 
@@ -108,11 +108,11 @@ His apartment looked the same but felt different. The candlesticks sat waiting o
 
 He set the psalm beside them, Hebrew letters mysterious but insistent.
 
-His phone buzzed. Aaron: "Dude, where are you? $5 wells until 9."
+His phone buzzed. Aaron: "Where are you? Missing trivia night."
 
-"Can't make it. Something came up."
+"Can't make it."
 
-"What could possibly come up on a Tuesday?"
+"Everything okay?"
 
 He looked at the psalm, the candlesticks, his reflection in the dark window—himself but different. More himself than three hours ago.
 
@@ -122,6 +122,6 @@ Ethan selected his Thursday meetings, clicked decline.
 
 The sound of it like coming home to a place he'd never been.
 
-The radiator clanked its own rhythm. Somewhere uptown, a rabbi in a study where books fell at odd moments waited patiently for Thursday. For the rivers of Babylon to do their work. For Ethan Israel Stone to remember what he'd never really forgotten—the breath before the word.
+The radiator clanked its own rhythm. Somewhere uptown, a rabbi in a study where books fell at odd moments waited for Thursday.
 
-Just hidden. Like light. Like his name. Like the way home.
+For Ethan Israel Stone to remember what he'd never really forgotten.

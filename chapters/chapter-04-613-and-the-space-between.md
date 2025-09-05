@@ -38,25 +38,15 @@ The lie came easier each time. On the muted TV, the subtitles scrolled: "[DRAMAT
 
 "We had nothing in common."
 
-Like the thirty-three years he'd been searching.
-
-"Speaking of dinner, Rosh Hashanah was last week. Rabbi Goldberg asked about you."
-
-"That's nice."
-
-"We barely had a minyan for Yom Kippur."
-
-She said 'minyan' like it rhymed with 'onion.'
-
-"I've been meaning to come visit."
-
-"Your sister came with the kids. Henry's reading already at four."
+"Your sister came with the kids for Rosh Hashanah. Henry's reading already—four years old."
 
 Rebecca, who'd married Brad, whose kids had stockings at Christmas and chocolate eggs at Easter.
 
 "That's great."
 
-"She asked about you."
+"Rabbi Goldberg asked about you. We barely had a minyan for Yom Kippur."
+
+She said 'minyan' like it rhymed with 'onion.'
 
 Static crackled on the line, the connection wavering.
 
@@ -107,11 +97,9 @@ Static surged on the line.
 
 "Maybe that's why they named me after it," Ethan said. "A problem that won't go away."
 
-"We named you after hope," his father said suddenly. Another throat clear. "Your grandmother... she said it meant you'd fight for what mattered. I never knew if we were right to burden you with that name."
+"Your grandmother chose it," his father said suddenly. Another throat clear. "The Israel part. She insisted."
 
-"How's that working out?"
-
-"You tell me."
+Silence. Then his father again: "Said something about wrestling. I never understood what she meant."
 
 Through the wall, the music stopped abruptly, mid-phrase. His apartment suddenly felt enormous and tiny simultaneously.
 
@@ -149,6 +137,14 @@ From somewhere in the building, that music again. Words this time: "Shema Yisrae
 
 His phone buzzed. A text from his mother: "Forgot to mention—Grandma's apartment was 613."
 
+He typed back without thinking: "613 commandments."
+
+The response came immediately: "How did you know that?"
+
+He stared at his own message. He hadn't known he knew it. The knowledge had surfaced from somewhere deep, unbidden. His fingers hovered over the keyboard, then typed: "Grandma must have told me."
+
+Three dots appeared, disappeared, appeared again. Finally: "She would be so happy you remembered."
+
 He stood and walked to his window. Brooklyn spread out below, lights beginning to pierce the darkness. Tomorrow was Friday. Then Saturday, the yahrzeit.
 
 The Thai food sat congealed on his coffee table, untouched after that first bite. Through the wall, the music started again, softer this time. His skin prickled, goosebumps rising along his forearms.
@@ -157,9 +153,13 @@ His mother had ordered a yahrzeit candle from Amazon. It would arrive too late.
 
 Ethan opened his kitchen drawer, found the emergency candles from last winter's blackout. He pulled one out, held it up to the light. Found matches in the same drawer.
 
-He struck a match. The flame caught, steady and warm. He held it over the candle's wick, watching wax begin to soften.
+He struck a match. The flame caught, steady and warm. He held it over the candle's wick, watching wax begin to soften. His hand trembled—not from cold but from something else, some ancestral memory of lighting making its way through his arm.
 
-Then blew it out.
+The wick caught. For three seconds, the flame stood tall.
+
+Then he blew it out.
+
+But the smell of melted wax lingered, and his hand remembered the motion of lighting. A small victory of muscle memory over conscious resistance.
 
 The Netflix subtitles still showed that strange word: "Teshuvah." The man on screen was walking somewhere.
 
@@ -168,4 +168,7 @@ Ethan sat in his dark apartment, the only light from screens, the smell of sulfu
 In the attic in Westchester, in a box marked "Mom's Things," a blue vase with a crack down its side waited with her Hebrew books and photographs.
 
 The music through the wall whispered those words again—"Shema Yisrael."
+
+Without thinking, Ethan's lips moved. Not quite forming the words, but trying their shape. His mouth remembering something his mind had forgotten.
+
 Saturday was the yahrzeit.

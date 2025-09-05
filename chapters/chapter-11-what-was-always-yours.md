@@ -1,10 +1,12 @@
 # Chapter 11: What Was Always Yours
 
-"What do you remember from your bar mitzvah?" Rabbi Levi had asked—not as a question but as a key, knowing exactly which lock it would open. The question cracked something open.
+"What do you remember from your bar mitzvah?" Rabbi Levi had asked.
+
+The question cracked something open.
 
 Tuesday evening, October 17th. Ethan's apartment floor covered in boxes from storage, his mother's handwriting fading on labels: "Ethan - High School," "Ethan - College," and buried deepest: "Ethan - Bar Mitzvah 2003."
 
-He'd come home intending to study the Hebrew Rabbi Levi had given him. Instead, here he was, archaeology of self. Outside: a protest march down Eastern Parkway—"Free Palestine" mixing with "Never Again."
+Outside: a protest march down Eastern Parkway—"Free Palestine" mixing with "Never Again."
 
 In his hands, a photo that stopped his breath—thirteen-year-old him drowning in a tallit, his grandmother gripping his shoulder like she could transfer tradition through touch.
 
@@ -24,19 +26,19 @@ Twenty years later, the irony cut deep.
 
 *"It's just a party."*
 
-*Her face—how had he missed the desperation? "Your great-grandfather's entire yeshiva, forty-three boys. None made bar mitzvah. You carry their portion too. Each one a branch on our family's tree, cut down before flowering. You are not just Ethan—you are the fruit of a tree that nearly died, the light from candles that were almost extinguished forever."*
+*Her face—how had he missed the desperation? "Your great-grandfather's entire yeshiva, forty-three boys. None made bar mitzvah. You carry their portion too."*
 
 *"That's not fair."*
 
 *"No, bubbeleh. It's not."*
 
-He'd rolled his eyes. Actually rolled his eyes at a Holocaust survivor. The memory of that eye-roll would later wake him at 3 AM, years later, the shame of it lodged between his ribs like shrapnel he'd carry forever.
+He'd rolled his eyes. Actually rolled his eyes at a Holocaust survivor.
 
 —
 
-Another photo: him at the bimah, mouth open, stumbling through Hebrew he'd memorized phonetically. Sound without meaning. Behind him, the synagogue's menorah caught the light—seven branches reaching upward, each flame a letter in an alphabet he'd refused to learn, a tree of light he'd turned his back on.
+Another photo: him at the bimah, mouth open, stumbling through Hebrew he'd memorized phonetically. Sound without meaning.
 
-In the front row—his grandmother crying. Not joy. Recognition. She knew he was already drifting, knew the Tree of Life his ancestors had climbed was becoming mere decoration to him, its branches no longer bearing the fruit of understanding.
+In the front row—his grandmother crying. Not joy. Recognition. She knew he was already drifting.
 
 His phone rang. His mother.
 
@@ -62,9 +64,9 @@ In the background, his father: "Let him be, Miriam."
 
 "I found her father's prayer book," Ethan said.
 
-Brown leather soft as skin. Margins crowded with annotations—Yiddish, Hebrew, English. A conversation across languages. The pages formed their own Tree of Life, each annotation a branch, each margin note another pathway toward understanding, the whole book a map of ascent through the sefirot of memory and meaning.
+Brown leather soft as skin. Margins crowded with annotations—Yiddish, Hebrew, English. A conversation across languages.
 
-One note, pencil-faint: "For Ethan Israel when he is ready." Beside it, she'd drawn a tiny menorah, its seven branches spreading like roots and crown, connecting heaven and earth.
+One note, pencil-faint: "For Ethan Israel when he is ready."
 
 "She knew I'd come back?"
 
@@ -80,17 +82,15 @@ One note, pencil-faint: "For Ethan Israel when he is ready." Beside it, she'd dr
 
 *He'd shoved it under coats in the car. The prayer book marked him as different.*
 
-Now, Google Translate open, he tried to decipher her notes. One phrase recurring: "Dos pintele yid." The Jewish spark that couldn't be extinguished.
+Now, Google Translate open, he tried to decipher her notes. One phrase recurring: "Dos pintele yid." 
 
-She'd been tending that spark while he extinguished everything else—but a spark from the original light, the Or Ein Sof that filled the first vessels before they shattered, could never truly die. It waited in the depths, the pintele yid, the indestructible point where every Jewish soul touched the infinite Tree of Life.
+The Jewish spark that couldn't be extinguished. She'd been tending it while he tried to smother everything else.
 
 His phone buzzed. Rabbi Levi: "Your portion was Lech-lecha, wasn't it?"
 
 "How did you know?"
 
-Three dots appeared, disappeared, appeared again—as if the rabbi was choosing his words from some vast library of knowing.
-
-"It's always Lech-lecha for the ones who come back. Abraham's journey. Yours too." The message felt less like observation than prescription, as if Rabbi Levi had read his file in some celestial database, knew his path before he walked it.
+"It's always Lech-lecha for the ones who come back. Abraham's journey. Yours too."
 
 Outside: "Jews for Justice" on cardboard. "Never Forget" on another sign. The city holding all its contradictions at once.
 
@@ -120,11 +120,11 @@ He hadn't.
 
 Not for twenty years.
 
-Outside, the protesters passed. As Ethan moved to the window, he spotted a familiar figure across the street—Rachel Klein from their disastrous date, coming out of what looked like a grief counseling meeting in the synagogue's community center.
+Outside, the protesters passed. At his window, Ethan noticed someone familiar leaving the synagogue across the street—Rachel Klein from their disastrous date, exiting what looked like the community center.
 
-She saw him, froze, then crossed the street. At his door, she was embarrassed, explaining quickly: "My father died suddenly. Three weeks ago." She laughed bitterly. "The weird thing is, I keep wanting to say Kaddish, but I don't know the words. I googled it, but... it feels like cultural appropriation of my own culture. How fucked up is that?"
+Ten minutes later, his doorbell rang.
 
-She continued, tears starting: "I'm googling how to mourn like a Jew. My great-grandmother would be horrified. She'd probably say I deserve to sit shiva for my own Jewish soul."
+"I saw you in the window," Rachel said, embarrassed. "My father died. Three weeks ago." She laughed bitterly. "I keep wanting to say Kaddish, but I don't know the words. I googled it, but... it feels like cultural appropriation of my own culture. How fucked up is that?"
 
 Ethan found himself handing her his grandmother's prayer book, open to the Kaddish. "Here. The transliteration's on the left."
 
@@ -134,7 +134,7 @@ Rachel looked at him, really looked. "You're different. From our date. You were 
 
 She left with a photocopy of the Kaddish page, and Ethan realized she'd been right—he had been empty then. Now he was full of questions, which felt like the beginning of answers.
 
-Inside, Ethan traced his grandmother's handwriting with his finger, following Hebrew letters he was finally beginning to recognize. In the margins, she'd sketched the Tree of Life from Kabbalah, its ten spheres connected by twenty-two paths, one for each Hebrew letter, with a note: "Every prayer climbs these branches back to source." The prayer book open to a page she'd marked: the Shema.
+Inside, Ethan traced his grandmother's handwriting with his finger, following Hebrew letters he was finally beginning to recognize. The prayer book open to a page she'd marked: the Shema.
 
 "Shema Yisrael," he whispered, the words foreign on his tongue but somehow familiar in his bones.
 

@@ -74,6 +74,20 @@ They descended as the sun began its own descent, the light turning the desert go
 
 "Qumran," she pointed to caves visible in the distance, where the Dead Sea Scrolls had waited two thousand years to be discovered. "Your grandmother's stories—truth preserved in caves."
 
+"Wait," Ethan said suddenly. "Can we stop at Qumran? Just for a minute?"
+
+She looked at him, surprised. "Shabbat's in two hours."
+
+"I know. I just—I need to write something down. Before I forget."
+
+At the Qumran visitor center, closed but parking lot empty, Ethan pulled out his notebook—the one Rabbi Levi had given him. He wrote quickly, urgently:
+
+*The Dead Sea holds you when you can't hold yourself. Masada: They chose how to die so we could choose how to live. Salt preserves everything—grief, memory, possibility. We're still here.*
+
+"What are you writing?" Sera asked, curious.
+
+"Things I'm starting to understand. Things I don't want to lose."
+
 The drive back to Jerusalem as Friday afternoon became Friday evening, Shabbat approaching with its weekly insistence on marking time, on making holy what could be holy if you just stopped.
 
 Both of them covered in salt residue—the Dead Sea didn't let you go completely, left its mark on your skin like a passport stamp from the lowest place.
@@ -108,7 +122,13 @@ His phone buzzed on the counter before candlelight found its level. Samira: "My 
 
 They drank wine that tasted like the land—mineral, ancient, sweet with survival. They broke bread she'd baked that morning, when transformation had been just an idea but now was fact, in their cells, the salt still seasoning their skin.
 
-His phone was off—the first Shabbat he'd ever properly observed, the first time he'd chosen to separate from the world's demands, to say that this time, this space, this woman across from him was sacred.
+"Wait," Ethan said, reaching for his phone. "I want to turn it off properly. Not just silent—off."
+
+He held the power button, watched the screen go dark. The first Shabbat he'd ever properly observed, the first time he'd chosen to separate from the world's demands.
+
+"That was dramatic," Sera teased.
+
+"I wanted to feel it happen. The choosing."
 
 His soul was on—that was the only way to describe it, the sensation of being fully present, fully in his body that had floated and been held and was still floating.
 
@@ -124,8 +144,12 @@ His soul was on—that was the only way to describe it, the sensation of being f
 
 "Because if God started crying for the Jews, he'd never stop. So he stored them up, made them into something else. Something that holds you when you can't hold yourself."
 
-She raised her glass. The Jerusalem stone glowed gold in the candlelight.
+The Jerusalem stone glowed gold in the candlelight. Outside, the muezzin's final call faded into Shabbat silence. The whole city held its breath between one holiness and another.
 
-"L'chaim," she said, then paused. "Though honestly, after today, I feel more like 'to whatever the hell this is.'"
+Ethan looked at her across the table—this woman who'd taught him to float, who understood both the weight and the weightlessness of being here, now, alive despite everything.
 
-He laughed, raised his glass. The wine was too warm, the bread slightly stale. The salt was still gritty between his teeth. "To whatever this is," he agreed, and realized he'd never meant anything more.
+"To whatever this is," he said, raising his glass without prompting, claiming the moment for himself.
+
+"To whatever this is," she echoed, and they drank the too-warm wine that tasted like survival itself.
+
+The salt would stay in their skin for days. The memory would stay longer. Some transformations, Ethan was learning, were meant to mark you.

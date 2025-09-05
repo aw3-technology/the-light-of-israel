@@ -38,7 +38,7 @@ The word Abraham used when God called. Moses. Samuel. Was he remembering Sunday 
 
 More words came in Hebrew he couldn't read but felt compelled to write. At the bottom, in English: "I am Ethan Israel Stone. I am here."
 
-Wind came from somewhere—impossible in this sheltered corner—catching his prayer note as he reached toward a crack, lifting it back to his feet with a whisper like voices. The paper landed on his shoe, damp now from morning dew on the stones. He tried again, tasting dust kicked up by the sudden breeze, grit between his teeth. The same wind—or was there wind at all? Just his nervous hand trembling, not pushing the paper deep enough? His fingers were slick with sweat despite the cool morning.
+The paper lifted back to his feet. He tried again, tasting dust, grit between his teeth. The paper fell again. His fingers were slick with sweat despite the cool morning.
 
 The third time, he whispered his full name and pressed the paper firmly into an ancient crack. It stayed.
 
@@ -46,41 +46,35 @@ The third time, he whispered his full name and pressed the paper firmly into an 
 
 Ethan turned. An elderly man stood beside him, close enough that Ethan could smell him—old wool, coffee, the particular scent of age that wasn't unpleasant, just human. His prayer shawl was yellow with age, the fringes tangled, one corner torn and carefully mended with different thread.
 
-"Your grandmother. I davened beside her here, '68 to '86. She prayed for you by name—'Ethan Israel.' Said the wall would call you when you were ready."
+"Your grandmother. I davened beside her here, '73 to '86. She prayed for you by name—'Ethan Israel.' Said the wall would call you when you were ready."
 
 The man's voice was gravelly, accented—Polish? Russian? His breath smelled of mint tea. When he touched Ethan's shoulder, his hand was papery but warm, steadying.
 
-The man showed him a photograph: a young woman at this wall, her hand on these stones, her face like Ethan's but softer.
+"She came after the Six-Day War, like many. First time at the Wall for any of us. We cried together, strangers."
 
-"February 1960, pregnant with your mother. Same stone you're touching."
+Ethan stared at him. It could be anyone's grandmother. Jerusalem was full of old stories. "How do you know it was her?"
 
-Ethan stared at the photo. It could be anyone. Old photographs all looked the same, faces blurring into resemblance. "How do you know—"
-
-"She left this." The man—Mordechai—pulled out a small vial of oil. "For your forehead. For remembering."
-
-The oil smelled of Jerusalem—frankincense and something else that had no name but felt like exile, like return. Mordechai daubed it on Ethan's forehead with a thumb warm as the stones.
+"Rivka Stone from Queens. Spoke Yiddish with a Berlin accent. Always brought hard candies for the children." The man—Mordechai—smiled. "Every Thursday morning, same stone. She said her grandson would come one day. American boy who didn't know he was looking for God."
 
 "Come," Sera appeared as Mordechai melted back among the worshippers. "There's more."
 
 The tunnel entrance was simple, but stairs descended into different time. They stood where stones were larger than houses, the original Western Wall.
 
-"As close as we can get to where the Holy of Holies was," Sera said. "Where heaven touched earth."
-
-The air felt thicker here, or maybe that was claustrophobia, the weight of rock above them.
+The air felt thicker here, or maybe that was claustrophobia, the weight of rock above them. Sera said nothing, letting the stones speak their own proximity to what once was.
 
 "Say it here. Your name. All of it."
 
-Ethan hesitated. This felt like performance, like trying too hard. But the oil on his forehead still carried that scent of old prayers, old hopes.
+Ethan hesitated. This felt like performance, like trying too hard. But Mordechai's words still echoed—his grandmother, every Thursday, this exact place.
 
-"I am Ethan Israel Stone. Son of David who forgot, grandson of Rivka who—" His voice cracked. "I don't know if I believe this. I don't know if she's watching or if you really knew her or if I'm just desperate enough to see patterns where there aren't any."
+"I am Ethan Israel Stone. Son of David who forgot, grandson of Rivka who—" His voice cracked. "I don't know if I believe this. I don't know if she's watching or if any of this means anything or if I'm just desperate enough to see patterns where there aren't any."
 
 The name echoed off ancient stones. Echo or harmony—he couldn't tell the difference anymore. He closed his eyes and listened for the small space before sound, the breath that made a word possible.
 
 They emerged into morning light. Church bells, muezzin calls, Hebrew prayers. Jerusalem holding all its children's voices. They stood there a moment longer than needed, saying nothing, letting the light settle before they moved.
 
-In the Christian Quarter, a priest was locking a chapel door. He noticed Ethan's kippah, the oil catching light.
+In the Christian Quarter, a priest was locking a chapel door. He noticed Ethan's kippah, something in his expression.
 
-"You've been to the Wall. I can see it—the stones leave a mark."
+"You've been to the Wall. I can tell—the stones leave a mark."
 
 "Father Elias. My family's been here fourteen hundred years. Byzantines, Arabs, Crusaders, Ottomans—we've outlasted them all."
 
@@ -101,5 +95,3 @@ That evening, alone in the tunnels, Ethan stood again at the closest point to wh
 The echo came back, just echo. But it sounded right, somehow. Complete.
 
 Above them, the Wall continued its function: standing, waiting, holding up the world one prayer at a time, one doubt at a time, one return that might be arrival.
-
-His forehead still carried the scent of frankincense and old oil, old hopes he was afraid to claim as his own.

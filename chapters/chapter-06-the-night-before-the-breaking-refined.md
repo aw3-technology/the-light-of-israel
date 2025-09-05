@@ -8,7 +8,13 @@ Tomorrow. Saturday. October 7th. Something about the date scratched inside his s
 
 Thai food sat untouched, smelling wrong—too synthetic. His stomach turned with that feeling before flights, before news that changes everything. Except he had no flights, no news coming.
 
+He found himself at the window, looking out at Brooklyn going about its Friday night. A couple argued on the street below, their voices rising and falling in the familiar rhythm of grievance and exhaustion. Next door, someone was learning violin—the same three notes, over and over, never quite right. Normal life continuing its course while something gathered at the edges of perception.
+
 The candlesticks caught his eye. His grandmother's brass holders, discovered that afternoon in the closet. Unlit. Friday night at 8:41 PM.
+
+He picked them up—heavier than memory. His fingers found grooves worn by her hands, decades of Friday nights carved into brass. Almost without thinking, he set them on the counter, reached for matches. His hand stopped mid-air. What was the blessing? What came after lighting? The not-knowing felt like locked doors, like being outside his own inheritance.
+
+He set the matches down. Tomorrow, maybe. After coffee with Aaron. After figuring out what this restlessness meant.
 
 Browser tabs multiplied: "Brooklyn therapists accepting insurance." "Normal to feel empty at 33." "Hebrew letter meanings" (clicked by accident, closed, reopened). "Tensions escalate along Gaza border." "Time in Israel."
 
@@ -38,7 +44,7 @@ His grandmother's voice, but young, thirty-three like him, standing in a dress h
 
 "I'm not Israel. I'm Ethan."
 
-"You're the wrestling that makes the name true."
+"You're both. The wrestling makes the name true." She moved closer, and he could smell her perfume—White Shoulders, always White Shoulders, even in dreams. "You think hiding from your name protects you. But names aren't weapons, bubbeleh. They're maps."
 
 The garden shifted, became wall—infinite wall reaching past sky. His hand found warm limestone, pulse beneath rock. From every crack between stones, papers fell like snow, prayers pressed into stone by hands like his.
 
@@ -54,7 +60,7 @@ Her metaphors always domestic, always immediate. Even prophecy served with kitch
 
 "What light?"
 
-"The hidden light. Or HaGanuz. From before there was a sun. Before there was anything to light up except the possibility of everything."
+She touched his forehead, and suddenly he could see it—threads of light connecting every living thing, hidden but always there, waiting. "Or HaGanuz," she whispered, but the words came fragmented now, dream-logic taking over. "Before... sun... possibility..."
 
 "I don't understand."
 
@@ -71,6 +77,8 @@ He woke to sheets twisted into shapes that might have been Hebrew letters. The a
 The candlesticks in the kitchen—glowing or just reflecting something? Brass conducting energy or just catching light from sources he couldn't identify.
 
 He stumbled to the bathroom, looked in the mirror. His face seemed different. Not changed but revealed. Or was that just 3 AM face, the way everyone looked in fluorescent light after strange dreams?
+
+The apartment held that specific 3 AM quality—when walls thin between worlds, when every sound could be significant or nothing. The refrigerator hummed its mechanical mantra. Somewhere, a siren wailed and faded. He stood at the threshold between kitchen and bedroom, caught in that liminal space where decision felt impossible. Light the candles now? Return to bed? He chose neither, standing in his boxers in the dark, feeling the weight of something approaching.
 
 Back to bed. Sleep came floating now, lucid but distant. In the space between dreams, his grandmother sat at a Sabbath table. Waiting.
 
@@ -110,6 +118,8 @@ Had his grandmother's dream been prophecy or warning? Had the candlesticks glowe
 
 Israel.
 The wrestling was about to begin.
+
+In his last moment of sleep, his hand moved—reaching for something, grasping air. As if already practicing for the prayer he didn't know he'd need.
 
 His phone buzzed again.
 And again.

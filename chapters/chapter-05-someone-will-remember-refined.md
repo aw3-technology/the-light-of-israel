@@ -82,17 +82,17 @@ He'd pulled back. The rabbi passed. Her hand loosened.
 
 Next year: bathroom. Year after: stopped going. Year after: dead.
 
-Age eight, Thanksgiving. He'd found her crying in the bathroom—not gentle tears but body-shaking sobs. She held a photograph: three children in sailor suits with yellow stars on their coats.
+Age eight, Thanksgiving. He'd found her crying in the bathroom. She held a photograph: three children in sailor suits with yellow stars on their coats.
 
 *"My brothers. My sister."*
 
 *"Where are they?"*
 
-The look she gave him—not sad, not protective. Empty.
+The look she gave him. Empty.
 
 *"Gone."*
 
-He'd never seen the photo again. But sometimes caught her looking at him with that same empty expression, as if she was seeing through him to those other children who didn't get to grow up and forget.
+He'd never seen the photo again.
 
 Outside a Chase bank on Houston Street. A man holding a cardboard sign: "Jewish. Hungry. Today is still today." Davening slightly, sign swaying.
 
@@ -106,7 +106,7 @@ Shanghai, 1941—the candlesticks had been there. She'd told him once, offhand w
 
 *"Not now. But someday, maybe. Someone will remember."*
 
-Someone will remember. But no one had. The candlesticks were in his closet, behind shoes he never wore, wrapped in the same yellowed tissue paper.
+Someone will remember. The candlesticks were in his closet, wrapped in yellowed tissue paper.
 
 His phone buzzed. Work. He didn't look.
 
@@ -154,8 +154,10 @@ Silence. Or an answer too quiet to hear.
 
 Ethan stood in his kitchen, holding his grandmother's candlesticks. Empty, waiting. He opened the drawer, found matches left from winter blackouts. Struck one. The flame caught, steady and warm.
 
-He held it over the candlestick, watching wax begin to pool in the base from some long-ago candle.
+He held it over the candlestick, watching wax begin to pool in the base from some long-ago candle. The flame danced, reflected in the tarnished silver—two lights where there was one.
 
 Then blew it out.
 
-The smell of sulfur faded. The candlesticks remained.
+The smell of sulfur faded. The candlesticks remained on the counter. He didn't put them away. Tomorrow was his grandmother's yahrzeit. They could wait one more day.
+
+Outside, that child's voice again, learning the Shabbat melody. Getting the words wrong, starting over. Learning.

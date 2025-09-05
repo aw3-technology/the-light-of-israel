@@ -66,7 +66,7 @@ He turned and started walking, then stopped. "Your shoes—city shoes. Watch for
 
 The first house looked almost normal until you noticed. Bullet holes like inverse constellations across the walls. Windows not broken but melted—fire from inside having turned glass to modern art nobody wanted. Children's bicycles in the yard, rubber tires pooled into shapes that didn't belong in the same world as children.
 
-"The Levi family," Yossi said. "Two parents, three children. The eldest was thirteen." He said it like reading a shopping list, all emotion burned away or buried so deep it would take archaeologists to find it.
+"The Levi family," Yossi said, then stopped. Started walking again without finishing.
 
 They walked through the kibbutz—past a playground where swings moved in wind that shouldn't have been cold but was, past a dining hall with tables still set for breakfast that would never be finished, past gardens where vegetables continued growing because nobody had told them to stop.
 
@@ -78,13 +78,13 @@ The safe room door hung off its hinges. Inside, char marks climbed walls like ne
 
 Ethan couldn't speak. The handprint was so small. Without thinking, he placed his own hand over it. Still warm from the sun. Or something else.
 
-"She survived. We all—six hours in here. She sang Disney songs. Frozen. Over and over." His laugh came out wrong. "My neighbors didn't."
+"She survived. We all—six hours in here. She sang Disney songs. Frozen. Over and over." His laugh came out wrong, cut short. "The Levis... they sang too. Different songs. Until they didn't."
 
 They stood in the burned room while outside a dog barked somewhere, the sound so normal it felt obscene. Life continuing around death. The terrible ordinariness of aftermath.
 
 "Why do you stay?" Ethan finally managed.
 
-Yossi looked at him like he'd asked why humans breathed oxygen. "This is home. They wanted us to run." He shrugged. "She wants to paint her room purple. Eight years old. Already knows you paint over things." He touched the handprint. "Also wants Wi-Fi in the safe room. Kids these days."
+Yossi looked at him like he'd asked why humans breathed oxygen. "Where else?" The words came out choked, barely audible. "My avocados... still growing. Her handprint... still here." He touched the wall gently. "She wants to paint over it. Purple. I said no. Not yet."
 
 They left the kibbutz as afternoon sun turned everything gold. A military helicopter passed overhead—door gunner looked younger than Ethan's college interns. The vibration shook the car. Ethan's hands were shaking too.
 
@@ -104,7 +104,9 @@ Sera pulled over again, seemingly random spot on the highway back toward Jerusal
 
 They stood by the side of the road, cars passing in occasional rushes of wind and engine noise. A Bedouin man on a camel appeared, moving along some track that predated the highway. He raised his hand—greeting or blessing.
 
-Sera began the prayer, the ancient Aramaic flowing like water finding its level. Ethan followed, stumbling over words he'd never said before but somehow knew, his mouth making shapes that felt older than his own life—shapes his grandmother's mouth had made in Poland, in Bergen-Belsen, in Brooklyn, the same words for different dead across different deserts.
+Ethan looked at Sera, then toward the darkening desert. "I'll start," he said, surprising himself. The words came haltingly at first: "Yitgadal v'yitkadash..."
+
+Sera joined him, their voices finding harmony in the ancient Aramaic. Ethan's mouth made shapes that felt older than his own life—shapes his grandmother's mouth had made in Poland, in Bergen-Belsen, in Brooklyn, the same words for different dead across different deserts.
 
 "Yitgadal v'yitkadash sh'mei raba..."
 
@@ -118,7 +120,11 @@ When they finished, they stood in the dark for a moment. The stars were brillian
 
 They drove back to Jerusalem in silence, the city's lights appearing first as a glow on clouds, then resolving into the thing itself—ancient and modern, sacred and profane, surviving against all logic, all probability, all reasonable expectation.
 
-Back in his apartment after midnight, Ethan couldn't sleep. Desert dust had settled into his clothes, his hair, the creases of his palms—he'd showered twice but could still feel it. He stood on the balcony looking south toward the desert that held Festival grounds and kibbutzim and borders and bodies and somehow also held holiness, or perhaps holiness held it. His phone buzzed: Rabbi Levi.
+Back in his apartment after midnight, Ethan couldn't sleep. Desert dust had settled into his clothes, his hair, the creases of his palms—he'd showered twice but could still feel it. He stood on the balcony looking south toward the desert that held festival grounds and kibbutzim and borders and bodies and somehow also held holiness, or perhaps holiness held it.
+
+He thought of Europe—the trip he'd planned, the escape it promised. But tonight, only the desert mattered. Only the dust that wouldn't wash off. Only the small handprint burned into a wall.
+
+His phone buzzed: Rabbi Levi.
 
 "Heard you went south."
 
@@ -136,12 +142,16 @@ He'd been drafted into something ancient—older than October 7th, older than Is
 
 The muezzin's call began from the Old City, followed by church bells. Somewhere, Jewish morning prayers were starting—ten thousand rooms, ten thousand people wrapping themselves in tradition and trauma.
 
-Ethan went inside, put on his kippah. Stood facing south, toward the desert. He didn't know the morning prayers yet. Started to say something—the Shema, maybe—but the words caught in his throat.
+Ethan went inside, put on his kippah. Stood facing south, toward the desert. He didn't know the morning prayers yet, but his hands moved to his heart, then outward—a gesture he'd seen Yossi make at the burned house, offering something to absence.
 
-Silence felt more honest.
+"For the Levis," he whispered. "For Noa. For the child with the handprint. For..."
+
+The names ran out. Silence felt more honest.
 
 The desert dust was still under his fingernails.
 
-In two days he would fly to Europe. But first, this moment. This desert. This dust that wouldn't wash off.
+Somewhere in his mind, Europe waited—another journey, another reckoning. But that was future tense. This was present: dust and memory, witness and weight.
+
+He pressed his palms together, feeling the grit between them. Real. Undeniable. His.
 
 Begin.

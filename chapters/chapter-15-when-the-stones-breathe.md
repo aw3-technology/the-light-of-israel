@@ -62,20 +62,19 @@ The words came out wrong, too intense. He saw her eyebrows raise slightly.
 
 "Like you're trying very hard," she finished, but she was almost smiling. "It's okay. Jerusalem makes everyone a little dramatic."
 
-"Sera made aliyah from New York three years ago," Mrs. Rosenberg announced, bustling past with wine bottles. "She works with—what do you call them, dear? The ones from October?"
+"Sera made aliyah from New York three years ago," Mrs. Rosenberg announced, bustling past with wine bottles.
 
-"Survivors," Sera said, her jaw tightening. "Specifically kids from Kibbutz Be'eri. Art therapy, mostly. Getting them to draw things other than—" She stopped abruptly. "But tonight we don't talk about work."
+Sera shot her a look. "Mrs. Rosenberg loves to advertise."
 
 The French woman asked softly, "Were you there? During—"
 
-"No." Sera's voice came out sharp, then softer. "No. I was in Jerusalem. My best friend Michal was at the Nova festival. She..." A pause that contained everything. Her hand went unconsciously to a small pendant at her throat—not religious, Ethan noticed, but a tiny camera charm. Photography. Memory. The things we hold when holding people becomes impossible. "The kids I work with, some of them saw their parents—" She shook her head. "Tonight we don't talk about work."
+"No." Sera's voice came out sharp, then softer. "No. I was in Jerusalem." Her hand went unconsciously to a small pendant at her throat—not religious, Ethan noticed, but a tiny camera charm. She shook her head. "Tonight we don't talk about October."
 
-An uncomfortable silence fell. One of the soldiers checked her phone. Ethan's phone buzzed—Aaron, again. Three texts in the last hour:
-"How's the promised land?"
-"Saw another protest today. Thought of you."
-"Call me when you can. This silence is weird."
+An uncomfortable silence fell. One of the soldiers checked her phone. Ethan's phone buzzed—Aaron, again. But this time different:
 
-He silenced it without responding.
+"Met someone. Palestinian activist. Her name's Layla. She asked why I wear a keffiyeh but hide my Star of David. I didn't have an answer."
+
+The text sat there, more honest than anything Aaron had sent in weeks. Ethan stared at it, then silenced his phone.
 
 The sun descended toward the horizon visible through ancient windows, and Mrs. Rosenberg lit candles with movements that seemed choreographed by centuries—circling her hands three times, covering her eyes, the Hebrew blessing emerging like muscle memory from some collective unconscious. Sera sang the harmony without seeming to notice she was singing, her voice finding the spaces between the notes like she'd been born knowing where they were.
 
@@ -129,29 +128,19 @@ He looked at her, surprised. "How did you—"
 
 "Both. Neither. I came because I was twenty-five and thought Jerusalem would fix me. Spoiler: it didn't. It just gave me better problems."
 
-    "I know that feeling," Sera said. "I grew up modern Orthodox in Brooklyn, but it never felt like enough. Not the ritual—I love the ritual—but the... distance. The way we were Jewish at certain times, in certain places, but not in our bones. Not in our names."
+A siren wailed in the distance—ambulance, not air raid, but everyone tensed for a microsecond anyway. The Old City's reflexes.
 
-"Names?"
-
-She smiled, mysterious. "My full name is Seraphina. My parents—they wanted me to fit in, you know? So, Sera. But here..." She gestured at the city. "Here I don't have to choose. American and Jewish and—I don't know. Both things at once."
-
-"Seraphina," he repeated, the name feeling important on his tongue. "Like the angels."
-
-"The burning ones. Six wings, two for—" She stopped. "Sorry, I get weird about my name. Too much Hebrew school."
-
-"That's beautiful."
-
-"It's terrible," she laughed, but not unkindly. "Do you know what it's like being named after beings made of fire? The pressure to burn bright enough?"
+"You have a story too," she said, deflecting. "Everyone who comes here does."
 
 "My middle name is Israel." The words came out before he could stop them. His throat felt tight. "Ethan Israel Stone. But I never—I don't use it. Haven't told anyone in years." He was speaking too fast now. "Not since college. Maybe high school. It felt like—like carrying a flag for a country I'd never seen."
 
 She studied him in the moonlight, and he could see her understanding reshaping itself, recognizing something in him that he hadn't known was showing.
 
-"Israel." She was quiet for a moment. "Wrestling with God. That's what it means, right? My Hebrew's rusty but—that's heavy. For a middle name."
+"Israel." She was quiet for a moment. "Heavy name to carry."
 
-"I feel like I've been limping my whole life. Just—I don't know why I said that."
+"I don't even know what it means."
 
-"Maybe you needed to break first. Before you could—I don't know. Become whatever you're becoming."
+"Wrestling," she said simply. "It means wrestling."
 
 Below them, the Western Wall plaza emptied and filled in waves, the eternal rhythm of approach and retreat, of seeking and finding and losing and seeking again. A cat crossed between shadows, indifferent to the holiness it walked through. Somewhere, church bells rang. Somewhere else, a baby cried and was comforted.
 
@@ -185,14 +174,8 @@ His phone showed three missed calls from his mother, two voicemails. He listened
 
 The second: "Also, we went to temple last week. First time since your bar mitzvah. It was strange. Good strange, maybe. Your father cried during the Mourner's Kaddish. Call us."
 
-The messages felt like bridges between worlds—his parents, secular for so long, fumbling toward something they'd lost or never had. Here, in Jerusalem, he might be Ethan Israel. Here, with her, he might be becoming himself.
+The messages felt like bridges between worlds—his parents, secular for so long, fumbling toward something they'd lost or never had. 
 
-The Wall glowed in the darkness, patient as stone, waiting for tomorrow's wrestlers, tomorrow's prayers, tomorrow's woman arguing with God about things that mattered more than anything had ever mattered before.
+He fell asleep sitting up, watching the city that never quite slept. Tomorrow night. The Wall. Nine o'clock.
 
-He fell asleep sitting up, watching the city that never quite slept. Somewhere out there, Sera was in her own room, under the same moon.
-
-Tomorrow night. The Wall. Nine o'clock.
-
-His phone buzzed—three missed calls from his mother. They felt like messages from another life, the one where he was just Ethan Stone. Here, he might be something else. Someone else.
-
-The Wall glowed in the darkness, patient as stone, waiting for tomorrow's wrestlers.
+In his dreams, Sera's voice mixed with his grandmother's, both asking the same question in different languages: Who are you becoming?

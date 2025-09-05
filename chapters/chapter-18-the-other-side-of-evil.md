@@ -6,9 +6,9 @@ Earlier that afternoon, Ethan had lost himself on purpose in the Old City's narr
 
 Near a checkpoint, a teenage girl in a school sweater waited, notebooks hugged to her chest. When the turnstile clicked she stepped through, eyes straight ahead, ponytail swinging. No one spoke. The city inhaled, exhaled, kept moving.
 
-"After what you've seen," the rabbi said, "you need to understand where evil comes from."
-
 Jerusalem evening. Ethan sat in Rabbi Levi's study, Negev dust still in his clothes, char smell in his hair. Three days since Be'eri. Three days since Nova. His hands wouldn't stop shaking.
+
+Samira's words kept echoing: two drawings of the same scene. The Palestinian girl at the checkpoint, eyes straight ahead. Different terrors, same city.
 
 The radiator ticked. Same study, same lamp, everything wrong-angled.
 
@@ -26,25 +26,21 @@ Rabbi Levi's eyes stayed steady. "She survived. That's what matters."
 
 The last students had left—Russians, Americans, Israelis. They'd looked at him and known. Everyone recognized someone who'd been south.
 
-Rabbi Levi locked the door. "Privacy for this. The Zohar calls it dangerous knowledge. Not wrong, but easily misunderstood."
+Rabbi Levi locked the door. "Privacy for this."
 
 He pulled a volume from the shelf—cracked binding, brown pages.
 
 "You asked how God allows evil." The rabbi opened to a marked page. "Wrong question. The question is: what is evil for?"
 
-"For?" The word came out strangled, like something was gripping Ethan's throat from inside. "Murder has purpose? Rape has function?" Each word tasted like ash in his mouth, the kind of ash that comes from burning sacred things.
+"For?" The word came out strangled. "Murder has purpose? Rape has function?"
 
-The rabbi drew circles connected by lines on paper. The Tree of Life. Then another beside it—mirror image but wrong, like reflection in dark water.
+The rabbi drew two diagrams—mirror images, one clear, one distorted.
 
 "The Sitra Achra. The Other Side. Not the opposite of holiness, but its concealment."
 
-The lamp flickered once.
+Ethan thought of Samira's two versions of the same wall. Different stories, same stones.
 
-"Ein Sof contracted itself. Tzimtzum. God withdrew to create space. In that absence, something else became possible."
-
-"Evil."
-
-"The possibility of choosing evil. Without that, no free will. Without free will, no love."
+"When God created space for the world, absence became possible. In that absence—choice. Even terrible choice."
 
 Ethan stared at the Hebrew text. The letters swam. "This is just—philosophy. Theory. Those people are still dead."
 
@@ -68,11 +64,11 @@ She sat beside him. Jerusalem winter clung to her coat.
 
 "Maybe it is." Sera touched his arm. "But it's the only bullshit that got me out of bed for two years."
 
-The rabbi turned to another page. "Try reading this anyway."
+The rabbi turned to another page. The Hebrew somehow made sense:
 
-The Hebrew somehow made sense:
+"The Other Side feeds on separation. Thrives where divine image is forgotten. Cannot create, only distort."
 
-"The Other Side feeds on judgment without mercy. Grows strong on separation. Thrives where divine image is forgotten. Cannot create, only distort. Cannot love, only possess. Cannot endure, only destroy until it destroys itself. Think of it like a garden—evil is not a different garden, but the same garden untended, where weeds choke out flowers, where fruit rots on the branch, where beauty becomes decay. But even in the most neglected garden, seeds of holiness wait underground."
+Simple. Not a theological treatise. Just description.
 
 "October 7th was the Other Side showing its face." Rabbi Levi gestured toward the window. "But look—Jews returning from everywhere."
 
@@ -90,11 +86,11 @@ The muezzin's call began. Below, someone sang Shabbat melodies early.
 
 "Connection? I want to punch something."
 
-"That's the klipah. The shell around your soul." He moved to a cabinet, pulled out something wrapped in velvet. "Your tikkun."
+"That's what anger does—cracks the shell." He moved to a cabinet, pulled out something wrapped in velvet.
 
 Tefillin. Black leather boxes and straps.
 
-"Every morning. Bind them on arm and head. Physical shells containing divine words."
+"Try these. Tomorrow morning. Not because they'll fix anything. But because doing something, anything, is better than drowning."
 
 "How does wrapping leather help? I mean, really. What's leather going to do against—" He gestured vaguely south.
 
@@ -138,12 +134,10 @@ The Other Side was real.
 
 So was this side.
 
-He set an alarm. Then deleted it. Set it again.
-
 In one pocket, tefillin. In the other, the child's drawing—crayon flaking where he'd folded it.
 
-Maybe he would try tomorrow. Maybe the leather straps would mean something. Maybe they were just leather.
+His grandmother had planted trees with a spoon. Seventeen trees in the Carmel Forest, still growing.
 
-His grandmother had planted trees with a spoon. That seemed impossible too.
+That seemed impossible too.
 
-He left the alarm set. Whether he'd wake up was another question.
+Yet they grew.
