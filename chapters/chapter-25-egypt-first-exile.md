@@ -52,76 +52,86 @@ They needed no explanation. He was Jewish, he was the tenth, he was the answer t
 
 The service proceeded in Hebrew that sounded different here—Egyptian-accented, ancient, like the language remembered being spoken by slaves, by princes, by Moses.
 
-After prayers, Joseph insisted on tea. Sami complained about the quality—"Water tastes like the Nile, but not the good parts"—while a third man, David, showed Ethan a photo of his great-granddaughter in Montreal. "She sends emails," David said proudly. "In French. I don't read French, but I keep them."
+After prayers, Joseph insisted on tea. "Real tea," he said, "not the tourist garbage. My late wife Miriam knew how to make proper tea." He measured leaves with the precision of a pharmacist. "She ran the kosher kitchen at Adly Mansour Hospital for thirty years. Fed half the Jewish community when they were sick, and half the Muslim doctors too."
 
-"You see this cabinet?" Joseph fumbled with keys, hands shaking. "Fragments. Not the famous Geniza—that's in Cambridge now, making British professors famous." He laughed bitterly. "But we kept some pieces."
+Sami adjusted his bobby pins. "Joseph's always talking about his wife. Dead ten years, still arguing with her."
 
-He opened it with difficulty. "This ketubah, 1348. Wedding contract. The bride was sixteen. Groom twenty. They died of plague two weeks later—someone wrote it on the back, like a footnote." His finger traced the faded Hebrew. "Even their happiness was temporary."
+"Twelve years," Joseph corrected sharply. "And she never let me win an argument alive, why should death change that?"
 
-"How many of you are left?"
+David showed Ethan a creased photo. "My great-granddaughter in Montreal. Twelve years old, speaks perfect French, decent Hebrew, not a word of Arabic." His pride mixed with loss. "Her mother sends videos sometimes. The girl's winning math competitions."
 
-Sami answered first: "Enough for gossip, not enough for a baseball team." 
+"You see this cabinet?" Joseph fumbled with keys. "Not the famous Geniza—Cambridge University owns our history now, making British careers out of our letters." His bitterness was earned. "But we kept some fragments they missed."
 
-Joseph shot him a look. "Fifteen in Cairo, maybe. All Egypt?" He shrugged. "My nephew moved to Brooklyn last year. His son speaks Arabic like a tourist now." 
+He opened it carefully. "Business correspondence mostly. This one—1967, right after the war. A coffee merchant writing to his partner in Milan: 'Nasser's speeches getting uglier. Time to liquidate inventory.'" His finger traced faded Arabic mixed with Hebrew. "My father's handwriting. He was that merchant."
 
-David looked up from his photo. "My daughter calls from Sydney every Rosh Hashanah. Three minutes. 'Happy New Year, Papa.' Expensive guilt."
+"How many Jews are left in all of Egypt?"
 
-"We're maintaining graveyards," Joseph continued, "for people who forgot we exist."
+The three men exchanged glances. Joseph sighed. "Official count? Maybe fifty. Real count?" He shrugged. "Who knows? Some hide it completely. Can you blame them?"
 
 The cemetery: vandalized tombstones, broken stones. Someone had tried to clean up—probably Joseph's group.
 
-In Khan el-Khalili, among the tourist souvenirs: "The Protocols of the Elders of Zion" in Arabic. "Mein Kampf." Next to postcards of pyramids.
+In Khan el-Khalili bazaar, Ethan stopped at a bookstall. "Protocols" in Arabic beside cookbooks. "Mein Kampf" next to travel guides. The vendor, seeing his interest, said in English: "Very popular. Explains many things." He tapped the cover. "History books."
 
-Back in the taxi, Mohamed had been thinking. "You are really Jewish? Not Israeli though?"
+Ethan walked away without comment.
 
-"I'm American. But I've been to Israel."
+Back in the taxi, Mohamed had been quiet, navigating traffic with the focused aggression of a Cairo native. Finally: "So you are really Jewish? American Jewish or...?"
 
-"Israel—" Mohamed started, then stopped. "People say they control everything. Start wars."
+"American. But my family comes from Poland originally."
 
-"My grandmother was a refugee. From Poland. Everyone she knew was murdered."
+Mohamed nodded, working through something. "My daughter, she studies at university. International relations. She says the situation is..." He searched for words. "Complicated."
 
-Mohamed's knuckles went white on the wheel. "That was Hitler. Not us."
+"Your daughter sounds smart."
 
-"What about the Jews who lived here? Your neighbors?"
+"Too smart. Questions everything I tell her about Israel, about Jews." A rueful laugh. "Kids today, they read too much internet."
 
-A long silence. "My mother, she used to buy fabric from Jewish shop. But 1967, everything changed. Politics, you know? Nasser said—" He trailed off. "Different time."
+"What about Jews who used to live here? In Egypt?"
 
-"Always different times," Ethan said quietly.
+Mohamed's grip shifted on the wheel. "That's ancient history. My grandmother, she had Jewish neighbors in Heliopolis. Before I was born." He paused. "She used to say they made the best pastries in the neighborhood. But after 1967..."
 
-At Giza, Mohamed turned to face him. "You seem nice. Not like... what we hear."
+"After 1967?"
 
-"I'm exactly like the others. We're people who've been running for four thousand years and finally said 'enough.'"
+"Politics changed everything. Nasser on the radio every day. 'The Jews, the Jews.' People got scared, angry." His voice dropped. "My grandmother, she was sad about it. 'Good people,' she used to say. 'Where did they go?'"
+
+At a traffic light, Mohamed turned to study him. "You don't look like what I expected."
+
+"What did you expect?"
+
+"I don't know. Different somehow."
 
 
-His phone buzzed: sunset in two hours. First night of Hanukkah.
+His phone showed sunset approaching. First night of Hanukkah—he'd almost forgotten.
 
-He'd brought his grandmother's travel candlesticks. Mohamed drove him to a beach resort on the Red Sea—not the biblical crossing point, but water that connected to that water, to that moment.
+"There's somewhere else I need to go," he told Mohamed. "By the water."
 
-On the beach, Ethan set up the candlesticks. The Red Sea stretched before him—maybe not the crossing point, but water that touched that water.
+Mohamed looked skeptical. "Red Sea? You want expensive tourist beach?"
 
-*This is ridiculous,* he thought, lighting the first candle. *Performing Judaism for one Egyptian taxi driver and a few confused tourists.*
+"Not tourist. Just water."
 
-But the blessing came anyway: "Baruch atah Adonai..."
+At the shore, wind whipped off the sea. A few late swimmers, some fishermen mending nets. Ethan pulled out his grandmother's small travel candlesticks, the ones she'd carried from Poland to Brooklyn.
 
-*Eight nights of lights because oil lasted longer than it should have. Like Jews themselves.*
+*This is strange,* he thought, setting them on a rock. *But then again, so was everything about this journey.*
 
-Mohamed had followed, stood watching. "What are you doing?"
+Mohamed approached, curious despite himself. "What are you doing?"
 
-"Hanukkah. We were conquered, our Temple destroyed, but we fought back. Light survived."
+"Lighting candles. Holiday called Hanukkah."
 
-Mohamed watched the candles flicker. "You—" He stopped, struggled with words. "My grandfather, he remembered Jewish families. Before Nasser. They were... they were good neighbors."
+"Like Christmas?"
 
-A pause. "But now everything is different."
+"Older. About fighting back. About light surviving when it shouldn't."
 
-"Everything's always different," Ethan said. "We learned to survive the differences. Here, in Egypt."
+Ethan struck a match. The first candle caught, flame dancing in the salt wind. He said the blessing quietly, more for himself than performance.
 
-They stood watching candles fight the wind. Then Ethan walked to the water's edge and pulled out the vial of Polish earth.
+Mohamed watched, hands in his pockets. "My grandmother used to light candles too. Islamic way, but..." He shrugged. "Light is light."
 
-*What am I doing?* The absurdity hit him. *Scattering Holocaust victims in the Red Sea like some mystical tourist.*
+They stood together as the candle burned down, wind threatening to extinguish it but failing. When it was finished, Ethan walked to the water's edge and pulled out the vial of Polish earth.
 
-But he opened the vial anyway. The earth scattered on the waves, dark specks disappearing into foam.
+*Melodramatic,* he thought. *But somehow necessary.*
 
-"I'm leaving," he told the water. *The way Jews always leave Egypt. The way they have to.*
+He scattered the soil into the foam. Not ritual, not theater—just completion. The earth that had been witness to the worst mixing with water that had witnessed the first leaving.
+
+"I'm going back to Israel," he told Mohamed.
+
+"Of course you are," Mohamed replied, without judgment. "Everyone leaves Egypt eventually."
 
 Next morning, Joseph unwrapped a fragment in protective plastic. "Geniza piece. A merchant writing to his son in Jerusalem, 1099."
 
@@ -129,25 +139,29 @@ Ancient Hebrew, faded: "If I forget thee, O Jerusalem..."
 
 "Even then," Joseph said. "Even a thousand years ago, we were leaving." He rewrapped it carefully. "My hands shake now. Soon I won't be able to handle these properly."
 
-At the airport, security was extensive. "Why were you in Egypt?"
+At the airport, security was thorough. The officer examined his passport, noting the stamps.
 
-"To leave. Every Jew must leave Egypt."
+"Purpose of visit to Egypt?"
 
-The officer, confused, stamped his passport.
+"Tourism. Historical sites."
 
-The Cyprus-Tel Aviv flight: crowded with Israelis coming home from vacation, business, exile. When the Hebrew announcements began, something broke in Ethan's chest.
+The man nodded, stamped the exit visa. Standard procedure, nothing more.
 
-*I'm crying on an airplane because of the language,* he thought. *This is insane.*
+The Cyprus-Tel Aviv flight was routine until the Hebrew announcements began. Something unexpected tightened in Ethan's chest—not homesickness exactly, but recognition.
 
-The woman beside him offered tissues without comment. She understood. Hebrew in the air above Egypt was enough to break anyone.
+*Forty days away and the language sounds like news from another planet,* he thought.
 
-Through the window, pyramids shrank to points, then memory. Egypt became the place Jews left, would always be leaving, had to leave to become.
+The woman beside him glanced over as he wiped his eyes. "Long trip?" she asked in accented English.
 
-"First time to Israel?" the flight attendant asked in Hebrew, then seeing his tears, switched to English.
+"Very long."
 
-"No," Ethan said. "I think I'm coming home."
+"Israel?" 
 
-*Think.* Even now, he couldn't be certain.
+"Among other places."
+
+She nodded knowingly. "The wandering gets old."
+
+Through the window, pyramids faded to memory. Egypt receding, becoming story again—the place Jews carried in their collective memory as the first departure, the original leaving that made all other leavings possible.
 
 The plane touched down. Passengers applauded—Israelis grateful for another safe landing in the only country that would always take them. Through the window, the Judean hills. Jerusalem somewhere beyond them.
 
@@ -163,8 +177,8 @@ She stamped it. "Bruchim haba'im." Welcome.
 
 Outside, December light. Hebrew voices. The smell of diesel and possibility.
 
-*Home?* The word felt both too small and too large. Maybe home. Maybe just the place where the wandering paused long enough to catch his breath.
+*Home.* The word sat differently now, less urgent, more tentative. Not the destination of a pilgrimage but a place to pause, to sort through what he'd collected.
 
-He walked toward the arrivals hall, carrying Poland's earth in his memory, Rome's questions still unanswered, and Egypt's ancient lesson written in his bones: sometimes you had to leave to become whatever you were supposed to become. 
+He walked toward the arrivals hall, carrying forty days of questions. Poland's grief, Rome's continuity, Germany's reckonings, Egypt's stubborn survival—all of it settling into something that might, eventually, become understanding.
 
-But what that was—that remained to be seen.
+But not yet. Not tonight.
