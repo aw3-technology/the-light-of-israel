@@ -1,24 +1,24 @@
 # Chapter 24: Poland — The Weight of Absence
 
-At Auschwitz, the birds sang, and that was the most obscene thing of all.
+At Auschwitz, Ethan's phone kept buzzing with work notifications, and somehow that felt more obscene than anything else.
 
-Ethan stood at the gate, December frost making the infamous words gleam: Arbeit macht frei—work makes free. The lie cast in iron, preserved like evidence, while sparrows chirped in nearby trees as if this were just another morning.
+He stood at the gate, December frost making the infamous words gleam: Arbeit macht frei. His mind went automatically to productivity metrics, optimization processes—the startup vocabulary he'd trained his brain to think in. *Work makes free.* The Nazis had run this like a business. KPIs for killing.
 
 Tour groups gathered—schoolchildren solemn, Americans with cameras, Israelis wrapped in flags. A young Polish guide spoke in hushed tones as she counted. How did anyone smile here? How did birds sing? How did the sun shine on ground that had swallowed so much darkness?
 
-He separated from his assigned group, needing to walk alone through this anti-Jerusalem, this place where presence became absence, where industry perfected extinction, where his grandmother's world had been processed into smoke.
+He separated from his assigned group, needing to walk alone through this anti-Jerusalem.
 
 The museum began with numbers. One million murdered here. Three million Polish Jews erased. Six million total. The numbers grew so large they became abstract—astronomy of annihilation.
 
-Then the personal remnants. Suitcases with names painted in careful letters. Hair cut from the living. The belongings of people who had packed for a journey they would never complete.
+Then the personal remnants. Suitcases organized by size like Amazon warehouse inventory. Ethan's eye caught the systematic arrangement—someone had curated this display for maximum emotional impact. *Even grief gets A/B tested.*
 
-One suitcase: R. Steinberg. His grandmother's maiden name.
+One suitcase: R. Steinberg. His grandmother's maiden name. He took a photo, then immediately felt sick about it.
 
 *Not her—she'd already left for America. But her cousin maybe? Her aunt?* The accident of geography that made him witness instead of victim.
 
 The second camp sprawled beyond sight, barracks extending to horizons. Tracks ran straight through the gate, ending at crematoria ruins the Nazis tried to erase.
 
-Ethan walked the track's length, each tie a heartbeat, a name. Here was where selections happened—left meant immediate death, right meant temporary slavery. Children left. Elderly left. Mothers who wouldn’t release a hand, left. Efficiency sorting humans like mail.
+Ethan walked the track's length, his sneakers crunching on gravel. *This is just infrastructure,* he thought. *Rails and ties and concrete platforms.* His mind tried to process it like a logistics problem—throughput, capacity, optimization. The startup brain protecting him from understanding what the rails had actually carried.
 
 Groups of visitors moved through in waves—some weeping, some silent, some snapping selfies. *What am I among them?* he wondered. *The descendant of people who left before the killing? A tourist of my own family's destruction?*
 
@@ -31,9 +31,9 @@ The driver, arranged through the hotel, knew why tourists went to Brzeziny. "Not
 
 Brzeziny revealed itself slowly—outlying farms, then concrete blocks, finally an old town center where cobblestones remembered more than they could tell. No signs indicated Jewish history. No monuments marked absence. A town half‑Jewish for five hundred years and then, in one October day in 1942, wasn’t.
 
-The church stood where the synagogue had been, its walls incorporating stones that still bore traces of Hebrew letters, palimpsest of erasure. The priest, when asked, knew nothing about Jews. "Before my time," he said, though the mezuzah marks on nearby doorframes suggested that forgetting was a choice, not chronology.
+The church stood where the synagogue had been, its walls incorporating stones that still bore traces of Hebrew letters. The priest, when asked, knew nothing about Jews. "Before my time," he said. But nearby doorframes still showed mezuzah marks.
 
-Ethan found him by accident, or perhaps by that divine choreography that had been guiding him since October. An old man sitting on a bench near what had been the market square, feeding pigeons with ritualistic precision—seven pieces of bread to each bird, counting in what sounded like Hebrew numbers.
+Ethan found him by accident. An old man sitting on a bench near what had been the market square, feeding pigeons from a paper bag while muttering complaints at them in what sounded like Hebrew. "You, fat one, you had enough. Share with the skinny one. Oy, like Jews you fight over crumbs."
 
 "You're Jewish," Ethan said in English, then tried the Hebrew: "Atah Yehudi?"
 
@@ -45,13 +45,13 @@ Stanisław's face changed, clouds shifting. "Steinberg..." He studied Ethan's fe
 
 "Rivka. She left for America before..." 
 
-"Rivka." His eyes brightened, then clouded with uncertainty. "Beautiful girl. Smart. Too smart, my mother said—girls shouldn't read so much. But Rivka..." He paused. "Or was that her sister Mindel? Sometimes the faces blur. Eighty years alone and you wonder if you're remembering people who existed or people you needed to exist."
+"Rivka." His face lit up, then frowned. "Ah, yes. Beautiful girl. Smart. Too smart, my mother said. But Rivka... wait, no." He shook his head irritably. "That was Mindel who was too smart. Rivka was the pretty one. Or maybe they were both pretty? Eighty years and faces blur together like watercolors in rain. Sometimes I think I'm making up half the people I remember." He laughed bitterly. "But I have to remember someone, or who will?"
 
 Stanisław stood with difficulty. "Come. You came to see what isn’t here. I’ll show you where it was."
 
-They walked through Brzeziny's phantom geography, Stanisław narrating invisibility: "Here, the kosher butcher. There, the cheder where we learned. Your grandmother sat there"—pointing to an empty lot—"in the women's section, third row, always third row because she said she could hear better but really because she could whisper to her friend Mindel."
+They walked through Brzeziny's streets, Stanisław pointing at buildings that weren't there. "Here, the kosher butcher. Terrible man, charged too much for chicken. There, the cheder where we learned." He stopped, looked confused. "Your grandmother sat... somewhere. Third row? Fourth? Memory is like a broken radio—sometimes it tunes in clear, sometimes just static."
 
-Each absence had specificity. Not just "Jews lived here" but "Moshe the tailor who hummed Psalm 23 while hemming." Not just "synagogue" but "where Yankel fell asleep every Shabbos and snored through the rabbi's sermon."
+"Moshe the tailor worked here—or was it Meyer? Both started with M. Anyway, one of them hummed while working. Psalm 23, I think. Maybe 42. Who remembers?" Stanisław waved his hand dismissively. "The synagogue was there. Yankel always fell asleep during services. Snored like a pig. The rabbi would glare but never said anything because Yankel gave money."
 
 At a small house on Długa Street, Stanisław stopped. "Your grandmother's house. The Kowalskis live there now. Good people. They maintain the garden she planted."
 
@@ -59,7 +59,7 @@ The house was modest, white‑washed, with windows that had watched everything a
 
 "How did you survive?" Ethan asked.
 
-"The Nowaks." He spat. "Good Christians who saved me and reminded me every day what it cost. Three years of bread and guilt. 'Remember, Stanisław, you owe us your life.' As if I could forget. As if they'd let me."
+"The Nowaks." He spat, then immediately looked guilty. "Ach, I shouldn't say that. They saved me. Three years in their cellar, sharing their food when they barely had enough. But Mrs. Nowak..." He made a face. "Every morning: 'Stanisław, eat your breakfast. Remember what we risk for you.' Every evening: 'Stanisław, say your prayers to our Jesus who protects you.' Good people. Terrible people. Both at once." He shrugged. "Maybe that's everyone."
 
 "Why did you stay?"
 
@@ -91,12 +91,8 @@ The guard, young enough to be his daughter, looked at his face, at his American 
 
 "Rodzina," she said softly. Family. She sealed the bag, marked it with special tape. "No one will open this."
 
-On the plane to Tel Aviv—the next stop in his journey through Jewish geography of exile and return—Ethan held the bag in his lap like the child he'd never have, like the past he'd never known, like the absence that would always be more present than any presence.
+On the plane to Tel Aviv, Ethan held the bag of earth in his lap. Through the airplane window, Poland disappeared into clouds.
 
-He texted Sera: "I found them. I found the absence of them."
+In his lap, the earth felt heavier than it should. Whether from memory or guilt, he couldn't tell.
 
-She responded with just a heart emoji.
-
-He understood. Some things have no words. Some absences are so complete they become their own presence. Some birds sing at Auschwitz because they don't know not to, and that ignorance is either the world's cruelty or its grace, and after walking through the geography of erasure, Ethan could no longer tell the difference.
-
-Through the airplane window, Poland disappeared. In his lap, the earth of Brzeziny felt heavier than it should, though he wasn't sure if it was the weight of memory or just his own guilt. Had he been witness or tourist? The birds at Auschwitz sang because that's what birds do—they don't know the history of where they nest. Maybe he was like them, making sounds in places he didn't understand. Stanisław remained. The earth remained. Whether Ethan belonged to either was a question he would carry home unanswered.
+His phone buzzed with work notifications. He turned it off.
