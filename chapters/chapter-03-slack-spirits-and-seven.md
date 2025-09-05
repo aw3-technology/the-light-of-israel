@@ -1,0 +1,183 @@
+# Chapter 3: Slack and Spirits
+
+The Slack notification read "drinks tonight?" and Ethan responded with a thumbs-up emoji he didn't mean.
+
+Wednesday afternoon in SoHo. Eighteenth floor, glass walls, the faint smell of someone's microwaved salmon lingering despite the aggressive ventilation. Early autumn sun cutting through blinds nobody adjusted.
+
+"So if we adjust the onboarding flow here," Naomi was saying, laser pointer scattering red dots on white walls like targets that meant nothing, "we should see a twelve percent increase in thirty-day retention."
+
+Ethan nodded at the appropriate moment, made a note he wouldn't read. His phone buzzed against the conference table—too many times in the last hour.
+
+"Ethan, what's your take on the friction points?"
+
+He looked up. Eight faces waiting.
+
+"The drop-off is happening right after payment method selection," he heard himself say. "Users are second-guessing at the moment of commitment."
+
+Everyone nodded. "Let's A/B test it." The meeting moved on.
+
+His phone buzzed again. Aaron in the group chat: "Broken Shaker at 7? They have that mezcal you pretended to like last time."
+
+Ethan typed back: "Can't wait to pretend again" with a laughing emoji that accurately represented nothing he felt.
+
+The meeting ended at 5:41 PM.
+
+At his desk, Ethan pulled up the dashboard. Seventeen metrics, all green arrows pointing up. His reflection in the monitor looked like a ghost laid over numbers.
+
+Josh stopped by, coffee in hand, casual lean against the desk partition that suggested friendship without requiring it. "You coming to drinks? Aaron's being particularly Aaron in the group chat."
+
+"Yeah, heading out soon."
+
+"Cool. That date yesterday—Rachel?"
+
+"Fine. Won't see her again."
+
+"The apps, man. My cousin met his wife at a bookstore."
+
+"Which one?"
+
+"Closed now."
+
+Josh wandered off. The metrics kept updating.
+
+The subway to Williamsburg was delayed. Signal problems. Ethan stood on the platform, the air thick with brake dust and impatience. His phone showed seven unread messages from the group chat—they were already at the bar.
+
+A busker played violin near the turnstiles—three ascending notes, then five descending.
+
+The train came packed. Everyone heading to Brooklyn for Wednesday night yoga, book clubs, dinner parties. Secular congregations.
+
+The Broken Shaker sat on Metropolitan Avenue. Exposed brick, Edison bulbs, reclaimed wood that smelled faintly of the previous bar's spilled beer and failed dreams.
+
+Through the window: Aaron holding court, Sarah doom-scrolling, Marcus already deflecting.
+
+The air inside—hops and sweat, aggressive cologne, lime.
+
+"Ethan!" Aaron stood for the brotherhood hug. "We're three rounds in, you need to catch up."
+
+Aaron Gold looked like success—tailored shirt, rimless glasses, maintained stubble. A thin gold chain caught the light at his throat, disappearing under his collar.
+
+"Rough day?" Ethan asked, signaling the bartender. Name tag: Gabriel.
+
+"Every day's rough when you're defending people the system wants to disappear." The words came out practiced, automatic.
+
+"Right." Ethan ordered an Old Fashioned. Nineteen dollars paid out for whiskey and sugar.
+
+Sarah looked up from her phone, dark circles under her eyes from staring at screens all day. "Did you guys see about the flooding in Pakistan? Twenty million displaced. And that thing in Gaza—the hospital. CNN says October could be worse."
+
+"World's ending and we're drinking cocktails," Marcus said, sipping his mezcal.
+
+"My editor wants me to write about millennial extinction anxiety," he added. "Memes and medication. What else is there?"
+
+Sarah looked up from her phone, where a message from David glowed unread—six weeks and counting. "We're the most informed, least effective generation in history."
+
+"Self-awareness isn't action," Marcus said, then caught himself repeating his own column. "Shit. I'm becoming my own rerun."
+
+Music played overhead—something indie, forgettable. Behind the bar, glasses clinked in the washer.
+
+"Speaking of ineffective," Aaron said, turning to Ethan, "how was the date with Rachel?"
+
+"Fine. She was nice. We had nothing in common."
+
+"Damn," Marcus whistled. "That's dark, even for you."
+
+"I mean, she was fine. It was fine. Everything was fine."
+
+A woman at the next table wore a Star of David necklace. Aaron's eyes caught it, slid away, returned. His hand moved to his throat, fingers brushing where his collar met skin—touching something hidden beneath the fabric, the ghost of a chai pendant he'd tucked away years ago.
+
+"You need to get back out there," Sarah said, three unread messages from David glowing on her screen.
+
+"All dating apps are the same app."
+
+"Capitalism ruins everything." Aaron raised his glass. They clinked.
+
+The conversation drifted. Netflix shows. Weekend plans. Aaron ordered another round—his fifth. He always set a hard limit when something was eating him.
+
+"Did you see Jerusalem?" Marcus asked, scrolling through news. "More settlements."
+
+Aaron's jaw tightened. "Netanyahu's using Judaism as cover for—" He stopped, knuckles white around his glass.
+
+"For what?"
+
+"For destroying what it means." The words came out broken. "My grandmother didn't survive so Israel could become—" He couldn't finish.
+
+The table went silent. Aaron never mentioned his grandmother. His hand found his collar, fingers touching the hidden chain.
+
+Ethan felt something shift in his chest—recognition, the pull of shared secrets. He almost spoke, almost said: *My grandmother too. Her stories, her candles, the prayers I never learned.* The words formed in his throat, then died there.
+
+"Another round?" Gabriel appeared. Behind him, the clock showed 7:12.
+
+"Yes," Aaron said too quickly. "Definitely yes."
+
+That made six. Aaron's fingers drummed the table—patterned beats, a pause, then more.
+
+He checked the time: 8:34 PM.
+
+Around them: startup pitches at the next table, muffled crying from the bathroom, prosecco toasts and iPhone flashes.
+
+"I'm so tired of living through historical events," Sarah said, finally opening David's message, then immediately closing it.
+
+Everyone laughed because it wasn't funny.
+
+"Remember regular capitalism?" Marcus asked. "Before late-stage, before climate collapse?"
+
+"I was at that protest last week. Union Square."
+
+Her phone buzzed. She looked down, face paling.
+
+"What?"
+
+"Nothing. Just—October seventh. There's something happening. Multiple sources saying—" She shook her head. "Never mind."
+
+Behind the bar, something rectangular had been painted over. Layer after layer of paint, but the shape still showed through.
+
+"I should head out."
+
+"Already? Come on, one more round."
+
+"Early meeting tomorrow."
+
+"Capitalism never sleeps." Marcus raised his glass, hand trembling slightly.
+
+The check came to $64.10.
+
+He hugged everyone goodbye. Sarah held on too long. Marcus barely touched. Aaron's embrace lasted exactly one second past comfortable, his mouth opening, closing.
+
+"Tomorrow," Aaron said instead. "Coffee. Don't forget."
+
+"I won't forget."
+
+Outside, early October warmth. The Uber driver had a Hebrew prayer hanging from his mirror.
+
+In the backseat, the group chat continued. Another drink appeared at 9:16.
+
+His phone buzzed. A separate text from Aaron, outside the group chat: "Hey man, can we grab coffee tomorrow? Just us. Need to talk about something real."
+
+The timestamp read 11:11 PM. Ethan stared at the double ones. His grandmother used to make wishes then, used to grab his small hand and tell him to wish for something real.
+
+Aaron never asked for "something real." Aaron defended everyone but himself.
+
+"Of course," Ethan texted back. "Name the place."
+
+Three dots appeared, disappeared. Aaron typing, deleting. The dots pulsed like a heartbeat.
+
+Finally: "Franco's in Carroll Gardens. Bad coffee but the owner remembers everyone. 10 AM?"
+
+"See you there."
+
+Ethan looked out at Brooklyn passing in the darkness—lights in windows where people were living lives that looked whole from this distance.
+
+Tomorrow was Thursday, October 5th. Two days before his grandmother's yahrzeit. Everything accelerating toward some moment none of them could see coming.
+
+Back in his apartment, Ethan scrolled through Twitter. Everyone angry about everything.
+
+Aaron's knuckles white around glass. The hidden chain. Sarah ignoring David's messages. Marcus armored in irony. All of them drowning separately, together.
+
+Brooklyn night sounds: sirens, laughter, faint singing from somewhere close. His grandmother used to hum something similar while cooking.
+
+Tomorrow Aaron would tell him something real. Tomorrow was Thursday, October 5th. Two days before his grandmother's yahrzeit.
+
+He closed his eyes, remembering his grandmother's hand squeezing his at the sight of those double ones. Her wish for him: something whole.
+
+Aaron's hidden chain.
+
+Tomorrow would bring whatever Aaron needed to say. Tonight, Ethan carried the weight of almost speaking, almost connecting, almost choosing to be known.

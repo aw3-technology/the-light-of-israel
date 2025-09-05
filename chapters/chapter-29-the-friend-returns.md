@@ -2,7 +2,7 @@
 
 Aaron Gold stood in Ethan's Jerusalem kitchen like an argument waiting to happen.
 
-Tuesday morning, July. 7:18 AM. The doorbell rang—Aaron with a backpack, sweat stains from the walk up. Five hundred and forty-one days since they'd really talked.
+Tuesday morning, July. 7:20 AM. The doorbell rang—Aaron with a backpack, sweat stains from the walk up. Over a year and a half since they'd really talked.
 
 "I should have called."
 

@@ -8,7 +8,7 @@ Sera stirred beside him, her hand finding his chest, the steady heartbeat that s
 
 His parents slept in the guest room—visiting from New York, still adjusting. "It's so different than we imagined," his mother had said yesterday, though Ethan couldn't tell if that was disappointment or wonder in her voice.
 
-The Old City at dawn: empty except for soldiers and insomniacs. Same route for three years. Muscle memory now, like his eighteen-minute showers had been in Brooklyn. *Am I just replacing one routine with another?* The thought came unbidden. *Same person, different backdrop?*
+The Old City at dawn: empty except for soldiers and insomniacs. Same route for three years. Muscle memory now, like his seventeen-minute showers had been in Brooklyn. *Am I just replacing one routine with another?* The thought came unbidden. *Same person, different backdrop?*
 
 The coffee shop at the corner—the owner nodded as Ethan passed, a gesture of recognition across the divide. Some mornings they exchanged a few words. Today, just the nod.
 
@@ -78,7 +78,7 @@ The minyan formed. Ten men, just enough. Some faces were new—tourists, visitor
 
 Ethan wrapped tefillin. The leather straps left marks on his arm that lasted until noon. Sera said they looked like bondage marks. "They are," he'd told her. She hadn't laughed.
 
-The prayers began—Shacharit, morning service, the same words said by Jews everywhere at this moment, the global synchronicity of prayer that made distance irrelevant, that connected Melbourne to Moscow to Manhattan to here, to this Wall, to this moment when Ethan Israel Stone davened with intention, with comprehension, with the knowledge that prayer wasn't request but recognition, wasn't asking but acknowledging, wasn't seeking but finding what was always there.
+The prayers began—Shacharit, morning service, the same words said by Jews everywhere at this moment, distance briefly thinning, connecting Melbourne to Moscow to Manhattan to here, to this Wall, to this moment when Ethan Israel Stone davened with intention, with the sense that prayer wasn't request but recognition, wasn't asking but acknowledging, wasn't seeking but finding what was always there.
 
 "Shema Yisrael..."
 
@@ -110,7 +110,7 @@ His parents appeared, having visited the women's section. His mother looked unco
 
 "Let them run," his father said, adjusting the kippah he still forgot he was wearing. "I mean... this is—" He paused, looking around. "This is their place, isn't it?"
 
-"Saba!" Lev called to his grandfather, the Hebrew word that meant grandfather but also returned, the linguistic coincidence that wasn't coincidence, that was the language itself encoding return, insisting on it, making every grandfather a reminder that return was possible, was necessary, was the only response to exile that made sense.
+"Saba!" Lev called to his grandfather. The word meant grandfather—and, elsewhere, return. Ethan let the double meaning sit.
 
 They walked home together through the Jerusalem morning that was beginning its Thursday routine—shops opening, traffic building. *It looks like home,* Ethan thought. *But does it feel like home, or am I just committed to the performance?* The question followed him like a shadow. Arabs sold bread to Jews who sold coffee to Christians who sold souvenirs to tourists who didn't understand they weren't touring but participating, weren't observing but becoming part of the story, the narrative that included everyone who'd ever walked these streets, touched these stones, breathed this air that tasted of history, of prophecy, of the future that was also past that was also present, all tenses existing simultaneously in the grammar of return.
 

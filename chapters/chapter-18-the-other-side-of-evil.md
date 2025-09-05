@@ -110,11 +110,11 @@ They climbed toward the Mount of Olives. Cemetery stones faced the Temple Mount�
 
 They walked back through shuttered markets, late-night learning spilling from yeshiva windows.
 
-At the study, Sera handed him the velvet bag. "Tomorrow morning. 7:18."
+At the study, Sera handed him the velvet bag. "Tomorrow morning. Early."
 
 "Is it hard to put on?"
 
-"The physical part? No. Kids learn it. But getting up at 7:18 every morning, believing it matters when the news is full of—" She shrugged. "That's the hard part."
+"The physical part? No. Kids learn it. But getting up at the same time every morning, believing it matters when the news is full of—" She shrugged. "That's the hard part."
 
 Rabbi Levi paused at his door. "Look, I don't understand half of what I'm telling you. The Zohar, the klipot—it's all theory until you try to live it." He rubbed his forehead. "My wife thinks I'm crazy, spending so much time on this. But what else do we have? Just do it. The doing might teach us something."
 
@@ -132,7 +132,7 @@ The Other Side was real.
 
 So was this side.
 
-He set his phone alarm for 7:18. Then deleted it. Set it again.
+He set an alarm. Then deleted it. Set it again.
 
 In one pocket, tefillin. In the other, the child's drawing—crayon flaking where he'd folded it.
 
