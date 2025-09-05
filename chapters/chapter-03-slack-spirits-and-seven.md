@@ -1,12 +1,12 @@
 # Chapter 3: Slack and Spirits
 
-The Slack notification read "drinks tonight?" and Ethan responded with a thumbs-up emoji he didn't mean.
+The Slack notification read "drinks tonight?" and Ethan responded with a thumbs-up emoji he didn't mean. He'd already calculated the optimal response time—seventeen minutes, not too eager, not too distant—another micro-optimization in the algorithm of social performance.
 
 Wednesday afternoon in SoHo. Eighteenth floor, glass walls, the faint smell of someone's microwaved salmon lingering despite the aggressive ventilation. Early autumn sun cutting through blinds nobody adjusted.
 
 "So if we adjust the onboarding flow here," Naomi was saying, laser pointer scattering red dots on white walls like targets that meant nothing, "we should see a twelve percent increase in thirty-day retention."
 
-Ethan nodded at the appropriate moment, made a note he wouldn't read. His phone buzzed against the conference table—too many times in the last hour.
+Ethan nodded at the appropriate moment, made a note he wouldn't read. His phone buzzed against the conference table—seven times in the last hour, he'd been counting without meaning to, the pattern recognition part of his brain always running in the background like a process he couldn't kill.
 
 "Ethan, what's your take on the friction points?"
 
@@ -54,11 +54,11 @@ The air inside—hops and sweat, aggressive cologne, lime.
 
 "Ethan!" Aaron stood for the brotherhood hug. "We're three rounds in, you need to catch up."
 
-Aaron Gold looked like success—tailored shirt, rimless glasses, maintained stubble. A thin gold chain caught the light at his throat, disappearing under his collar. Every culture had someone like Aaron—the one who'd made it while carrying invisible weight, success that looked perfect until you noticed how they touched their throat when no one was looking, checking if the hidden inheritance was still there.
+Aaron Gold looked like success—tailored shirt (Thomas Pink, Ethan noticed, the subtle pattern), rimless glasses (Warby Parker, the intellectual's choice), maintained stubble (three-day growth, precisely). A thin gold chain caught the light at his throat, disappearing under his collar—Star of David, Ethan knew without seeing, the way Aaron's fingers found it when discussing Palestine gave it away. Every culture had someone like Aaron—the one who'd made it while carrying invisible weight, success that looked perfect until you noticed how they touched their throat when no one was looking, checking if the hidden inheritance was still there.
 
-"Rough day?" Ethan asked, signaling the bartender. Name tag: Gabriel.
+"Rough day?" Ethan asked, already feeling Aaron's exhaustion seeping into his own shoulders, that hyper-empathic absorption that made him everyone's emotional sponge. He signaled the bartender. Name tag: Gabriel.
 
-"Every day's rough when you're defending people the system wants to disappear." The words came out practiced, automatic, like a closing argument he'd rehearsed so many times it had lost its conviction.
+"Every day's rough when you're defending people the system wants to disappear." The words came out practiced, automatic, like a closing argument he'd rehearsed so many times it had lost its conviction. Aaron's hand went to his collar, fingers finding the chain—his tell, Ethan had noticed, whenever the Jewish lawyer defending Palestinian clients felt the weight of his grandmother's survival pressing against his throat.
 
 "Right." Ethan ordered an Old Fashioned. Nineteen dollars paid out for whiskey and sugar. His jaw ached—he'd been clenching again without noticing.
 

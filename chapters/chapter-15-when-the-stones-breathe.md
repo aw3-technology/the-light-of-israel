@@ -4,7 +4,7 @@ The sherut climbed through the Judean Hills, and Ethan pressed his forehead agai
 
 Friday afternoon. Soldiers heading home for Shabbat, rifles casual as backpacks. Orthodox families, children bouncing between Hebrew and English. A woman texting beside him, Hebrew mixing with heart emojis on her screen. The driver's Mizrahi music competed with someone's Bluetooth speaker—American pop against ancient stone. The cacophony felt right for 2023 Jerusalem.
 
-"First time?" The soldier across from him asked in accented English, having marked him immediately as foreign, as searching, as lost—the particular lost that Americans carried like expensive luggage, visible from kilometers away.
+"First time?" The soldier across from him asked in accented English, having marked him immediately as foreign, as searching, as lost—the particular lost that Americans carried like expensive luggage, visible from kilometers away. He felt himself unconsciously straightening his posture to mirror her military bearing, his hyper-empathy already absorbing the alertness that never left Israeli shoulders.
 
 "Yes."
 
@@ -42,7 +42,7 @@ He fumbled with silverware placement while conversation flowed in three language
 
 Then she walked in.
 
-She emerged from the kitchen carrying challah, flour dusting her forearms, her dark hair escaping from a ponytail, looking harried. Late twenties, maybe thirty, wearing jeans and a white shirt with what looked like hummus stained near the pocket.
+She emerged from the kitchen carrying challah, flour dusting her forearms, her dark hair escaping from a ponytail, looking harried. She moved with the particular efficiency of someone who'd learned to compress mourning into motion, grief into purpose—Ethan recognized it immediately, his hyper-empathy picking up the frequency of recent loss vibrating just beneath her competent surface. Late twenties, maybe thirty, wearing jeans and a white shirt with what looked like hummus stained near the pocket.
 
 "Finally! The oven was being temperamental," she announced to no one in particular, setting the challah down harder than intended, one loaf rolling toward the edge. Ethan caught it reflexively.
 
@@ -68,7 +68,7 @@ The words came out wrong, too intense. He saw her eyebrows raise slightly.
 
 The French woman asked softly, "Were you there? During—"
 
-"No." Sera's voice came out sharp, then softer. "No. I was in Jerusalem. My best friend Michal was at the Nova festival. She..." A pause that contained everything. "The kids I work with, some of them saw their parents—" She shook her head. "Tonight we don't talk about work."
+"No." Sera's voice came out sharp, then softer. "No. I was in Jerusalem. My best friend Michal was at the Nova festival. She..." A pause that contained everything. Her hand went unconsciously to a small pendant at her throat—not religious, Ethan noticed, but a tiny camera charm. Photography. Memory. The things we hold when holding people becomes impossible. "The kids I work with, some of them saw their parents—" She shook her head. "Tonight we don't talk about work."
 
 An uncomfortable silence fell. One of the soldiers checked her phone. Ethan's phone buzzed—Aaron, again. Three texts in the last hour:
 "How's the promised land?"
@@ -81,7 +81,7 @@ The sun descended toward the horizon visible through ancient windows, and Mrs. R
 
 When they passed the wine for Kiddush, Ethan fumbled the words on the transliterated card, pronouncing 'borei' as 'boring.' Someone snickered—one of the twins.
 
-Sera happened to be standing beside him, reaching for the challah cover. "It's boh-RAY," she corrected, not quietly enough. "Like... actually, there's no English equivalent. Just listen."
+Sera happened to be standing beside him, reaching for the challah cover. "It's boh-RAY," she corrected, not quietly enough. The correction came automatically, teacher-like, but not unkind—the voice of someone used to helping foreigners navigate Hebrew's impossible landscape, each mispronunciation a small reminder of the distance between diaspora and home. "Like... actually, there's no English equivalent. Just listen."
 
 He tried again, overcorrecting, the word coming out garbled. His face burned.
 

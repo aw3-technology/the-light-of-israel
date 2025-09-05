@@ -1,6 +1,6 @@
 # Chapter 11: What Was Always Yours
 
-"What do you remember from your bar mitzvah?" Rabbi Levi had asked. The question cracked something open.
+"What do you remember from your bar mitzvah?" Rabbi Levi had asked—not as a question but as a key, knowing exactly which lock it would open. The question cracked something open.
 
 Tuesday evening, October 17th. Ethan's apartment floor covered in boxes from storage, his mother's handwriting fading on labels: "Ethan - High School," "Ethan - College," and buried deepest: "Ethan - Bar Mitzvah 2003."
 
@@ -88,7 +88,9 @@ His phone buzzed. Rabbi Levi: "Your portion was Lech-lecha, wasn't it?"
 
 "How did you know?"
 
-"It's always Lech-lecha for the ones who come back. Abraham's journey. Yours too."
+Three dots appeared, disappeared, appeared again—as if the rabbi was choosing his words from some vast library of knowing.
+
+"It's always Lech-lecha for the ones who come back. Abraham's journey. Yours too." The message felt less like observation than prescription, as if Rabbi Levi had read his file in some celestial database, knew his path before he walked it.
 
 Outside: "Jews for Justice" on cardboard. "Never Forget" on another sign. The city holding all its contradictions at once.
 

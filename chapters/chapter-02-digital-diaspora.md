@@ -2,7 +2,7 @@
 
 Ethan had been swiping for forty-five minutes and couldn’t recall a single face.
 
-Left, left, left, right, left—Brooklyn dusk bleeding orange through his window while profiles blurred past. Yoga poses at sunset, founders on summits, the same declarations about adventures and lazy Sundays. Sarah had called him "emotionally absent" eight months ago. She was right; knowing hadn't made him any more present.
+Left, left, left, right, left—Brooklyn dusk bleeding orange through his window while profiles blurred past. Yoga poses at sunset (tree pose, always tree pose), founders on summits (hands raised in victory), the same declarations about adventures and lazy Sundays. He caught himself arranging the rejected profiles in mental categories: 'too happy,' 'trying too hard,' 'reminds me of someone'—the product manager's taxonomy of loneliness. Sarah had called him "emotionally absent" eight months ago. She was right; knowing hadn't made him any more present.
 
 Rachel Klein would be his thirty-seventh first date since Sarah. Her message had cut through the noise: "Your bio says you optimize user journeys. Can you optimize this awkward opening message?" Direct. Funny enough. Wednesday evening date—low stakes, easy exit.
 
@@ -13,7 +13,7 @@ A face calibrated for competence, tuned low for anything else. Somewhere in that
 Three days until her yahrzeit. He hadn't lit a candle last year.
 The yahrzeit candle lived in the junk drawer beside spare batteries and orphaned keys, a small cylinder of wax he pretended not to see when hunting for tape.
 
-The Uber driver's name was Abraham. Of course it was. Ethan clocked the coincidence, then scolded himself for reading patterns into everything lately.
+The Uber driver's name was Abraham. Of course it was. Ethan clocked the coincidence—Abraham, father of nations, on the way to meet Rachel, mother of Israel—then scolded himself for reading patterns into everything lately. Still, the pattern recognition part of his brain filed it away: third Abraham this week, seventh biblical name today.
 
 "Going somewhere nice?" Abraham asked, accent carrying warmth from somewhere Ethan had never visited. He was humming, unselfconscious, a melody Ethan couldn't place.
 
@@ -21,14 +21,14 @@ The Uber driver's name was Abraham. Of course it was. Ethan clocked the coincide
 
 "Ah." Abraham's eyes found his in the mirror. "You'll find what you're looking for, my friend. Sometimes not where you expect."
 
-The ride took its usual span—long enough to skim Rachel's profile, short enough to avoid real conversation. Marketing at a wellness startup, Northwestern, Columbia MBA, Fort Greene. In her photos she held wine glasses at gallery openings where the lighting was always golden hour.
+The ride took its usual span—seventeen minutes exactly, he'd timed this route before. Long enough to skim Rachel's profile (scanning for conversation topics: wellness trends, Northwestern memories, that Thailand trip), mentally rehearsing three different opening lines depending on her energy level. Short enough to avoid real conversation with Abraham, who kept glancing at him in the mirror with knowing eyes. Marketing at a wellness startup, Northwestern, Columbia MBA, Fort Greene. In her photos she held wine glasses at gallery openings where the lighting was always golden hour.
 
 Three couples exited as he arrived. Perfect timing.
 
 Rachel sat in the second booth, exactly like her photos—proof and letdown at once. Highlights catching restaurant light, studied effortlessness. A small scar above her left eyebrow that her fingers kept finding.
 From the kitchen: citrus zest releasing under a cook's knife, a thread of garlic, steam carrying orange peel and char.
 
-Brief embrace. Bergamot and something sharper—ginger root, maybe. The scent of someone who shopped at Whole Foods and read articles about adaptogens.
+Brief embrace. Her tension transferred immediately into his shoulders—he could feel her nervousness like a frequency only he could hear. Bergamot and something sharper—ginger root, maybe. The scent of someone who shopped at Whole Foods and read articles about adaptogens. Without thinking, he adjusted his posture to mirror hers, lowering his energy to match her anxiety level, a hyper-empathic calibration he'd been doing since childhood.
 
 "You made it through Brooklyn traffic."
 
@@ -37,6 +37,8 @@ Brief embrace. Bergamot and something sharper—ginger root, maybe. The scent of
 Rachel ordered orange wine before he'd opened the menu. "Trust me," she said, fingers grazing his wrist. "It's having a moment."
 
 "So tell me about optimizing user journeys," she said, leaning forward. "Your profile made it sound almost—" she searched—"interesting."
+
+He noticed her speech pattern—slight uptick at sentence ends, California influence over East Coast roots—and found himself unconsciously matching it.
 
 "I figure out why people abandon their shopping carts."
 
@@ -78,11 +80,11 @@ The accuracy stung. "What about you?"
 
 "Exactly. Like we're all auditioning for roles but nobody knows what the play is. Or even the lines."
 
-"Digital diaspora," he said without thinking.
+"Digital diaspora," he said without thinking. The phrase felt right—all these profiles scattered across apps like his ancestors across continents, everyone searching for connection but finding only distance measured in swipes.
 
 "What?"
 
-He started to explain—how, at work, he tracked users who wandered off and never returned, little dots slipping from a funnel, churn as a kind of exile—and heard himself turning her into a dashboard. "Nothing. Just... wandering."
+He started to explain—how, at work, he tracked users who wandered off and never returned, little dots slipping from a funnel, churn as a kind of exile. His mind was already building the framework: user acquisition (matching), activation (first message), retention (second date), referral (meeting friends). Dating was just broken UX design—too many friction points, unclear value proposition, no proper onboarding flow. He heard himself turning her into a dashboard. "Nothing. Just... wandering."
 
 Rachel studied him with new interest. "My grandmother used to say we were all in exile until we found our way home. Never knew what she meant." Bitter laugh. "Probably Israel."
 
@@ -100,6 +102,8 @@ He thought about leaning across the table and decided against it, letting the ga
 
 "This is nice," Rachel said, pulling back.
 
+He felt her pulling away emotionally before she moved physically—that subtle energetic shift he always caught, the precursor to goodbye.
+
 "It is."
 
 The check arrived. Ethan reached for it automatically; Rachel did the wallet dance. Outside, October air carried hints of autumn and somewhere, distant singing—from the Chabad house down the block, or maybe just Brooklyn's ambient noise.
@@ -114,13 +118,13 @@ Another kiss—brief, final. The Uber ride back: careful space between them, her
 
 He watched through her window as she disappeared upstairs, saw the blue glow of her phone screen, thumb already swiping. The same carousel they'd both just performed in person.
 
-Back home, Ethan's thumb hovered over his phone. He could text Rachel now. Tell her about Berlin, about his grandmother's train, about candles and forgetting. The message started itself: "Your grandmother and mine..." but he deleted it before the second word.
+Back home, Ethan's thumb hovered over his phone. He'd already mentally composed seventeen versions of the follow-up text, each calibrated for different levels of interest, different possible futures. The optimization never stopped—A/B testing his own heart. He could text Rachel now. Tell her about Berlin, about his grandmother's train, about candles and forgetting. The message started itself: "Your grandmother and mine..." but he deleted it before the second word.
 
 His mother had texted: "Three days until Grandma's yahrzeit. Will you light a candle this year?" He typed, "I will," watched the gray dots of his own resolve pulse, then held backspace until the promise disappeared.
 
 Rachel's grandmother, last boat from Gdańsk. His grandmother, train from Berlin. Both women carrying prayers their grandchildren wouldn't understand, planting themselves in American soil with nothing but hope and terror.
 
-He opened the dating app. The same faces from this morning, rearranged. His thumb moved automatically—left, left, right, left. Each face a door to the same empty room.
+He opened the dating app. The same faces from this morning, rearranged—he recognized them all now, had unconsciously memorized their patterns. Jessica with the hiking photos appeared every twelve hours. David with the dog showed up at 9 PM precisely. The algorithm's patterns were becoming visible to him, like seeing the code behind the matrix. His thumb moved automatically—left, left, right, left. Each face a door to the same empty room.
 
 But somewhere between swipes, he stopped. Listened to the Chabad house singing drifting through his window. Felt the weight of three days, the yahrzeit candle in the junk drawer, the conversation he'd walked away from.
 

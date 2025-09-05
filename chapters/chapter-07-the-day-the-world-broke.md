@@ -8,7 +8,7 @@ Innocent as weather.
 
 The moment before the vessels shattered.
 
-Ethan had woken late on Saturday morning, October 7th—Simchat Torah, though he wouldn't realize the significance until later—head thick from Friday night drinks at another Williamsburg bar where everyone performed their curated selves and discussed optimization strategies for everything except meaning while the world turned outside their carefully maintained bubbles of irrelevance. His sheets were damp with night sweat, the fabric twisted around his legs like the binding straps he'd once seen on his grandmother's prayer shawl, though he wouldn't make that connection until much later. The taste in his mouth: oxidized alcohol and something metallic, like pennies, like blood, like his body already knew what his mind hadn't registered. His phone face-down on the nightstand—a futile gesture toward boundaries he'd never actually maintain—and he'd managed exactly three minutes and fourteen seconds of consciousness before reaching for it, the muscle memory operating independent of intention, his thumb already scrolling before his eyes could focus, seeking the next micro-dose of outrage to substitute for actual feeling.
+Ethan had woken late on Saturday morning, October 7th—Simchat Torah, though he wouldn't realize the significance until later—head thick from Friday night drinks at another Williamsburg bar where everyone performed their curated selves and discussed optimization strategies for everything except meaning while the world turned outside their carefully maintained bubbles of irrelevance. Three alarms had failed to wake him—set for 8:00, 8:03, 8:06—his usual anxiety override system defeated by alcohol and exhaustion. His sheets were damp with night sweat, the fabric twisted around his legs like the binding straps he'd once seen on his grandmother's prayer shawl, though he wouldn't make that connection until much later. The taste in his mouth: oxidized alcohol and something metallic, like pennies, like blood, like his body already knew what his mind hadn't registered. His phone face-down on the nightstand—a futile gesture toward boundaries he'd never actually maintain—and he'd managed exactly three minutes and fourteen seconds of consciousness before reaching for it, the muscle memory operating independent of intention, his thumb already scrolling before his eyes could focus, seeking the next micro-dose of outrage to substitute for actual feeling.
 
 Coffee first. Please, coffee first. 
 
@@ -28,7 +28,7 @@ Like emergency.
 
 Like something burning that shouldn't be burning.
 
-Standing at his kitchen counter, he'd scrolled through the usual—someone's sourdough success, someone's marathon training, someone's baby announcement, the infinite loop of other people's lives looking lived. His thumb moved automatically, algorithmically trained to seek the next dopamine hit of outrage or envy or whatever feeling could pierce the Wellbutrin haze.
+Standing at his kitchen counter, he'd scrolled through the usual—someone's sourdough success (Sarah K., always Sarah K. with the perfect crumb), someone's marathon training (26.2 miles in 3:47:22), someone's baby announcement (third one this month, he'd been mentally tracking), the infinite loop of other people's lives looking lived. His brain automatically categorized each post: engagement bait, humble brag, genuine joy—the product manager's taxonomy applied to human connection. His thumb moved automatically, algorithmically trained to seek the next dopamine hit of outrage or envy or whatever feeling could pierce the Wellbutrin haze.
 
 The first headline hadn't registered.
 
@@ -154,7 +154,7 @@ Ethan stared at the message. An op-ed reference. While people were still dying, 
 
 Each message felt like a slap. Ethan typed: "People are being slaughtered right now." Deleted it. Typed: "Stop making this about your politics." Deleted it. Typed: "Why aren't you crying?" Deleted that too.
 
-His chest felt too tight, like his ribs were crushing inward, each breath shallow and painful. His shirt was soaked with sweat he hadn't noticed, cold against his skin. He could smell himself—fear-sweat, sharp and animal. He called his parents—needed to hear voices that knew him before he knew himself. The phone rang once, his mother's breathing audible before she even spoke. She'd been holding the phone, waiting.
+His chest felt too tight, like his ribs were crushing inward, each breath shallow and painful. He could feel the terror of every person in every video, their panic flooding his nervous system until he couldn't distinguish between his fear and theirs—the hyper-empathic absorption that usually just made him tired at parties now threatening to short-circuit his entire being. His shirt was soaked with sweat he hadn't noticed, cold against his skin. He could smell himself—fear-sweat, sharp and animal. He called his parents—needed to hear voices that knew him before he knew himself. The phone rang once, his mother's breathing audible before she even spoke. She'd been holding the phone, waiting.
 
 "Ethan? Oh thank God. Have you seen—"
 
@@ -174,7 +174,7 @@ Cousins he'd never known existed. Family trees he'd never climbed. Connections h
 
 He hung up and immediately felt worse. His phone showed 613 unread messages across all platforms.
 
-Twitter was a massacre of its own—everyone performing their politics while bodies were still warm. The same events refracted through infinite lenses until people were dead and that was the only truth that mattered.
+Twitter was a massacre of its own—everyone performing their politics while bodies were still warm. Ethan found himself creating mental categories: 'performative grief' (67%), 'genuine shock' (12%), 'immediate politicization' (21%). The percentages helped, gave structure to chaos, even as he hated himself for reducing human response to metrics. The same events refracted through infinite lenses until people were dead and that was the only truth that mattered.
 
 A video surfaced that broke through his last defense. A child, couldn't be more than five, calling "Ima! Ima!" through smoke and chaos. Ima—mommy in Hebrew, a word Ethan didn't know he knew until he heard it and felt it land like a stone in his chest. The child's voice pure terror, pure need, pure human suffering that predated politics and survived all analysis.
 
@@ -182,9 +182,11 @@ Ethan heard himself sobbing—ugly, body-shaking sobs that seemed to come from s
 
 He stopped, shocked by his own voice. What had he just said? The words felt ancient in his mouth, older than him, older than his forgetting. Hebrew, definitely Hebrew, but from where? From when? His grandmother's funeral—yes, people had said this. The rabbi had said this. But why was he saying it now, alone in his Brooklyn apartment, watching strangers die on his phone?
 
-The sun was setting now, though he hadn't noticed the day passing. Time had become elastic, stretching and compressing—hours of scrolling felt like minutes, seconds of certain videos felt like forever. The apartment dark except for his phone's glow, that modern campfire around which he huddled alone, watching civilization burn.
+The sun was setting now, though he hadn't noticed the day passing. He'd been pacing—kitchen to living room to bedroom, seventeen steps, twenty-three steps, eleven steps, the numbers registering automatically in his pattern-seeking mind even as it reeled from overload. Time had become elastic, stretching and compressing—hours of scrolling felt like minutes, seconds of certain videos felt like forever. The apartment dark except for his phone's glow, that modern campfire around which he huddled alone, watching civilization burn.
 
 Aaron's texts kept coming: "Just spoke to my colleague at B'Tselem." "Reading Judith Butler on grievable lives." "Have you seen this Democracy Now segment?"
+
+Ethan could feel Aaron's emotional distance even through text—the intellectual processing, the careful citations, the way he turned tragedy into bibliography. It was Aaron's defense mechanism, Ethan's hyper-empathy recognized, the way Aaron's grandmother's trauma had taught him to analyze rather than feel.
 
 Ethan typed: "Children are dead." Sent it. 
 
@@ -192,7 +194,7 @@ The three dots appeared and disappeared. Finally: "I know. It's complex. I'm jus
 
 True. Relevant. And somehow exactly wrong for this moment when Ethan's body was teaching him something his mind had forgotten—that some pain is personal even when it shouldn't be, that some connections survive all attempts at severing, that somewhere in his DNA was a memory of other violence, other children calling for mothers who wouldn't come, other Sabbaths turned into mourning.
 
-His laptop sat open on the coffee table, cursor blinking in a search bar where he'd typed "synagogues near me" without remembering doing it. The results showed several within walking distance—Reformed, Conservative, Orthodox, Chabad, varieties of something he'd never understood the differences between. Each website showing service times, upcoming events, communities gathering for precisely this—collective grief, collective memory, collective something he'd spent his entire adult life avoiding. The search algorithm couldn't process what he was really looking for—not a location but a system restore point, not a synagogue but a way to rollback to before the crash, before his entire operating system had been compromised by ancestral code he didn't know was still running.
+His laptop sat open on the coffee table, cursor blinking in a search bar where he'd typed "synagogues near me" without remembering doing it. He'd already opened seventeen tabs—researching each synagogue's denomination, reading reviews like they were product features, creating a mental spreadsheet of proximity, service times, theological approaches. Even in crisis, the optimization instinct persisted. The results showed several within walking distance—Reformed, Conservative, Orthodox, Chabad, varieties of something he'd never understood the differences between. Each website showing service times, upcoming events, communities gathering for precisely this—collective grief, collective memory, collective something he'd spent his entire adult life avoiding. The search algorithm couldn't process what he was really looking for—not a location but a system restore point, not a synagogue but a way to rollback to before the crash, before his entire operating system had been compromised by ancestral code he didn't know was still running.
 
 He closed the laptop. Opened it again. Closed it.
 
@@ -208,7 +210,7 @@ Ethan found himself at his window, looking out at Brooklyn, the lights in other 
 
 His reflection in the dark window showed a face he didn't recognize—puffy from crying, drawn with exhaustion, aged ten years in ten hours. Behind that face, his grandmother's genetics looking back at him, the features that had survived pogrom and migration, assimilation and forgetting, everything that had brought him to this moment of standing in a Brooklyn apartment crying for strangers who weren't strangers, who were family he'd never met, who were him in some fundamental way he'd spent thirty-three years denying.
 
-He opened his laptop again, the search still there: "synagogues near me." This time he clicked on one—Congregation Beth Shalom, Upper West Side. Reform, it said. Welcoming, it said. Friday night services at 7:18 PM.
+He opened his laptop again, the search still there: "synagogues near me." This time he clicked on one—Congregation Beth Shalom, Upper West Side. Reform, it said. Welcoming, it said. Friday night services at 7:18 PM. The time jumped out at him—7:18 again, that number following him, appearing everywhere since his grandmother's death. Pattern recognition firing despite everything—no, because of everything.
 
 He closed the laptop.
 
