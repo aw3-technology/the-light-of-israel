@@ -122,7 +122,15 @@ Through the window, an ambulance siren. Then another.
 
 "Go," Rabbi Levi said. "Gather what we scattered."
 
-The last night with Sera, they created their own Shabbat on a Tuesday. She lit candles, he blessed wine. They ate slowly, telling stories. She gave him a small stone from the Dead Sea, smooth and dense with salt.
+The last night with Sera, they created their own Shabbat on a Tuesday. Ethan unpacked the travel candlesticks she'd given him—his grandmother's replicas—and set them on her small table.
+
+"I want to light these," he said. Not asking. Deciding.
+
+Sera paused, wine bottle in hand. In Israel, tradition said she should light them. But something in his voice—
+
+"Yes," she said. "You should."
+
+He struck the match himself, cupped the flame against the window's draft. The candles caught, burned steady. His blessing came in Hebrew now, words that had found him rather than been taught. She blessed wine. They ate slowly, telling stories. She gave him a small stone from the Dead Sea, smooth and dense with salt.
 
 "To remember the lowest point," she said. "And that you can float."
 
@@ -205,3 +213,7 @@ Exile beginning. Love suspended. War coming.
 The Mediterranean spread below, the same sea Jews had been crossing for millennia. But this time, Ethan wasn't fleeing.
 
 He was being sent.
+
+In his pocket, the travel mezuzah Rabbi Levi had pressed into his palm grew warm against his fingers. *How sparks spread,* the rabbi had whispered. Through doorways. Across borders. Into exile.
+
+Ethan understood now. This time, he was carrying the spark.

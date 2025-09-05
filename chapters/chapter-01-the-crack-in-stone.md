@@ -2,29 +2,29 @@
 
 Ethan Stone woke to his phone alarm at 7:18 AM.
 
-The time caught his eye—always 7:18, no matter when he set it. His backup alarm would go at 7:21, the third at 7:24. Three chances to rejoin the living.
+The time caught his eye. His backup alarm would go in three minutes, but he was already awake, staring at the ceiling.
 
-He sat up, feet finding the cold floor. Tuesday. Or Wednesday. The days had stopped distinguishing themselves months ago, blurring into one endless loop of product launches and metrics reviews. His mouth tasted metallic—the flavor of dreamless sleep.
+He sat up, feet finding the cold floor. Tuesday morning. His mouth tasted metallic—too much coffee, too little sleep.
 
 "Get up," he said aloud, his voice cracking from disuse. The sound startled him. When had he last spoken before noon?
 
-His phone lit up: seventeen notifications.
+His phone lit up: too many notifications to count.
 
 Josh from engineering: "hey can you check the Mixpanel funnel?"
 Maya from design: "v3 wireframes ready"
 Calendar reminder: "9:30 standup"
 
-No one calling his real name. Not the one his grandmother used to sing.
+No one calling his real name.
 
-The coffee maker gurgled—Ethiopian single origin, nineteen dollars a bag. He poured a cup, black. The mug warmed his palms but the heat didn't penetrate deeper. Nothing did anymore.
+The coffee maker gurgled—expensive single origin that tasted like nothing. He poured a cup, black. The mug warmed his palms but the heat didn't penetrate deeper. Nothing did anymore.
 
-He moved through his morning routine: shower (seventeen minutes), dress (tech-casual uniform), check phone (three more notifications). Each action automatic, performed by muscle memory while his mind floated somewhere above, observing but not participating.
+He moved through his morning routine: long hot shower, tech-casual uniform, phone check. Each action automatic, performed by muscle memory while his mind floated somewhere above, observing but not participating. The shower lasted until the hot water ran out—seventeen minutes, same as always.
 
-In the bathroom mirror: dark circles, three-day stubble, eyes that had forgotten how to focus on anything beyond screens. He looked away.
+In the bathroom mirror: dark circles, stubble, eyes red from too much screen time. The fluorescent light made everything look sickly. He splashed cold water on his face, tasted toothpaste and regret.
 
-His apartment: expensive minimalism masking emptiness. Everything in its precise place—keys on the third hook, shoes by frequency of use. On the bookshelf, barely visible behind design manuals, his grandmother's brass menorah. Seven branches tarnished green-black, waiting for light he'd forgotten how to kindle.
+His apartment: expensive minimalism masking emptiness. Everything in its precise place. On the bookshelf, barely visible behind design manuals, his grandmother's brass menorah. Seven branches tarnished green-black.
 
-Upstairs, footsteps paced. The insomniac in 4B, every morning at three. Sometimes crying from 3C. Arguments from 5A. The building's collective insomnia pressing through the walls.
+Upstairs, footsteps paced—4B's insomniac, right on schedule. The building's thin walls carried everything: crying, arguments, lives grinding against each other.
 
 His phone buzzed. Three missed calls from "Mom." The fourth came while he was still in his bathrobe.
 
@@ -32,53 +32,67 @@ His phone buzzed. Three missed calls from "Mom." The fourth came while he was st
 
 "I'm fine, Mom. Getting ready for work."
 
-"You sound tired." Something in her voice—not just worry but longing. "Your father thinks we should visit next month. We could go to that place in Brooklyn you liked as a kid, the one with the potato knishes Grandma would—"
+"You sound tired." Something in her voice—not just worry but longing. "Your father thinks we should visit next month. We could go to that place in Brooklyn you liked as a kid, the one with—"
 
-"I'm busy with a product launch."
+"I'm swamped with deadlines."
 
-"Ethan." Her voice caught. "It's been almost a year since Grandma Rivka passed. October 7th—her yahrzeit is coming up. I found her recipe box yesterday. Her handwriting..." She paused. "I thought maybe we could light a candle together."
+Silence. Then: "It's been almost a year since Grandma Rivka passed."
 
-October 7th. One week away. He'd been avoiding the date, but dates didn't care about avoidance.
+The words hit like cold water. October 7th. One week away.
 
-"I have to go. I'll call you tonight." The words came out too fast, meant to soften what they still hardened. He heard her intake of breath, the hurt he was causing, but couldn't stop himself.
+"I found her recipe box yesterday," his mother continued, voice breaking slightly. "Her handwriting..."
+
+Ethan closed his eyes. "Mom, I really have to—"
+
+"I thought maybe we could light a candle together."
+
+"I'll call you tonight." The lie came out automatic. He heard her intake of breath, the hurt he was causing, but couldn't stop himself.
 
 He hung up and immediately regretted it. The phone sat silent, accusatory as any mirror.
 
-The subway was packed. Bodies pressed close, everyone scrolling through headlines. An Orthodox family got on at 14th Street—father's tzitzit visible, children switching between Hebrew and English. One boy clutched a Hebrew primer, pages soft from use.
+The subway was packed, bodies pressed close, everyone scrolling. Underground, the air smelled like brake dust and desperation. An Orthodox family got on at 14th Street—father's tzitzit visible, children switching between Hebrew and English. One boy clutched a Hebrew primer, pages soft from use.
 
-The sight caught in Ethan's chest. He'd had books like that once. His grandmother teaching him aleph-bet at her kitchen table, patient with his American tongue.
+The sight hit him like a fist. He'd had books like that once.
 
-At Union Square, a homeless man pointed directly at Ethan through the window. "Israel!" he shouted as the train pulled away. "Wake up!"
+At Union Square, a homeless man caught his eye through the window and pointed. "Wake up!" he shouted as the train pulled away.
 
-Ali's corner bodega. Cardamom and newsprint. The elderly Yemeni owner counted change into his palm. "Seven dollars, eighteen cents."
+Ali's corner bodega. Cardamom and newsprint, yesterday's headlines in Arabic script. The elderly Yemeni owner counted change into his palm. "Seven eighteen."
 
-Always $7.18. No matter what he bought. Ethan had stopped questioning it.
+Ethan pocketed the coins without looking.
 
 "Have blessed day, brother."
 
-Ethan nodded, the blessing sliding off him like water off stone.
+Ethan nodded and pushed through the door. Outside, the blessing felt distant, unearned.
 
 His work badge: "Ethan Stone, Senior Product Manager." No middle name. He'd dropped "Israel" in college. Too complicated to explain.
 
-The office hummed on the eighteenth floor. Glass walls, new carpet smell, espresso machine hissing. At 9:30 standup:
+The office hummed on the eighteenth floor. Glass walls, new carpet smell, espresso machine hissing. At 9:30 standup, Josh looked expectant.
 
-"Drop-off at value realization. Ship the onboarding tweak, measure lift, iterate."
+"So the conversion funnel—"
 
-The words came out automatic, corporate poetry that meant nothing. Josh nodded. Maya took notes. The machine of optimization churned on.
+"Drop-off at value realization," Ethan interrupted. "Ship the onboarding tweak, measure lift, iterate."
 
-His phone buzzed. Mother: "Your grandmother would be disappointed."
+"But what about the user research Maya did?"
 
-The text hit like a physical blow.
+Ethan's jaw tightened. "Data drives decisions, not feelings." The words came out sharper than intended. Maya's face flushed. Josh cleared his throat.
 
-Rivka Stone. Her kitchen suddenly vivid—challah dough, chicken soup, Shabbat candles. "Close your eyes, shayna punim. Feel the warmth on your face. That's God saying hello."
+"Okay, well... I'll push the code then."
 
-She'd died last October 7th. With her went the last thread to something older than understanding.
+The meeting dissolved into awkward silence. Ethan stared at his laptop screen, watching his reflection superimposed on spreadsheet cells.
 
-Standing in his sterile office, Ethan felt something crack inside. Not breaking—cracking. Like ice before spring. The crack felt dangerous. Necessary.
+His phone buzzed during the meeting. A text from Mother: "Your grandmother would be disappointed."
+
+Ethan's hands went cold. He excused himself, walked to the bathroom, and stared at the message until the words blurred. When he came back, Josh was explaining user journeys to an empty conference room.
+
+Rivka Stone. Her kitchen suddenly vivid—challah dough, chicken soup, Shabbat candles warming his child's face.
+
+She'd died last October 7th. With her went the last thread to something he'd never learned to name.
+
+Standing in his sterile office, Ethan felt something give way inside. A hairline fracture in whatever had been holding him together.
 
 By 6 PM, the office emptied. Ethan sat alone, laptop open to an empty compose window waiting like an unasked question. Outside, the sun set behind SoHo's glass canyon, casting shadows that made the city momentarily beautiful.
 
-The elevator descended from eighteen like sinking through water, mirrors reflecting infinite identical tired men in identical expensive clothes.
+The elevator descended from eighteen, mirrors reflecting tired men in expensive clothes. Ethan looked away from his own reflection.
 
 On the street, evening air carried food truck smoke—halal chicken, cumin. He passed 541 West Broadway. The numbers caught his eye before he dismissed them.
 
@@ -86,18 +100,18 @@ The subway home. Brooklyn approaching through scratched windows. Somewhere in hi
 
 Maybe tonight.
 
-The train pulled into his station just after seven. He noticed the time and almost laughed at himself for looking for patterns.
+The train pulled into his station. Evening commuters pushed past him, everyone eager to get home to whatever waited for them.
 
-His phone buzzed as he reached street level. 7:19 PM. Unknown number:
+His phone buzzed as he reached street level. Unknown number:
 
-*"The light you're looking for is closer than you think. Thursday evening. Congregation Beth Shalom, 7th Avenue. Ask for Rabbi Levi. Your grandmother spoke of you often."*
+*"The light you're looking for is closer than you think. Thursday evening. Congregation Beth Shalom, 7th Avenue. Ask for Rabbi Levi. She kept your baby shoes in her recipe box."*
 
-Ethan stared at the message. Nobody had this number who would know about his grandmother. Nobody knew he was looking for anything, least of all light.
+Ethan stopped walking. His baby shoes. White leather, size 2, with Hebrew letters his grandmother had carefully painted on the soles. Nobody could know that detail except...
 
 But October 7th was coming. And Rivka Stone had always said that sometimes things lined up when you least expected.
 
-He pocketed his phone and walked toward his apartment. The message felt like a door opening in a room he'd thought had no exits.
+He stared at the screen until it went dark, then read the message again. The detail was too specific, too intimate. His grandmother had shown him those shoes once, years ago, laughing about the Hebrew letters she'd painted to "keep his feet walking toward home."
 
 Thursday evening. Three days away.
 
-His steps quickened.
+He walked toward his apartment, the phone warm in his hand, the message burning in his mind like a door that had been locked for years suddenly standing open.

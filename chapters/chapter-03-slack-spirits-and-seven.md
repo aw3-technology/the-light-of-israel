@@ -36,23 +36,21 @@ Aaron Gold looked like success—tailored shirt, rimless glasses, maintained stu
 
 "Rough day?"
 
-The bartender approached. Name tag: Gabriel.
+The bartender approached.
 
-"Every day's rough when you're defending people the system wants to disappear." Aaron's hand went to his collar.
+"Every day's—" Aaron started, then caught himself. "People at the firm. Case got thrown out. Technicality." His hand went to his collar.
 
-Ethan ordered an Old Fashioned. Nineteen dollars for whiskey and sugar.
+Ethan ordered an Old Fashioned.
 
 Sarah looked up from her phone, dark circles under her eyes. "Did you guys see the latest? Everything's getting worse."
 
-"World's ending and we're drinking cocktails," Marcus said.
+"World's ending and we're drinking cocktails," Marcus said. "Peak millennial behavior."
 
-"My editor wants a piece on extinction anxiety."
+"My editor wants a piece on extinction anxiety," Sarah said, fingers drumming against her phone case. "Deadline's tomorrow and I haven't written a word. Can't figure out the angle when I'm living it."
 
-A message from David glowed unread on Sarah's screen—six weeks now. "We're the most informed, least effective generation in history."
+"We know everything, do nothing," Marcus said, signaling for another drink. "At least we're consistent."
 
-"Self-awareness isn't action," Marcus said, then caught himself. "Shit. I'm becoming my own rerun."
-
-"Speaking of ineffective," Aaron said, "how was Rachel?"
+"Speaking of doing nothing," Aaron said, leaning forward, "how was Rachel?"
 
 "Fine. Nice. Nothing in common."
 
@@ -62,11 +60,13 @@ A message from David glowed unread on Sarah's screen—six weeks now. "We're the
 
 A woman at the next table wore a Star of David necklace. Aaron's eyes caught it, slid away. His hand found his collar again.
 
-"You need to get back out there," Sarah said, three unread messages from David on her screen.
+"You need to get back out there," Sarah said.
 
-"All dating apps are the same app."
+"All dating apps are the same—"
 
-"Capitalism ruins everything." Aaron raised his glass. They clinked.
+"Same app, different font," Marcus finished. "Capitalism ruins—"
+
+"Everything," Aaron said, raising his glass. They clinked, a little off-rhythm.
 
 The conversation drifted. Weekend plans. Aaron ordered another round—his fifth.
 
@@ -76,17 +76,23 @@ When he came back, he didn't mention it. Asked if anyone wanted fries.
 
 "Did you see about Jerusalem?" Marcus asked, scrolling.
 
-Aaron's jaw tightened. "They're using Judaism as cover for—" He stopped, knuckles white.
+Aaron's jaw tightened. "They're using—" He stopped, looked around the bar. "Forget it."
 
-"For what?"
+"Using what?"
 
-"For destroying what it means." His voice cracked. "My grandmother didn't survive so we could—" He couldn't finish.
+"Judaism. As cover." His voice dropped. "My grandmother, she didn't... she didn't survive for this."
 
-The table went silent. Aaron never mentioned his grandmother.
+The table went quiet. Music kept playing. Someone laughed at the bar. Aaron never mentioned his grandmother.
 
-Ethan almost spoke. Almost said: *My grandmother too. Her stories, her candles.* The words formed, then died.
+Ethan leaned forward. "What did she—" He stopped, everyone looking at him. "I mean, what did she tell you? About surviving?"
 
-"Another round?" Gabriel appeared.
+Aaron stared at him, surprised by the question.
+
+"She used to say..." Aaron's voice got quiet. "She used to say we survived for a reason. Not this reason." He gestured at nothing, everything.
+
+Ethan nodded, throat tight. Almost said: *My grandmother too. Her stories, her candles.* The words formed, then died. He sat back.
+
+"Another round?" The bartender appeared.
 
 "Yes," Aaron said too quickly.
 
@@ -94,7 +100,9 @@ That made six.
 
 Around them: startup pitches, bathroom crying, prosecco toasts.
 
-"I'm so tired of living through historical events," Sarah said.
+"God, I'm just—I'm so tired," Sarah said, rubbing her eyes. "Every day there's another crisis to track, another deadline, another reason to panic. I can't keep up."
+
+Marcus raised his glass. "Welcome to late-stage capitalism. Enjoy your stay."
 
 Everyone laughed because it wasn't funny.
 
@@ -102,9 +110,8 @@ Her phone buzzed. She looked down, face paling.
 
 "What?"
 
-"Nothing. Just—something about October seventh. Multiple sources—" She shook her head. "Never mind."
+"Nothing. Breaking news alert. Overseas stuff." She shook her head, put the phone away.
 
-Behind the bar, something rectangular had been painted over repeatedly, the shape still showing through.
 
 "I should head out."
 
@@ -112,13 +119,13 @@ Behind the bar, something rectangular had been painted over repeatedly, the shap
 
 "Early meeting."
 
-The check came to $64.10.
+The check came.
 
 Outside, Aaron caught Ethan's arm. "Tomorrow. Coffee. Don't forget."
 
 "I won't forget."
 
-In the Uber, the driver had a Hebrew prayer hanging from his mirror.
+In the Uber, the driver hummed something under his breath.
 
 Aaron texted separately: "Hey man, can we grab coffee tomorrow? Just us. Need to talk about something real."
 
@@ -134,10 +141,16 @@ Three dots appeared, disappeared. Finally: "Franco's in Carroll Gardens. Bad cof
 
 Tomorrow was Thursday, October 5th. Two days before his grandmother's yahrzeit.
 
-Back in his apartment, Ethan couldn't stop thinking about it: Aaron's white knuckles, the hidden chain, Sarah's unread messages, Marcus drowning in irony. All of them performing okayness while everything cracked.
+Back in his apartment, Ethan stared at Aaron's text.
 
-Brooklyn night sounds filtered through his window. Somewhere, faint singing.
+"Need to talk about something real."
 
-Tomorrow Aaron would tell him something real.
+Aaron never asked for real. Aaron dealt in legal briefs and craft cocktails and carefully curated vulnerability. Aaron had made it through thirty-two years without needing anything from anyone.
 
-Tonight, Ethan carried the weight of almost speaking, almost connecting, almost choosing to be known.
+Ethan typed and deleted three different responses. Finally sent: "Everything okay?"
+
+Three dots appeared. Disappeared. Appeared again.
+
+"Just need to tell someone who gets it."
+
+But Ethan didn't get anything. That was the problem.

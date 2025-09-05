@@ -10,19 +10,19 @@ Third call: surrender.
 
 "Hi, Mom."
 
-"Finally! I was starting to worry. You know how I worry when you don't answer."
+"Finally! I was starting to worry. What if something happened? What if you were hurt? You know I can't help myself, I just picture the worst—"
 
-Netflix frozen mid-episode, someone's face twisted in what the subtitles called "[ANGUISHED EXPRESSION]." He left it paused and aligned the remote with the edge of the coffee table like precision could fix a conversation.
+Netflix frozen mid-episode, someone's face twisted in mid-expression. He left it paused and aligned the remote with the edge of the coffee table like precision could fix a conversation.
 
 "Sorry, I was just—" The words caught. His mouth opened to say "drowning" but what came out was: "Working late."
 
-"Always working. Your father's here. David, it's Ethan!"
+"Always working, just like your father. Honey, you need to eat actual food, not whatever you're microwaving. David! DAVID! It's Ethan!"
 
 Through the phone: dishwasher hum, news voices, ice against glass.
 
 "How's Dad?"
 
-"Golf three times this week. His back's acting up." A pause. "How are you, honey? Really?"
+"Golf, golf, golf. Spends more time with his nine-iron than with me. His back's acting up but does he listen when I say see a doctor? No." A pause, voice softening. "But enough about us—how are you, sweetheart? And don't say 'fine.' I can hear it in your voice when you're not fine."
 
 The 'really' hung in the air like a door held open exactly three inches—enough to suggest entrance, not enough to actually enter.
 
@@ -51,31 +51,27 @@ She said 'minyan' like it rhymed with 'onion.'
 Static crackled on the line, the connection wavering.
 
 
-"How's work?" His father's voice suddenly in stereo, probably having picked up the extension in his study, the room where he managed other people's money with spreadsheets that measured everything except what mattered.
+"How's work?" His father's voice, clipped and measured—he'd picked up the extension in his study.
 
 "It's fine, Dad. User optimization."
 
-"I still don't understand what you do."
+"Revenue projections on target?"
 
 "I help people buy things they don't need more efficiently."
 
-His father cleared his throat.
+His father cleared his throat. "Job market's competitive. Benefits package solid?"
 
 Silence filled the line—three people breathing in different rooms. The Netflix screen flickered, pixels rearranging.
 
-"I almost forgot. Tomorrow is your grandmother's yahrzeit."
+"Oh! I almost forgot—tomorrow is your grandmother's yahrzeit."
 
-She pronounced it 'yar-zite.'
+She pronounced it 'yar-zite,' the way she said 'ballet' or 'croissant.'
 
-"October 7th. It's been a year."
-
-Through the wall—music suddenly louder.
-
-"I should light a candle," his mother continued, uncertainty creeping in. "That's what you do, right? Light a candle?"
+"October 7th. Can you believe it's been a year already? Time just—" Her voice caught. "I should light a candle. That's what you do, right? I looked it up online but there were so many different—do you know? Please tell me you know."
 
 "I don't know, Mom."
 
-"She would have known."
+"She would have known. She always knew what to do."
 
 Through the wall, music swelled. The sound made his chest tighten.
 
@@ -85,21 +81,17 @@ Through the wall, music swelled. The sound made his chest tighten.
 
 "She loved you. She said you had an old soul."
 
-"Don't be smart, Ethan Israel Stone."
+The smell hit him suddenly—challah rising, Friday afternoon sunlight through her kitchen window, her hands dusted with flour as she braided dough. The memory came with physical weight, pressing against his ribs like held breath. Those same hands had guided his small fingers over Hebrew letters in a book whose spine was held together with electrical tape.
 
-The lights flickered. On the screen, the frozen face shifted slightly.
+"Don't be smart, Ethan Israel Stone."
 
 "Sorry."
 
 "Sorry. It's been a hard week. The news—Morocco, Libya, Israel. Always something with Israel."
 
-Static surged on the line.
-
 "Maybe that's why they named me after it," Ethan said. "A problem that won't go away."
 
-"Your grandmother chose it," his father said suddenly. Another throat clear. "The Israel part. She insisted."
-
-Silence. Then his father again: "Said something about wrestling. I never understood what she meant."
+Silence. His father cleared his throat. "Your grandmother always said something about wrestling. Never made sense to me."
 
 Through the wall, the music stopped abruptly, mid-phrase. His apartment suddenly felt enormous and tiny simultaneously.
 
@@ -127,23 +119,23 @@ The vase. Cobalt blue with a crack down one side that his grandmother said made 
 
 Of course she did. Two-day shipping for a memorial.
 
-The call ended at 7:35 PM.
+The call ended.
 
-He unmuted Netflix. The episode resumed, but the subtitles had glitched—different characters now, almost familiar. One word appeared repeatedly: "Teshuvah." His thumb hovered over Google, then withdrew.
+He unmuted Netflix. The episode resumed, subtitles scrolling in another language—Hebrew maybe, or Arabic, something with letters that curved and pointed. One word seemed to repeat, looked almost like "Teshuvah" but he wasn't sure. The letters shifted before he could focus on them. His thumb hovered over Google, then withdrew.
 
 One browser tab was still open to High Holiday services in Brooklyn, buried under other tabs.
 
 From somewhere in the building, that music again. Words this time: "Shema Yisrael."
 
-His phone buzzed. A text from his mother: "Forgot to mention—Grandma's apartment was 613."
+His phone buzzed. A text from his mother: "Amazon says delivery by noon tomorrow. Also found something in Dad's notes—Grandma's old address. 613 something street."
 
-He typed back without thinking: "613 commandments."
+He stared at the number. 613. It meant something, he was sure of it. The knowledge sat just out of reach, like a word on the tip of his tongue.
 
-The response came immediately: "How did you know that?"
+He typed back: "What was the full address?"
 
-He stared at his own message. He hadn't known he knew it. The knowledge had surfaced from somewhere deep, unbidden. His fingers hovered over the keyboard, then typed: "Grandma must have told me."
+Three dots appeared, disappeared. "Why? David, what was mother's address? He says 613 Riverside Drive. Apartment 4B. Why?"
 
-Three dots appeared, disappeared, appeared again. Finally: "She would be so happy you remembered."
+Ethan deleted several responses before settling on: "Just curious."
 
 He stood and walked to his window. Brooklyn spread out below, lights beginning to pierce the darkness. Tomorrow was Friday. Then Saturday, the yahrzeit.
 
@@ -157,11 +149,11 @@ He struck a match. The flame caught, steady and warm. He held it over the candle
 
 The wick caught. For three seconds, the flame stood tall.
 
-Then he blew it out.
+Then he blew it out. Hard. Like he was angry at the flame for existing.
 
-But the smell of melted wax lingered, and his hand remembered the motion of lighting. A small victory of muscle memory over conscious resistance.
+But his hand was still cupped around the wick, protecting something that was no longer there. The gesture felt familiar, protective. Dangerous.
 
-The Netflix subtitles still showed that strange word: "Teshuvah." The man on screen was walking somewhere.
+On screen, the man was walking somewhere, but Ethan had lost the thread of the story.
 
 Ethan sat in his dark apartment, the only light from screens, the smell of sulfur fading.
 

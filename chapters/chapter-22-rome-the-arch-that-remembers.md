@@ -58,11 +58,11 @@ Father Antonio found him in the Sistine Chapel. Young priest, maybe thirty-five,
 
 "I study Jewish‑Christian relations. How we became we by defining against you." Spanish, maybe Portuguese. "Rabbi Di Segni teaches me. Last week someone asked why Jews can’t accept Jesus. The rabbi said, ‘Look outside. Is the world redeemed?’" He shrugged. "No answer."
 
-They walked past 'preserved' Jewish manuscripts. Father Antonio stopped before a marble fragment. "From a Roman synagogue. First century. The Pope keeps saying he'll return these things." He looked tired. "Institutions move slowly. Especially ones that think they're eternal."
+They stopped before a marble fragment from a Roman synagogue. First century. "The Pope keeps saying he'll return these things," Father Antonio said. "But what if returning isn't enough? What if the damage is in the taking, not the keeping?"
 
-"Do you believe that?"
+Ethan stared at the carved stone—someone's holy space reduced to museum curiosity. "Is that what scares me? That my own return might be just another kind of taking?"
 
-"I believe God's relationship with the Jewish people is eternal. Everything else is..." He made a vague gesture. "Politics."
+"Or maybe," the priest said quietly, "the fear is that it won't be taking at all. That it will be genuine, and you'll have to live up to it."
 
 That evening, Michele’s grandmother held court at table seven. Ninety‑three, Bulgari earrings—"from before." She’d survived October 16, 1943, hidden in the hospital on Tiber Island.
 
@@ -70,17 +70,33 @@ That evening, Michele’s grandmother held court at table seven. Ninety‑three,
 
 She grabbed Ethan's hand with fingers like living parchment. "You're searching. All young Jews who come here are. But the permission is already here—in the persistence. Not some miracle oil lasting eight days. That's poetry. The miracle is me serving artichokes to you in 2023."
 
-But something in Ethan resisted the easy comfort. "What if persistence isn't enough? What if we're just... stubborn survivors clinging to something that should have died naturally?"
+But something in Ethan resisted the easy comfort. "What if persistence isn't enough? What if we're just... stubborn survivors clinging to something that should have died naturally?" He paused, the words turning sharper. "What if my own persistence—this whole journey—is just another kind of empty ritual? What if I return home and discover I'm still the same person who ran from October, just with better stories to tell?"
 
-The table went quiet. Michele's daughter looked up from her phone. The grandmother's grip tightened.
+The table went quiet. Michele's daughter—Giulia, twenty-six, Roman law degree—looked up from her phone. "Actually," she said in crisp English, "that's exactly the wrong question."
 
 "You think survival is accident?" Her voice sharpened. "You think we stayed because we were stupid? Three chances to go to America. My brother went to Argentina in '39. Smart man. Rich man. Dead man—heart attack at sixty, no children. I stayed in Rome with Fascists, with war, with priests calling us Christ‑killers. You know why?"
 
 Ethan shook his head.
 
-"Because somebody has to tend the flame. Somebody has to remember the recipes." She released his hand. "You want to quit being Jewish? Fine. Others tried. But don't call it wisdom. Call it what it is—fear."
+"Because somebody has to tend the flame. Somebody has to remember the recipes." She released his hand. "You want to quit being Jewish? Fine. Others tried. But don't call it wisdom. Call it what it is—fear." Her eyes narrowed. "And don't think running away to find yourself is different from running away to lose yourself. The movement is the same. Only the story changes."
 
-Friday afternoon, Ethan helped in the kitchen, her words like splinters. Family arrived in waves—daughter from Parioli, son from Monteverde, cousins who ran jewelry stores. Arguments about football, traffic, whether cousin David’s girlfriend was Jewish enough. The complexity made his chest tight. Where did he fit in this tangle?
+Giulia set down her phone. "Nonna, he's not asking about quitting. He's asking about meaning. And honestly?" She turned to Ethan. "Your question is more sophisticated than her answer. Persistence for what? To prove Romans wrong? To spite Christians? To maintain genetic purity?" She laughed sharply. "Half my friends are intermarried. Their kids eat prosciutto and light Shabbat candles. Are they failing at being Jewish, or succeeding at being Italian?"
+
+The grandmother's eyes flashed. "Giulia—"
+
+"No, it's fair," Michele interrupted, oil-stained hands gentle on his mother's shoulder. "She asks the questions we don't want to hear." He looked at his daughter. "Tell him what you told the rabbi last week."
+
+Giulia's confidence faltered slightly. "I said... I said maybe Judaism survives best when it stops trying to survive. When it just lives." She gestured toward the window, toward Rome flowing past. "We're not museum pieces. We're not carrying sacred fire. We're just people who happen to make excellent artichokes and remember some very old stories."
+
+Friday afternoon, Ethan helped in the kitchen, both women's words like splinters—the grandmother's ancient certainty, Giulia's modern doubt. Family arrived in waves—daughter from Parioli, son from Monteverde, cousins who ran jewelry stores. Arguments about football, traffic, whether cousin David's girlfriend was Jewish enough.
+
+Giulia appeared beside him, drying wineglasses. "Overwhelming?"
+
+"I came here looking for something solid," Ethan said. "Everyone keeps giving me more questions."
+
+"Good. Questions are portable. Answers just weigh down your luggage." She smiled. "You know what my thesis was on? Legal pluralism in the EU. How different legal systems coexist without destroying each other. Maybe that's what you're really looking for—not the right way to be Jewish, but permission to be Jewish in your own way."
+
+The complexity made his chest tight, but also somehow lighter. Where did he fit in this tangle? Maybe that wasn't the right question either.
 
 When the sun set, Michele's wife lit candles. Same words he'd heard in Jerusalem, Tel Aviv, Brooklyn—now with Roman intonation. Through the window, couples strolled along the Tiber, beautiful and indifferent to the history it held in its mud.
 

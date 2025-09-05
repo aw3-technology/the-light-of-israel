@@ -82,13 +82,15 @@ Next morning, a café in Mitte where young Israelis clustered. David: twenty-eig
 
 David's enthusiasm cracked. "Since October 7th, yes. Doubled security. My neighbor—sweet German girl—asked if I felt 'responsible' for Gaza." He laughed bitterly. "I told her my grandparents were from Iraq. The Farhud. She didn't know what that was." He stirred his coffee, suddenly looking younger. "Sometimes I wonder if I'm just hiding here. From reserve duty, from—everything."
 
+He glanced around the café, then leaned forward, voice dropping. "You want to know the truth? Every morning I wake up guilty. Not for Gaza—that's complicated. Guilty for being here. In Berlin. Drinking their coffee, speaking their language better than Hebrew now. My sabba—" His voice caught. "My grandfather survived Kristallnacht. Barely escaped to Baghdad. And here I am, voluntary exile to the place that tried to erase us." He laughed, hollow. "What kind of Jew does that make me?"
+
 Two women entered speaking Hebrew, kissed David on both cheeks. He brightened, desperate for the distraction. One wore a Magen David necklace openly. The other had a tattoo in Hebrew: "To live is to resist."
 
 "You see?" David said, but his voice carried doubt now. "We're not hiding."
 
 "Yet."
 
-After they left, David stared at his empty cup. "My parents keep asking when I'm coming home. But what's home? Tel Aviv where I check for rockets, or Berlin where I check for—other things?"
+After they left, David stared at his empty cup. "My parents keep asking when I'm coming home. But what's home? Tel Aviv where I check for rockets, or Berlin where I check for—other things?" He pushed the cup away. "Sometimes at night I dream I'm apologizing to my grandfather. In Arabic, which is fucked up because he spoke Hebrew. But in the dreams, I'm begging forgiveness in the language they drove him from. When I wake up, the apartment feels like a betrayal. Beautiful hardwood floors, probably stolen from some Jewish family in '38. But the rent is cheap and the wifi is fast, so—" He shrugged, the gesture broken.
 
 That afternoon: Wannsee. The villa where fifteen men had designed hell. The lake was beautiful—families sailing where genocide had been engineered. Cold air carried damp leaves and diesel from a service truck. Ethan's stomach cramped, sharp pain climbing his ribs. He vomited beside roses—bile, coffee, metal on his tongue.
 
@@ -98,7 +100,7 @@ A guard offered water. "Are you ill?"
 
 As if that explained everything. The vomiting, the chest pain, the way his hands shook. *What am I doing here?* Ethan thought. *What am I looking for?* Hannah's persistence, David's freedom—both seemed impossible. He was neither survivor nor escape artist. Just a tourist of his own family's destruction.
 
-That night, his grandmother's yahrzeit. December 2nd. A tea light from the hotel lobby. He said Kaddish from his phone, the prayer that never mentioned death but sanctified God's name despite everything. *She never saw this place,* he thought. *Never had to reconcile the music with the machinery. Lucky her.*
+That night, his grandmother's yahrzeit. December 2nd. A tea light from the hotel lobby. He pulled up Kaddish on his phone, squinting at the Hebrew characters. *Yitgadal v'yitkadash...* The words felt foreign in his mouth, consonants he'd never learned properly. He stumbled on *sh'mei raba*, the melody escaping him completely—was it the Ashkenazi tune or Sephardic? His voice cracked on the unfamiliar syllables, reduced to reading phonetic English approximations. *What kind of Jew am I,* he thought, *that I need Google to mourn my grandmother?* The prayer that never mentioned death but sanctified God's name despite everything—except he wasn't sure he was saying it right, wasn't sure God was listening, wasn't sure he deserved to speak these ancient words in this cursed city. *She never saw this place,* he thought. *Never had to reconcile the music with the machinery. Lucky her.*
 
 The candle flame reflected in the window. His body ached—shoulders, jaw. He'd been grinding his teeth, noticed blood on his pillow that morning. *What am I becoming?* The thought scared him. Hannah had survived this place. David had chosen it. But Ethan felt himself dissolving, becoming absence like the museum's void.
 
@@ -110,17 +112,23 @@ Morning. Platform 17 before dawn. He placed twenty-three stones, one for each mu
 
 *What am I doing?* The stones felt meaningless, a tourist's ritual. Hannah lived with this every day. David ran from it. And Ethan? Ethan collected names like souvenirs of suffering.
 
-The 7:20 to Kraków approached, its headlight cutting through the gray dawn. Through Oświęcim, which the Germans had renamed Auschwitz. Should he board? Continue this archaeological dig through horror?
+His phone buzzed.
 
 Text from his mother: "Are you okay?"
-Text from Aaron: "Where the fuck are you?"
-Text from David: "Purim party Thursday. You should come back."
 
-*Come back.* To what? To Brooklyn coffee shops and startup metrics? To protests and arguments about who suffered more? 
+He pocketed the phone without answering. Another buzz.
+
+Text from Aaron: "Where the fuck are you?"
+
+The 7:20 to Kraków approached, its headlight cutting through the gray dawn. Through Oświęcim, which the Germans had renamed Auschwitz. Should he board? Continue this archaeological dig through horror?
+
+A third buzz. David: "Purim party Thursday. You should come back."
+
+*Come back.* To what? To Brooklyn coffee shops and startup metrics? To protests and arguments about who suffered more? To David's guilt-ridden exile? To Aaron's righteous fury?
 
 The train's brakes hissed. Passengers stepped on and off. Normal people with normal destinations.
 
-Ethan stood frozen, phone in one hand, stones in the other. Behind him: Berlin where Hannah counted pills and refused to disappear. Ahead: whatever waited in Poland.
+Ethan stood alone now, phone silent in his pocket, stones heavy in his palm. Behind him: Berlin where Hannah counted pills and refused to disappear. Ahead: whatever waited in Poland.
 
 *I could go back,* he thought. *Catch a flight to New York. Pretend this was enough.*
 

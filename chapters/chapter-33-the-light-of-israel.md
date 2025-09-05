@@ -1,8 +1,8 @@
 # Chapter 33: The Light of Israel
 
-Three years after October 7th, Ethan Israel Stone woke at 7:18 AM and wondered if this was what living felt like—or if he was just better at pretending. The alarm hadn't woken him; he'd been lying in bed since 5:41, watching Jerusalem lighten through the window, still counting time in precise increments. *Some habits never break,* he thought. *Maybe they're not supposed to.*
+Three years after October 7th, Ethan Israel Stone woke before dawn and wondered if this was what living felt like—or if he was just better at pretending. He'd been awake since before the birds, watching Jerusalem lighten through the window. *Some habits never break,* he thought. *Maybe they're not supposed to.*
 
-His phone showed seventeen notifications from work—startup life following him even here. The Slack that had once consumed him now felt distant, irrelevant.
+His phone buzzed with work notifications—startup life following him even here. The Slack that had once consumed him now felt distant, irrelevant.
 
 Sera stirred beside him, her hand finding his chest, the steady heartbeat that still surprised him each morning. The twins slept in the next room, three years old today. Born during Passover 2024, when the sirens had been quiet for two weeks—the longest stretch of peace they'd known. The timing had felt symbolic: freedom and birth, exodus and arrival.
 
@@ -24,62 +24,60 @@ The note was simple:
 
 "Ani Ethan Israel Stone.
 Ben David v'Sarah shechazru.
-Nechad shel Rivka shenish'ara.
+Neked shel Rivka shenitzla.
 Aba shel Ari v'Lev shelo yad'u galut.
 Ba'al shel Sera sheher'eta li or.
-Todah al hashevira shehovi'a shlemut mi-October Shiva.
-Todah al hachoshech sheheira or.
-Ani po. Hineni.
-Or Yisrael doleket kadima."
+Todah al hashlemut shetzmacha min hashevira shel October Shiva.
+Todah al hachoshech shegila et ha'or.
+Hineni. Ani kan.
+Or Yisrael od dolek."
 
 I am Ethan Israel Stone.
 Son of David and Sarah who returned.
-Grandson of Rivka who survived.
+Grandson of Rivka who was saved.
 Father of Ari and Lev who will never know exile.
 Husband of Sera who showed me light.
-Thank you for bringing wholeness from the breaking of October 7th.
-Thank you for the darkness that revealed light.
-I am here. Here I am.
-The light of Israel burns forward.
+Thank you for the wholeness that grew from the breaking of October 7th.
+Thank you for the darkness that revealed the light.
+Here I am. I am here.
+The light of Israel still burns.
 
 He folded the paper, found a crack between stones, pushed it deep where it would join the millions of other prayers. The Wall was not just stone but repository, not just barrier but the eternal ear listening to every language, hearing every prayer. The sunrise turned Jerusalem gold.
 
 "Still coming."
 
-Rabbi Levi's voice behind him. Not a question. The rabbi looked tired—the weight of years showing.
+Rabbi Levi's voice behind him. Not a question. The rabbi looked thinner than last month—the chemo showing.
 
-"Where else would I—" Ethan stopped. "I mean, where else would I go?"
+"Where else would I—" Ethan stopped. "How are you feeling?"
 
-"America. Back to... back to the old life."
+"Like I'm running out of time to say important things." His eyes held Ethan's. "My son called last night. Wants me in New York for treatment. Better doctors."
 
-"And do what? Pretend this never—" Ethan's voice caught. "Pretend none of this happened?"
+"Are you going?"
 
-The rabbi almost smiled. "Some would say that's... that's easier."
+"Maybe. Probably." He paused. "Who'll teach here?"
 
-"Some would be right. But—" He gestured vaguely at the Wall.
+The question hung between them. *Is he asking me to stay? Or giving me permission to leave?*
 
-They stood together. Teacher and student, though the roles had blurred over three years.
+"There are other rabbis—"
+
+"Not for you." Levi coughed, small and dry. "You think you chose this place. This place chose you. That's the difference between tourists and residents."
+
+They stood together. Teacher and student, though the roles were blurring faster now.
 
 "Three years," the rabbi said.
 
 "Three lifetimes."
 
-"Same thing in God's mathematics."
-
-The sun crested the Mount of Olives. Golden light on stone. Instagram perfect, if you cropped out the razor wire.
-
-"Your family?"
-
-"Sleeping. Yours?"
-
-"Praying. Elsewhere but praying."
+"Not long enough. But maybe all we get."
 
 The minyan formed. Ten men, just enough. Some faces were new—tourists, visitors. Some constants, like Ethan.
 
 Ethan wrapped tefillin. The leather straps left marks on his arm that lasted until noon. Sera said they looked like bondage marks. "They are," he'd told her. She hadn't laughed.
-His phone buzzed once. A message preview: "Layla's grandmother's house. We went. Complicated." From Aaron. He'd read it later.
+His phone buzzed. Aaron: "Remember that remote CTO role I mentioned? They're offering 400K. Full remote. Decision needed by Friday. Kids would love the suburbs again."
 
-The prayers began—Shacharit, morning service, the same words said by Jews everywhere at this moment, distance briefly thinning, connecting Melbourne to Moscow to Manhattan to here, to this Wall, to this moment when Ethan Israel Stone davened with intention, with the sense that prayer wasn't request but recognition, wasn't asking but acknowledging, wasn't seeking but finding what was always there.
+Ethan stared at the message. Sera could quit the hospital job she'd taken. The boys could grow up without sirens. His parents would see them more than twice a year.
+
+The prayers began—Shacharit, morning service. Ethan found himself lingering on the Modim, the gratitude blessing, his lips moving slower over the words. He skipped the petition for prosperity—what was the point?—but stayed longer with the Shehecheyanu, the blessing for reaching this moment alive.
 
 "Shema Yisrael..."
 
@@ -95,7 +93,7 @@ Ari reached him first, limping—he'd fallen yesterday, running during the siren
 
 "Abba, your face is wet."
 
-Not crying. Not exactly. The morning was humid, October in Jerusalem. *Or maybe I am crying and just don't recognize it anymore.* Three years of questions without answers. *What if Aaron's right? What if I'm just stubborn? What if this whole thing is just elaborate self-deception?*
+Not crying. Not exactly. Aaron's text burned in his pocket. Four hundred thousand. Safety. *What if he's right? What if stubbornness isn't the same as conviction?*
 
 "Happy tears," he said in Hebrew, though his voice wavered slightly. Their first language now, though sometimes he still searched for words.
 
@@ -103,7 +101,7 @@ Sera arrived, moving carefully—seven months pregnant now, their third child co
 
 "Quiet morning," she said, checking the horizon automatically. A habit now.
 
-"Every morning," he replied, though part of him wondered if he meant it or just needed to mean it. *The emptiness is still there,* he realized. *I've just gotten better at furnishing it.* But maybe that was enough—his sons arguing in Hebrew, Sera humming while she cooked, the ordinary chaos that felt like home even when he questioned whether it was home or just another place he'd convinced himself to stay.
+"Every morning," he replied, but the words felt hollow after the siren. After Aaron's text. *Four hundred thousand would buy a lot of quiet mornings.* The doubt settled in his chest like lead.
 
 His parents appeared, having visited the women's section. His mother looked uncomfortable—not with the place but with herself, as if she'd discovered something unexpected and wasn't sure what to do with it.
 
@@ -125,7 +123,7 @@ He wrote:
 
 "October 7, 2026. Three years. The twins are three. Sera carries our daughter. I think I'm learning what it means to stay. Not certainty—I still wake up some mornings wondering if I'm fooling myself. But maybe that's part of it too. The doubt that keeps you honest. The light that flickers but doesn't go out. I am Ethan Israel Stone, still wrestling, still learning what that means. Still here."
 
-Through the window, Jerusalem caught the morning light. Still beautiful. Still impossible. *Still here,* Ethan thought, and realized he was talking about the city and himself both.
+Through the window, Jerusalem caught the morning light. Ancient walls, modern scars. *Still here,* Ethan thought, and realized he was talking about the city and himself both.
 
 Ari and Lev played with blocks, building and destroying. The game continued, as it always had.
 
@@ -145,9 +143,9 @@ Ari raised his hand to topple it.
 
 "It's going to fall anyway."
 
-"Everything falls anyway. Let it... let it stand while it can."
+"Let it stand while it can."
 
-The tower lasted thirty seconds. Longer than yesterday's. *Small victories,* he told himself, *or small delusions.*
+The tower fell. Lev rebuilt. Ari watched. The game continued.
 
 Outside, the city stirred to life. Jerusalem beginning another day.
 
@@ -170,7 +168,7 @@ Ethan sat at the kitchen table, solid wood, built to last. The first piece of fu
 
 Ari traced the letter, tongue out in concentration.
 
-Through the window, Jerusalem. Still there. Still impossible.
+Through the window, Jerusalem. Stone and light and shadows.
 
 His grandmother's candlesticks sat on the shelf—polished now, used every Friday. Beside them, new ones. Smaller. For the twins when they were older. If there was an older.
 Tonight they'd light together—his parents, Sera, the boys—no speeches, just small flames and a table that held all their versions of home.
@@ -193,6 +191,50 @@ They continued through the morning—father teaching son the ancient letters. Ou
 
 Aleph. Bet. Gimmel.
 
-*Beginning,* Ethan thought. *Or maybe just continuing.*
+The siren cut through their lesson like a blade through prayer.
 
-You didn't need Hebrew to teach patience to a child, or holiness to a room. The breath before the word was its own kind of prayer.
+Ari's crayon stopped mid-stroke. Lev dropped his block. Three years old and they knew that sound meant running.
+
+"Mamek!" Sera called from the kitchen, her voice sharp but controlled. Seven months pregnant and still faster than anyone to the safe room.
+
+Ethan's parents froze. His mother's face went white.
+
+"Move," Ethan said, lifting both boys. "Safe room. Now."
+
+They ran. Again. As they had dozens of times. As they might dozens more.
+
+The safe room: reinforced concrete, water bottles, children's books. Their life reduced to essentials.
+
+"How long?" his father whispered.
+
+"Until it stops," Ethan said. "Could be minutes. Could be—"
+
+The explosion came from the north. Close enough to rattle windows. Far enough to mean someone else's tragedy.
+
+Lev buried his face in Ethan's shoulder. Ari counted on his fingers—a game he'd invented. How many sirens this month.
+
+"Is this living?" Sera asked quietly, her hand on her belly.
+
+The question hit different now. Not philosophical. Immediate. Real.
+
+When the all-clear sounded, they emerged blinking. The lesson forgotten. The morning shattered.
+
+His phone buzzed again. Aaron, waiting for an answer.
+
+Ethan looked at his parents, pale and shaken. At Sera, protective hand on her belly. At the boys, who had stopped counting sirens on their fingers and started humming instead—a defense he recognized from his own childhood fears.
+
+He picked up his phone and typed: "Thanks, but we're staying. This is home now."
+
+Send.
+
+Delete Aaron's contact.
+
+He turned to Ari, who was staring at his abandoned aleph, half-finished.
+
+"Let's finish the letter," Ethan said.
+
+Ari's hand found his father's. Together, they completed the stroke.
+
+Breath before the word. Silence that holds all sounds.
+
+Home.

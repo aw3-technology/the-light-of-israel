@@ -8,19 +8,19 @@ Immigration moved with efficient hostility. The officer studied his stamps: Athe
 
 "Purpose of visit?"
 
-"I'm... returning."
+"I'm returning."
 
-She looked up, taking in his American passport. "Returning from tourism?"
+She glanced at his passport stamps without looking up. "Returning from where?"
 
-"From exile." *Pretentious, maybe. But true.*
+"From—" How to explain? "From traveling."
 
-"Are you making aliyah?"
+"Tourism, then. Making aliyah?"
 
-"I'm thinking about it."
+"I'm considering it."
 
-"Thinking isn't a visa category." She stamped his passport hard. "Tourist. Ninety days."
+The stamp came down hard. "Ninety days. Next."
 
-*Tourist.* The word felt like a slap. *After everything—Poland, the camps, the Wall—still a tourist.*
+*Ninety days to figure out a lifetime.* The line pushed him forward before he could ask what came after ninety.
 
 Sera waited at arrivals. No sign, just her, looking—had she cut her hair? Lost weight? Or had forty days changed his memory of her face?
 
@@ -38,7 +38,7 @@ The kiss tasted like distance. *Like two people trying to remember why they'd pr
 
 *Trip.* Not exile. Not journey. Trip. Like he'd been to Cancún.
 
-The drive to Jerusalem happened in careful conversation, her hand on the gear shift, his in his lap. Forty days of separate experiences that emails hadn't bridged.
+Jerusalem rose from the hills like a promise he wasn't sure he could keep. They drove in the careful quiet of people who'd forgotten how to be together, her hand on the gear shift, his watching the landscape he'd dreamed about from Berlin hotel rooms.
 
 "I met someone in Berlin," he said suddenly. *Why am I telling her this?*
 
@@ -60,11 +60,13 @@ Her apartment—"You can stay here while you figure things out," not "our apartm
 
 *Should have mentioned.* How many other things should she have mentioned?
 
-Yossi emerged from the bathroom in a towel, all Israeli confidence. "You're the American. The one having the—what's the word? Crisis?"
+Yossi emerged from the kitchen, holding a coffee and wearing yesterday's uniform—he worked security at the Central Bus Station. "You must be Ethan." His English was careful, formal. "Sera mentioned you were returning."
 
-"Experience," Sera corrected, but her voice carried doubt.
+"Returning," Sera echoed quietly. "Yes."
 
-Ethan unpacked in her room—they'd share the bed but the distance was understood. Polish earth in a jar that looked, here in Jerusalem, like dirt. *Just dirt. What was I thinking?* His notebook full of observations that read now like tourist poetry.
+Ethan unpacked in her room. The jar of earth from Treblinka sat heavy in his hands—sacred soil that looked, under Jerusalem's fluorescent kitchen light, like something scraped from a garden. *In Poland, it felt like carrying souls. Here, it feels like hoarding.* His notebook fell open to a page: "The weight of history in cobblestones." Tourist poetry. Exactly.
+
+But then—a memory surfaced. Not from the camps or the Wall, but from the bus in Berlin. An old woman, maybe Turkish, maybe Lebanese, watching her grandson draw. She'd smiled at Ethan without words, that universal recognition: *stranger, but not enemy.* Small grace. Maybe the journey wasn't about collecting revelations. Maybe it was about learning to receive such gifts.
 
 "You carry them all now," Sera said, but it sounded like a question.
 
@@ -78,49 +80,47 @@ Ethan unpacked in her room—they'd share the bed but the distance was understoo
 
 "The same story. Different chapters."
 
-"Poetic chapters. But I live here. This isn't metaphor. It's Thursday. It's groceries. It's Yossi using my—" She stopped, laughed. "God, listen to me. Complaining about shampoo."
+"Different chapters." She pulled her knees to her chest. "While you were walking through history, I was walking through checkpoints. My friend Tamar—remember her from the café?—she was on the bus that got hit last week. Shrapnel in her shoulder. She's fine, but—" Sera's voice caught. "I couldn't tell you in an email. How do you email that?"
 
-*She's exhausted. I made her exhausted.*
+*While I was collecting stories, she was living one.*
 
 They went to Rabbi Levi, but he was busy—real crisis, someone's son missing in Gaza. His assistant squeezed them in for fifteen minutes.
 
-"You did the journey," Rabbi Levi said, phone buzzing. "Beautiful. Now what?"
+"Ah, the wanderer returns." Rabbi Levi's phone buzzed constantly—three different ringtones. "And?"
 
-"Now I want to stay."
+"I think I want to stay."
 
-"Wanting isn't—" His phone rang. "Sorry, I have to—Gaza."
+"Think?" Rabbi Levi glanced at his screen. "Gaza crisis, I have two minutes. Thinking is luxury. Staying is work. Which one are you doing?"
 
 Outside, the assistant handed them forms. "If you're serious about aliyah. Fair warning: bureaucracy makes exile look pleasant."
 
 *Is this what I wanted? Forms and bureaucracy and—*
 
-The Wall on Shabbat was different. Crowded. Security tight. Ethan's tourist visa marked him clearly. *Tourist at the holiest site in Judaism. Perfect.*
+The Wall on Shabbat writhed with tourists and soldiers, red string vendors and teenage settlers. Different from that first night forty days ago, when solitude had made space for wonder.
 
-"Forty days ago, it was magical," Sera said.
+"Look," Sera said, pointing. "Your first Wall experience—see that kid with the iPhone? That was you, basically."
 
-"It's still—"
+Ethan watched the boy filming himself praying, performing devotion for social media. *Was I so obvious?*
 
-"No. Now it's Saturday. Now it's crowds and that guy selling red string and tourists taking selfies."
-
-She was right. The Wall was stone. Sacred stone, but stone. An elderly man offered Ethan a prayer book with gentle eyes, but even that kindness couldn't restore October's electric feeling.
+But then: an elderly man pressed a prayer book into Ethan's hands, smiled without agenda, moved on. The same kindness from October, only now Ethan recognized it as routine grace—offered to every confused visitor, every seeker playing at pilgrimage. Which made it more sacred, not less.
 
 That evening, fifth night of Hanukkah. Yossi had invited friends—loud Israelis who switched between languages, excluding Ethan not from malice but from fluency.
 
-"The American thinks he's making aliyah," Yossi announced after his third beer.
+"So you want to stay?" Yossi asked, switching to Hebrew after his third beer. The others leaned in—this was entertainment now.
 
-"I'm right here," Ethan said in Hebrew.
+"I'm considering it," Ethan replied, aware of how formal he sounded.
 
-"Exactly. You're here but not here. You're performing—how do you say?—arrival."
+Someone laughed. "Considering. That's very American."
 
-*Performing. Is that all this is?* Sera didn't defend him. That silence said everything.
+*Even my Hebrew sounds like tourism.* Sera studied her hands. That silence said everything.
 
 Later, Yossi found Ethan alone on the balcony, both of them smoking—a habit Ethan had picked up in Berlin and couldn't shake.
 
-"Look," Yossi said in English, surprisingly gentle. "My grandfather came from Morocco. 1967. Lost everything. But he never talked about the journey, you know? Only about building here. Every day, building something."
+"My grandfather," Yossi said quietly, "came from Casablanca in '67. Lost a leather business, three brothers who stayed behind." He dragged on his cigarette. "First year, he swept floors. Fifteen-hour days. Spoke no Hebrew."
 
-He stubbed out his cigarette. "You want to stay? Stop talking about the journey. Start talking about what you'll build."
+The city lights flickered below them. "Know what he told me before he died? 'The journey ends when you start building.'"
 
-*What will I build?* Ethan couldn't answer.
+*Building what? I can barely get past immigration.*
 
 The call to his parents went predictably.
 
@@ -144,44 +144,50 @@ The call to his parents went predictably.
 
 Later, Sera and he finally alone, Yossi's laughter echoing from the living room. The kitchen smelled like cumin and lemon from lunch, a forgotten pan cooling on the stove. A basil plant on the sill drooped—Sera killed houseplants with love and too much water.
 
-"I don't know how to do this," Ethan admitted.
+"I don't know how to do this," Ethan said, watching her fold laundry with the precise movements of someone who'd lived alone too long.
 
 "Do what?"
 
-"Any of it. Live here. Learn Hebrew. Be with you. Be—anything other than the American having a crisis."
+"Any of it. Live here. Learn Hebrew. Be—" He gestured helplessly. "In Berlin, I knew what I was: a tourist with a story. Here, I'm nothing. Not Israeli, not quite American anymore. Just floating."
 
-"You're not having a crisis." She touched his face, first real contact in hours. "You're having a—what's the word? Reckoning. But I can't wait forever for you to figure out what that means."
+"You're not floating." She held up one of his shirts—when had she washed his clothes? "You're landing. Landing is messy."
 
-*How long is forever? How long do I have?*
+*But what if I crash? What if landing breaks everything?*
 
-They made love like negotiation, careful and fraught. After, she cried—not sadness but exhaustion.
+They made love like people remembering how, bodies careful with each other's foreignness. After, she cried—not sadness, but the exhaustion of holding too much alone for too long.
 
-"Every day you were gone, something happened here. Stabbing. Rocket. Funeral. And I'd think, 'Ethan's in Rome eating pasta, finding himself.' I wasn't angry. I was—jealous. You got to make exile beautiful."
+"While you were in Rome, my unit got called up. Reserve duty. Three days on the Gaza border because intelligence said something was coming. Nothing came. Just heat and waiting and that particular army smell of fear and instant coffee." Her voice was matter-of-fact. "I'd get your emails about cathedrals and think: he gets to choose his meaning. Mine gets chosen for me."
 
-*Did I? Did any of it matter if I can't even stay?*
+*Choice versus conscription. Tourism versus citizenship. I've been playing at devotion while she's been living it.*
 
 "Come with me next time."
 
-"There is no next time. You did the journey. Now comes living. And living here is—it's hard, Ethan. Not mystical. Hard."
+"There is no next time." She turned to face him fully. "You did the journey. Now comes living. And living here—it's hard, Ethan. Beautiful and hard. The same stabbing that breaks your heart also makes you call your mother to check she's safe. That's what love of country looks like. Not just the poems. Also the worry."
 
-*Am I strong enough for hard?*
+*Am I? Am I strong enough for grocery lines in Hebrew, for bureaucrats who'll never care about my journey, for love that demands presence instead of poetry?*
 
-His phone buzzed with work emails—his replacement asking about passwords. That world moving on, already forgetting, already replacing him.
+His phone buzzed—work emails his replacement couldn't decode. That old life persisting like phantom pain. He could answer, slide back into consulting, pretend forty days never happened. The thought terrified him with its appeal.
 
 "Can we try?" he asked. "Can we see what happens?"
 
-"We're seeing right now. This is it. This is what return looks like." Her voice carried a weariness that scared him. "It's Yossi's music and my exhaustion and your tourist visa and forms you won't understand and Hebrew you'll struggle with."
+"This is it." Her voice carried something that scared him—not anger, but acceptance. "Us, figuring out if forty days apart means we're strangers now. Me, wondering if you fell in love with the idea of here more than the reality. You, discovering that Jerusalem has traffic jams."
 
 "And us?"
 
-"Us is maybe."
+"Us is—" She touched his face, thumb tracing the new lines around his eyes. "Us is work. Daily work. Like learning Hebrew. Like standing in line at the Interior Ministry. Like figuring out how to love someone who came back different."
 
-*Maybe. When did maybe become the best I could hope for?*
+*Work. Not poetry. Work.*
 
-Outside, Jerusalem argued with itself in languages he'd never master. Inside, Ethan Israel Stone was exactly where he needed to be: nowhere certain, nowhere comfortable, nowhere but the eternal Jewish maybe of almost arriving.
+Outside, Jerusalem argued with itself in languages he'd never master completely. But maybe completion wasn't the point. Maybe belonging meant accepting the permanent maybe, the daily negotiation, the grace of being almost home.
 
-Sera dozed beside him, her hand on his chest like a question he couldn't answer. The fifth Hanukkah candle had burned down. Yossi sang off-key in the shower. The city refused sleep.
+Sera dozed beside him, her hand on his chest—not a question anymore, but an anchor. The fifth Hanukkah candle had burned to wax. Tomorrow would be the sixth light, then the seventh, then the eighth. And after that, ordinary days.
 
-*Is this home? This uncertainty, this difficulty, this daily negotiation with belonging?*
+Yossi's off-key singing drifted from the shower. The washing machine hummed. A neighbor's baby cried. Jerusalem's soundtrack of the everyday holy.
 
-Maybe. The hardest word in any language.
+*This,* Ethan thought. *This is what return looks like. Not the arrival, but what comes after. The laundry. The work. The staying.*
+
+Maybe was no longer the hardest word. *Yes* was harder. *Yes* to bureaucracy and grocery lines and Hebrew mistakes and Sera's exhaustion and his own. *Yes* to building something without knowing what it would become.
+
+In the morning, he would look for work. Learn to drive on the right side of the road. Practice Hebrew with strangers who would correct his accent. Build something.
+
+But tonight, he was exactly where he needed to be: almost home, almost settled, almost ready to stop arriving and start staying.

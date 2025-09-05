@@ -20,11 +20,11 @@ Professor Yannis Levy, silver-haired, linen easy over bone. "Rabbi Levi said you
 
 "I like to come here first. Every Jewish visitor should see the competition before the remnant. Besides, the university is full of strikes. The students are protesting—solidarity with Palestine today. After October 7th, different edge. They spray-painted 'Zionists Out' on my office door. I left it."
 
-Yannis led him along ancient stones, pointing toward the modern city below. "Twenty-three hundred years ago, your ancestors could see this temple from gymnasiums where Jewish boys reversed their circumcisions to compete naked. That's Hellenism—so beautiful you'd surgically alter your covenant mark."
+Yannis led him along ancient stones, pointing toward the modern city below. "Twenty-three hundred years ago, Jewish boys reversed their circumcisions to compete naked in gymnasiums. That's Hellenism—beauty so seductive you'd surgically alter your covenant mark."
 
 "Some did. Not all."
 
-"The ones who didn't, we called Maccabees. They won. But look—" he gestured at the Parthenon. "Greek carries the New Testament. The Talmud borrows Greek."
+"The ones who didn't became Maccabees." He gestured at the Parthenon. "But look—Greek carries the New Testament. The Talmud borrows Greek logic."
 
 "'The particular is less knowable than the universal,'" Yannis said. "Beautiful. Wrong. October 7th was particular. The world prefers abstraction—'cycle of violence'—to avoid seeing particular Jews die."
 
@@ -70,7 +70,7 @@ She snorted. "Jerusalem. Let me guess—did you cry at the Wall? Have some big m
 
 "I did. But not because of the Wall. Because of a woman on the bus who gave up her seat. Because people say 'Shabbat Shalom' like they mean it. Because for the first time, I was surrounded by Jews and it felt like breathing without thinking about it."
 
-Anna was quiet. Then: "My father returned from Jerusalem changed. Suddenly keeping Shabbat. He wants me to light candles. I wrote my dissertation on patriarchal monotheism."
+Anna was quiet, her fingers tracing the rim of her mug. Something flickered across her face—memory, maybe longing—before hardening back to skepticism. "My father returned from Jerusalem changed. Suddenly keeping Shabbat. He wants me to light candles. I wrote my dissertation on patriarchal monotheism."
 
 "Your father changed the rules. That hurts."
 
@@ -136,6 +136,6 @@ At kiddush, she took a cookie, bit carefully. When Yannis introduced Ethan as "o
 
 "Collecting cities like stamps." She handed him the tin without looking at him. "Whatever. Take these to Rome, I guess."
 
-Outside, the Parthenon's glow reflected in the synagogue windows—beauty and survival side by side. The taste of honey lingered, sweet and complex.
+Outside, the Parthenon's glow reflected in the synagogue windows—beauty and covenant side by side. Beauty still gleamed, but covenant carried the flame. The taste of honey lingered, sweet and complex, resistance encoded in sweetness.
 
 Ethan walked toward his hotel, candlesticks in his bag, Athens settling into Saturday night around him.
