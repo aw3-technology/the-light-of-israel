@@ -2,15 +2,15 @@
 
 Aaron Gold stood in Ethan's Jerusalem kitchen like an argument waiting to happen.
 
-Tuesday morning, July. 7:20 AM. The doorbell rang—Aaron with a backpack, sweat stains from the walk up. A year since they'd really talked.
+Tuesday morning, July. 7:20 AM. The doorbell rang—Aaron with a backpack, sweat stains spreading dark across his gray t-shirt from the walk up, the familiar cologne he'd worn since college now mixed with travel sweat and something else—Jerusalem dust, fear, reconciliation. A year since they'd really talked.
 
 "I should have called."
 
 "Yeah."
 
-Aaron looked exhausted. Deeper than jet lag. *He's lost weight,* Ethan noticed. *And when did he start biting his nails?*
+Aaron looked exhausted. Deeper than jet lag. *He's lost weight,* Ethan noticed. *And when did he start biting his nails?* New lines around his eyes, two years of separation visible in the slight stoop of his shoulders, the defensive way he held himself in the doorway.
 
-Sera appeared with Lev on her hip, Ari at her feet. She studied Aaron, then softened.
+Sera appeared with Lev on her hip, Ari at her feet. The kitchen suddenly smelled of cardamom from the coffee she'd been making, mixing with the lingering scent of breakfast—eggs, za'atar, the honey cake she'd baked for Shabbat still perfuming the air. She studied Aaron protectively, hand unconsciously tightening on Lev's back, then softened.
 
 "You must be Aaron. Ethan's mentioned you."
 
@@ -18,13 +18,21 @@ Sera appeared with Lev on her hip, Ari at her feet. She studied Aaron, then soft
 
 "Things."
 
-Coffee grounds from breakfast. Toy blocks scattered. Normal chaos. Ethan made coffee—the good machine from the shuk he'd finally learned to operate.
+Coffee grounds from breakfast scattered on the counter. Toy blocks in primary colors across the tile floor—the twins' unconscious art. Normal chaos, children's innocence cutting through adult tension like morning light through curtains. The sound of Jerusalem morning filtering through open windows—Arabic calls from the neighboring mosque, church bells in the distance, someone's rooster that didn't understand urban living. Ethan made coffee—the good Italian machine from the shuk he'd finally learned to operate, the hiss of steam loud in the awkward silence.
 
-"You look different," Aaron said.
+Baby Ari crawled toward Aaron, the soft shuffle of palms and knees on tile, grabbed his finger with that fierce baby grip that always surprised adults. Aaron froze mid-reach for his coffee, staring at the tiny hand—warm, impossibly soft, trusting. His hand trembled slightly. For thirty seconds, complete silence except for Ari's baby breathing, quick and light as bird wings. Then, barely audible, Aaron's voice cracking: "My grandmother used to say babies choose their angels before birth. She said that's why they stare at nothing—they're saying goodbye to heaven."
+
+Ethan stared. "You never mentioned your grandmother believed in angels."
+
+Aaron's legal-mind armor cracked: "She survived Auschwitz by talking to them. I thought it was trauma. Maybe trauma is just... really loud angels."
+
+He gently freed his finger. Ari gurgled, crawled away.
+
+"You look different," Aaron said, clearing his throat—a nervous habit from law school, the sound rough with emotion he was trying to suppress.
 
 "The water."
 
-Neither smiled.
+Neither smiled. The tension between them had texture—rough, uncertain, like touching a wound to see if it still hurt.
 
 "How did you find me?"
 
@@ -32,13 +40,13 @@ Neither smiled.
 
 "And are you? Here to talk sense?"
 
-"I don't know why I'm here." Aaron gripped his coffee cup. "No—I'm seeing someone. Six months. Her name is Layla."
+"I don't know why I'm here." Aaron gripped his coffee cup so tight his knuckles went white, the ceramic hot enough to hurt but he didn't let go—needing the pain, the anchor. "No—I'm seeing someone. Six months. Her name is Layla."
 
-The way he said her name—like confession.
+The way he said her name—like confession, like prayer, like something that tasted sweet and dangerous on his tongue.
 
 "She's Palestinian."
 
-The word sat between them.
+The word sat between them like evidence that changed everything about the case.
 
 "Columbia protest. Four months ago." Aaron's voice went quiet. "She asked me something: 'What kind of ally shows up to protests but can't name his great-grandparents? Knows every Palestinian village destroyed but not his own family's shtetl?'"
 
@@ -52,19 +60,23 @@ Ethan said nothing. The twins built towers. Sera moved through the kitchen, know
 
 "And I—" *What did I do?* "I used Israel to run from being human."
 
-They sat with that. *Twenty years of friendship and we're just figuring this out now?*
+They sat with that, the silence heavy as Jerusalem stone. *Twenty years of friendship and we're just figuring this out now?* The twins babbled in Hebrew-English mix, unconscious of the adult complexity above them. Somewhere, a door slammed. The coffee grew cold between them.
 
-"Go walk," Sera suggested. "Show him the market."
+"Go walk," Sera suggested, her hand briefly touching Ethan's shoulder—support without interference, warmth that said *I'm here* without words. "Show him the market."
 
-Machane Yehuda at mid-morning. Vendors shouting, tourists with cameras, locals with wheeled carts. "Bibi Out" graffitied next to "Hummus Not War."
+Machane Yehuda at mid-morning. The assault of smells—cumin, coriander, fresh pita, overripe fruit, diesel from delivery trucks. Vendors shouting in Hebrew-Arabic-English chaos, their voices layering like archaeological strata. Tourists with cameras blocking narrow passages, locals with wheeled carts navigating around them with practiced irritation. "Bibi Out" graffitied next to "Hummus Not War" next to "Mashiach Now" in competing prophecies. The ground sticky with vegetable debris and yesterday's politics.
 
-Aaron's eyes darted everywhere, overwhelmed by Hebrew assault, everyone arguing about tomatoes like war.
+Aaron's eyes darted everywhere, overwhelmed by Hebrew assault, the language hitting him like slaps he couldn't dodge. Everyone arguing about tomatoes like war—the vendor's hands gesturing wildly, the customer's voice rising to match, both somehow enjoying the conflict.
 
 They walked. Aaron talked about Layla—her grandmother from Bethlehem, the key to a house that no longer existed.
 
+"Her grandmother had a music box," Aaron said suddenly. "Plays 'Hatikvah'—Israel's anthem. I asked why. She said, 'A Jewish neighbor gave it to me in 1948, before we left. She said, "Keep our song safe until we can share it again."' Sixty years, Layla's family kept that music box."
+
+He rubbed his face. "When I heard it playing, I started crying. Layla said, 'This is what we've been trying to tell you—we're not against your music. We just want ours played too.'"
+
 "She made me realize—" He paused, still working it out. "I was using justice to avoid figuring out who I actually was. It's easier to be universal than particular."
 
-German Colony café. Aaron ordered in English, the waiter answered in Hebrew, switched back with visible annoyance.
+German Colony café. The air conditioning too cold after the market's heat, making them both shiver. Smell of coffee competing with someone's cigarette smoke from the patio, the Jerusalem mix of secular and sacred even in the air. Aaron ordered in English, stumbling over simple words. The waiter answered in Hebrew, rapid-fire, then switched back with visible annoyance—that particular Jerusalem exhaustion with Americans who wouldn't try.
 
 "Layla's family asked: what kind of Jew are you? They assumed I'd stay a Jew. Just asked what kind."
 
@@ -72,7 +84,7 @@ German Colony café. Aaron ordered in English, the waiter answered in Hebrew, sw
 
 "The wrong kind. Knows Palestinian history but not Jewish history. Can name every village destroyed in '48 but not one Yiddish poet."
 
-Aaron was sweating. Not from heat.
+Aaron was sweating, drops visible on his forehead despite the air conditioning. Not from heat—from confession, from the effort of reshaping himself in real-time. His hands shook slightly as he lifted his coffee cup, the tremor of someone dismantling their own foundations.
 
 "After October 7th, I posted about Gaza immediately. You disappeared. I thought you'd chosen tribe over truth."
 
@@ -236,7 +248,7 @@ After Aaron left, Sera came out. "You're still friends?"
 
 "What?"
 
-"You're Jews. That's what you are. Everything else is details."
+"You're Jews. That's what you are. Everything else is details." She paused. "Like my cousins in Tel Aviv and Ramallah. Arabs first, everything else second. Like anyone who carries history in their bones—the Irish with their troubles, Koreans with their han, Black Americans with their blues. Sometimes the only thing that connects you is the thing you can't escape."
 
 Inside, the twins slept. The books Aaron brought lay on the coffee table—bridge stories in two languages. Ethan picked up the Arabic one, couldn't read a word. Set it down next to the English version.
 

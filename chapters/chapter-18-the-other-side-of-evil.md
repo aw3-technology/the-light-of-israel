@@ -32,7 +32,7 @@ He pulled a volume from the shelf—cracked binding, brown pages.
 
 "You asked how God allows evil." The rabbi opened to a marked page. "Wrong question. The question is: what is evil for?"
 
-"For?" Ethan's voice cracked. "Murder has purpose? Rape has function?"
+"For?" The word came out strangled, like something was gripping Ethan's throat from inside. "Murder has purpose? Rape has function?" Each word tasted like ash in his mouth, the kind of ash that comes from burning sacred things.
 
 The rabbi drew circles connected by lines on paper. The Tree of Life. Then another beside it—mirror image but wrong, like reflection in dark water.
 
@@ -50,7 +50,7 @@ Ethan stared at the Hebrew text. The letters swam. "This is just—philosophy. T
 
 "Yes. They are." The rabbi's voice was quiet. "Philosophy doesn't bring them back. But maybe it keeps us from joining them—in despair, I mean."
 
-The door opened—Sera with her own key. She looked between them, understood.
+The door opened—Sera with her own key. She looked between them, understood. Ethan's phone buzzed. Aaron calling. He declined it, but not before seeing the text preview: "Met someone. Palestinian activist. You'd hate her. Or maybe you'd understand. Can't tell anymore."
 
 "The Other Side," she said, not a question.
 
@@ -72,7 +72,7 @@ The rabbi turned to another page. "Try reading this anyway."
 
 The Hebrew somehow made sense:
 
-"The Other Side feeds on judgment without mercy. Grows strong on separation. Thrives where divine image is forgotten. Cannot create, only distort. Cannot love, only possess. Cannot endure, only destroy until it destroys itself."
+"The Other Side feeds on judgment without mercy. Grows strong on separation. Thrives where divine image is forgotten. Cannot create, only distort. Cannot love, only possess. Cannot endure, only destroy until it destroys itself. Think of it like a garden—evil is not a different garden, but the same garden untended, where weeds choke out flowers, where fruit rots on the branch, where beauty becomes decay. But even in the most neglected garden, seeds of holiness wait underground."
 
 "October 7th was the Other Side showing its face." Rabbi Levi gestured toward the window. "But look—Jews returning from everywhere."
 

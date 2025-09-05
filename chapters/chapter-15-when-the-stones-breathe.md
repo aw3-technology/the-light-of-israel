@@ -4,11 +4,11 @@ The sherut climbed through the Judean Hills, and Ethan pressed his forehead agai
 
 Friday afternoon. Soldiers heading home for Shabbat, rifles casual as backpacks. Orthodox families, children bouncing between Hebrew and English. A woman texting beside him, Hebrew mixing with heart emojis on her screen. The driver's Mizrahi music competed with someone's Bluetooth speaker—American pop against ancient stone. The cacophony felt right for 2023 Jerusalem.
 
-"First time?" The soldier across from him asked in accented English, having marked him immediately as foreign, as searching, as lost.
+"First time?" The soldier across from him asked in accented English, having marked him immediately as foreign, as searching, as lost—the particular lost that Americans carried like expensive luggage, visible from kilometers away.
 
 "Yes."
 
-"You'll feel it when we enter. Everyone feels it the first time."
+"You'll feel it when we enter. Everyone feels it the first time." She said it matter-of-fact, the way she might say 'the bus stops at Central Station,' but something in her eyes suggested she remembered her own first time, the way the city grabbed you by the throat and whispered your real name.
 
 The road sign: ירושלים JERUSALEM 10 KM. Something shifted in Ethan's chest—panic or recognition, he couldn't tell. The air felt different. Thinner. His breathing came shallow.
 
@@ -66,7 +66,16 @@ The words came out wrong, too intense. He saw her eyebrows raise slightly.
 
 "Survivors," Sera said, her jaw tightening. "Specifically kids from Kibbutz Be'eri. Art therapy, mostly. Getting them to draw things other than—" She stopped abruptly. "But tonight we don't talk about work."
 
-An uncomfortable silence fell. The French woman cleared her throat. One of the soldiers checked her phone.
+The French woman asked softly, "Were you there? During—"
+
+"No." Sera's voice came out sharp, then softer. "No. I was in Jerusalem. My best friend Michal was at the Nova festival. She..." A pause that contained everything. "The kids I work with, some of them saw their parents—" She shook her head. "Tonight we don't talk about work."
+
+An uncomfortable silence fell. One of the soldiers checked her phone. Ethan's phone buzzed—Aaron, again. Three texts in the last hour:
+"How's the promised land?"
+"Saw another protest today. Thought of you."
+"Call me when you can. This silence is weird."
+
+He silenced it without responding.
 
 The sun descended toward the horizon visible through ancient windows, and Mrs. Rosenberg lit candles with movements that seemed choreographed by centuries—circling her hands three times, covering her eyes, the Hebrew blessing emerging like muscle memory from some collective unconscious. Sera sang the harmony without seeming to notice she was singing, her voice finding the spaces between the notes like she'd been born knowing where they were.
 
@@ -172,9 +181,11 @@ Ethan watched her vanish into the Old City's geometry, then found his way back t
 
 Somewhere in the city, Sera was sleeping or not sleeping, existing in the same darkness, under the same moon that had witnessed Jerusalem rise and fall and rise again, endless return, eternal becoming.
 
-His phone showed three missed calls from his mother, but they felt like messages from another planet, another life, the one where he was just Ethan Stone, user experience optimizer, hollow man filling time between nothing and nothing.
+His phone showed three missed calls from his mother, two voicemails. He listened to the first: "Ethan, honey, your father found something in the attic. Your grandmother's candlesticks. The ones from Poland. I thought—maybe you'd want to know. Since you're... there."
 
-Here, in Jerusalem, he might be Ethan Israel. Here, with her, he might be becoming himself.
+The second: "Also, we went to temple last week. First time since your bar mitzvah. It was strange. Good strange, maybe. Your father cried during the Mourner's Kaddish. Call us."
+
+The messages felt like bridges between worlds—his parents, secular for so long, fumbling toward something they'd lost or never had. Here, in Jerusalem, he might be Ethan Israel. Here, with her, he might be becoming himself.
 
 The Wall glowed in the darkness, patient as stone, waiting for tomorrow's wrestlers, tomorrow's prayers, tomorrow's woman arguing with God about things that mattered more than anything had ever mattered before.
 

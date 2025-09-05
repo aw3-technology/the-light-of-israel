@@ -1,8 +1,8 @@
 # Chapter 14: Landing After the Siren
 
-His passport trembled in his hands as the Israeli officer asked, "First time here?"
+His passport trembled in his hands—still cold from the plane's aggressive air conditioning—as the Israeli officer asked, "First time here?"
 
-Ben Gurion Airport, November 15th, 2023, 5:41 AM. His American passport said "Stone, Ethan Israel" and the young woman behind bulletproof glass studied his middle name for a long moment.
+Ben Gurion Airport, November 15th, 2023, 5:41 AM. The air tasted different already—drier, charged with something between tension and promise. His American passport said "Stone, Ethan Israel" and the young woman behind bulletproof glass studied his middle name for a long moment. Her fingernails clicked against her keyboard, a rapid-fire rhythm like urgent prayer.
 
 "Purpose of visit?" Her English carried Hebrew underneath it, the accent that made questions sound like challenges.
 
@@ -24,11 +24,11 @@ She smiled—tired, knowing. Her stamp came down hard: November 15, 2023.
 
 But her hand lingered on his passport an extra second before sliding it back.
 
-The arrivals hall erupted in Hebrew—a family reuniting with shrieks and kissing of both cheeks, three times, not the European two. A businessman argued into his phone while his other hand conducted an invisible orchestra. Two soldiers, M16s slung casual as backpacks, debated something that sounded violent but was probably falafel. Everyone stood too close, talked too loud, touched too much.
+The arrivals hall erupted in Hebrew—guttural and melodic at once, the language scraping something raw in his chest. A family reuniting with shrieks that echoed off the high ceiling, kissing of both cheeks—the sound of it, lips on skin, three times, not the European two. Someone's grandmother wore too much perfume, aggressive roses that made him sneeze. A businessman argued into his phone while his other hand conducted an invisible orchestra, his cologne mixing with coffee and the particular smell of recycled airplane air still clinging to everyone. Two soldiers, M16s slung casual as backpacks, debated something that sounded violent but was probably falafel—he caught the word "amba," saw one mime burning his tongue. Everyone stood too close, talked too loud, touched too much. After months of New York's careful personal space, the proximity felt like drowning and breathing at once.
 
 "Taxi? You need taxi?"
 
-Moshe—according to his license, photographed in 1987 when he still had his Moroccan curls. The Mercedes smelled like Noblesse cigarettes and pine air freshener fighting forty years of accumulated arguments.
+Moshe—according to his license, photographed in 1987 when he still had his Moroccan curls, now replaced by a sun-spotted scalp. The Mercedes door handle was sticky with humidity. Inside smelled like Noblesse cigarettes and pine air freshener fighting forty years of accumulated arguments, plus something else—tahini? sunflower seeds? The vinyl seats were cracked, held together with duct tape that scratched against Ethan's jeans. The radio played news in rapid Hebrew, the announcer's voice tight with barely contained catastrophe.
 
 "Where to?"
 
@@ -36,7 +36,7 @@ Moshe—according to his license, photographed in 1987 when he still had his Mor
 
 "Any hotel? What are you, rich? I take you to my cousin's place. You look like you need beach."
 
-They passed Lod, where palm trees grew next to Soviet blocks. A Bedouin man sold watermelons from a truck marked in Arabic, Hebrew, and Russian. Construction cranes everywhere—the archaeology of stubbornness.
+They passed Lod, where palm trees grew next to Soviet blocks, their fronds rustling in hot wind that came through Moshe's cracked window. The air smelled of diesel and jasmine, concrete dust and orange blossoms—every breath a contradiction. A Bedouin man sold watermelons from a truck marked in Arabic, Hebrew, and Russian, the fruit's sweet scent cutting through exhaust fumes. Construction cranes everywhere—the archaeology of stubbornness. Jackhammers pounded a rhythm that vibrated through the car's chassis, up through Ethan's spine. The sun was already brutal at 6 AM, making the asphalt shimmer like water.
 
 "First time?" Moshe navigated traffic like warfare and ballet simultaneously.
 
@@ -46,7 +46,7 @@ They passed Lod, where palm trees grew next to Soviet blocks. A Bedouin man sold
 
 "I'm discovering that."
 
-"Discovering?" Moshe laughed, swerving around a Vespa carrying three people and a washing machine. "My grandmother from Casablanca used to say, 'You can change your name, your nose, your country. But Friday night, the candles know who you are.'"
+"Discovering?" Moshe laughed, a sound like gravel and honey, swerving around a Vespa carrying three people and a washing machine that rattled precariously. The swerve pressed Ethan against the door, his stomach lurching. "My grandmother from Casablanca used to say, 'You can change your name, your nose, your country. But Friday night, the candles know who you are.'" He lit another Noblesse with the car's lighter, the smell instantly filling the space, making Ethan's eyes water. Through the smoke, the Mediterranean appeared—impossibly blue, the color seeming to have sound, like a sustained note he could almost hear.
 
 He hummed along to the radio—not news but Zohar Argov, the Yemenite singer's voice crackling through old speakers. "This song? Ha-Perach BeGani. '82. My wife walked down the aisle to it. Now my daughter plays it on repeat since her boyfriend went to Gaza." He caught Ethan's eye in the mirror. "Zohar died young. But the songs—they stay alive."
 

@@ -1,10 +1,10 @@
 # Chapter 31: Vision on the Mount
 
-The Temple Mount at dawn, empty except for birds, and Ethan Israel Stone saw what was, what is, and what might be.
+The Temple Mount at dawn, empty except for birds, and I saw what was, what is, and what might be—all three tenses collapsing into a single moment that contained every prayer ever whispered here, every stone laid and destroyed and laid again.
 
-He hadn't planned to be there. Jews rarely received permission to ascend, and when they did, it came with restrictions. But around 6 AM on the last day of Sukkot, walking the Old City walls in the half-light, something pulled him toward the Mughrabi Gate.
+He hadn't planned to be there. Jews rarely received permission to ascend, and when they did, it came with restrictions. But around 6 AM on the last day of Sukkot, walking the Old City walls in the half-light, something pulled him toward the Mughrabi Gate. The morning air tasted of sage and dust, ancient spices carried on wind that shouldn't exist between stone walls. His footsteps echoed wrong—too loud, then too soft, as if the sound were being filtered through time.
 
-The guard looked up from his phone. Ahmad al-Rashid, according to his name tag, mid-forties, wedding ring worn thin. Dark circles under his eyes. He'd been here all night.
+The guard looked up from his phone. Ahmad al-Rashid, according to his name tag, mid-forties, wedding ring worn thin from years of nervous twisting. Dark circles under his eyes, purple-black like bruises. The booth smelled of Turkish coffee gone cold, cigarette smoke clinging to fabric. He'd been here all night—Ethan could smell the exhaustion on him, sour and human.
 
 "You don't have permission," Ahmad said in accented English, but without conviction. His shoulders sagged with something heavier than fatigue.
 
@@ -16,7 +16,7 @@ Ethan felt something shift in his chest—fear or recognition.
 
 "Seven years old. She shouldn't—" Ahmad shook his head. "Kids that age, they say crazy things. But she described your face." He looked around—they were alone, but never really alone here. "Morning shift arrives in twelve minutes."
 
-Ahmad punched numbers into the security pad. His hands shook. "If they check the logs..."
+Ahmad punched numbers into the security pad. The beeps sounded like prayers, each tone hanging in the air longer than it should. His hands shook, knuckles white. The keys were worn smooth, numbers barely visible. "If they check the logs..." His voice cracked, and Ethan could taste his fear—metallic, like blood.
 
 "They'll see what?"
 
@@ -30,29 +30,29 @@ The lock clicked.
 
 "Quickly."
 
-Ethan climbed the wooden ramp, legs unsteady. At the top, the plaza opened—limestone worn smooth by millions of feet. Jerusalem sage sharp in the October air. A cat watched from beneath an olive tree, tail twitching at nothing visible.
+Ethan climbed the wooden ramp, each plank creaking a different note, a melody he almost recognized. His legs felt unsteady, as if the ground were tilting. At the top, the plaza opened—limestone worn smooth by millions of feet, each stone humming at a frequency just below hearing. Jerusalem sage sharp in the October air, but underneath it something else—frankincense, myrrh, the ghost of temple incense that shouldn't still linger after two thousand years. A cat watched from beneath an olive tree, its eyes reflecting light that wasn't there yet, tail twitching at things Ethan was beginning to see at the edges of his vision.
 
-The Dome of the Rock caught first light, gold burning against blue sky. Al-Aqsa stretched elegant to the south. Between them, the vast plaza where everything had happened and was still happening.
+The Dome of the Rock caught first light, gold burning against blue sky—but the gold moved, rippled, breathed. The blue tiles sang, each one a different note in a harmony that made Ethan's teeth ache. Al-Aqsa stretched elegant to the south, its arches whispering Arabic that he suddenly understood without knowing how. Between them, the vast plaza where everything had happened and was still happening—he could see it all at once, layered like transparent photographs: Solomon's temple, Herod's courts, Crusader churches, Ottoman fountains, all existing simultaneously.
 
-Birds erupted—dozens of doves. Wings like scattered prayers.
+Birds erupted—dozens of doves, their wings making sounds like Hebrew letters being spoken. Each feather left trails of light in the air, silver-white script that hung for a moment before dissolving. The sound of their wings was also touch—soft brushes against his face though they flew yards away.
 
-Ethan's vision began to blur. He hadn't eaten yet. The altitude. Or something else. The stones beneath his feet seemed to pulse with their own heartbeat.
+Ethan's vision began to blur, but blur was the wrong word—it was more like everything became too clear, too much information flooding in at once. He could taste colors: the gold dome was honey and electricity, the blue tiles were salt water and sky. He hadn't eaten yet, but his mouth filled with flavors—unleavened bread, wine, bitter herbs, flavors from Passovers centuries past. The stones beneath his feet pulsed with their own heartbeat, and he could feel it through his shoes, up his legs, synchronizing with his own pulse until he couldn't tell where he ended and the Mount began.
 
 Then fire.
 
-Not metaphor—actual heat on his face. The taste of ash, the sound of stones falling like tears. He was watching it burn. Rome taking what couldn't be taken, only transformed. Each falling stone a prayer interrupted.
+Not metaphor—actual heat on his face, hot wind that smelled of cedar and sacrifice. The taste of ash coated his tongue, bitter and sacred. He could hear the flames—not just crackling but screaming, singing, praying in languages not yet invented. The sound of stones falling wasn't like tears—it was tears, he could taste the salt, feel the grief as physical weight in his chest. He was watching it burn, but also burning with it. Rome taking what couldn't be taken, only transformed. Each falling stone a prayer interrupted, and he felt every interruption as a physical blow, bruises blooming on his ribs though no one touched him.
 
 Terror flooded him. *What is this? Am I dying? Having a stroke?* His grandmother's voice: "Sometimes God speaks in ways that hurt."
 
-The Dome blazed golden. Beautiful and contested—both true simultaneously. He heard the call to prayer, men arriving for Fajr, their prostrations like tides against stone.
+The Dome blazed golden, and the gold had a sound—bells and drums and voices all at once. Beautiful and contested—both true simultaneously, the contradiction making his nose bleed, copper taste mixing with the ash. He heard the call to prayer, but it was also color—green spirals rising from the minaret. Men arriving for Fajr, their footsteps tasting of devotion, their prostrations creating ripples in the air he could see, concentric circles of faith spreading outward, passing through him, each wave carrying memories that weren't his.
 
-The vision shifted—forward, backward, inward. Children playing where children had always played, where children might play again. Arab and Jewish children together. Then separated by walls. Then together again. The images collapsed into each other, showing everything and nothing.
+The vision shifted—forward, backward, inward—and the shifting had texture, like moving through water, honey, broken glass. Children playing where children had always played, their laughter visible as golden sparks, where children might play again, their future joy already echoing backward through time. Arab and Jewish children together, their voices harmonizing in languages that were the same language before Babel. Then separated by walls that he could feel being built, each brick a small death in his chest. Then together again, the reunion tasting of milk and honey and tears. The images collapsed into each other like shuffled cards, showing everything and nothing, and he could smell time itself—dust and birth and endings all at once.
 
 He saw himself as a bridge between worlds—then the bridge cracking, then himself falling, then rising. The metaphors wouldn't hold still, wouldn't make sense, wouldn't stop.
 
 *This is madness,* some part of him thought. *Or holiness. Probably both.*
 
-When his sight cleared, he was sitting on stones, Ahmad pressing water to his lips. "You fell. Hit your head."
+When his sight cleared—like coming up from deep water, lungs burning—he was sitting on stones that felt too solid after what he'd experienced. Ahmad pressing water to his lips, the liquid shocking cold, tasting of ordinary minerals, blessedly normal. "You fell. Hit your head." Ahmad's voice sounded flat after the symphonies he'd been hearing, but the accent made each word feel carefully chosen, precious.
 
 "Did you see—"
 
@@ -61,6 +61,10 @@ When his sight cleared, he was sitting on stones, Ahmad pressing water to his li
 "What did you see?"
 
 Ahmad was quiet for a moment, eyes on the golden Dome. "A man who needed water. A father thinking of his sick daughter." He paused, almost smiled. "Birds flying in circles. Could mean anything. Or nothing."
+
+Ahmad pulled out a worn photo from his wallet: his grandfather and a Jewish neighbor in 1940s Haifa, arms around each other's shoulders, both smiling. "They owned shops next to each other. Grandfather always said Mr. Goldstein made the best challah in Haifa. When the war came, they promised to visit each other's grandchildren someday."
+
+He looked at Ethan. "I think maybe you're Mr. Goldstein's grandson, and I'm keeping grandfather's promise. Funny how prayers work—sometimes they take seventy years to get answered."
 
 They traded numbers without talking about why.
 

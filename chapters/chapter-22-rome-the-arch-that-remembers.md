@@ -4,7 +4,7 @@ The Arch of Titus still stood in Rome, celebrating Jerusalem's destruction, and 
 
 November rain cleared the Forum, leaving him alone with the monument. Marble the color of old bone; inside the arch, Roman soldiers carrying the Temple’s golden menorah—seven branches as tall as men. SPQR above. Below, barely visible, modern Hebrew scratched: עם ישראל חי. The people of Israel live.
 
-Ethan stood where Jewish slaves had been marched through. His chest tightened, ribs pressing against something that wanted out. The easy Jerusalem tears were gone. This felt different. Heavier.
+I stood where Jewish slaves had been marched through, feeling the weight of their chains in my own limbs, phantom iron around wrists that had never known bondage except the kind I'd chosen. My chest tightened, ribs pressing against something that wanted out—not tears but testimony, not grief but defiance. The easy Jerusalem tears were gone. This felt different. Heavier. Like inheriting a debt that could never be paid, only passed forward.
 
 "We don't walk under it."
 
@@ -96,9 +96,13 @@ Ethan photographed himself standing beyond the arch, looking back. Not triumphan
 
 He texted the photo to Sera: "Still standing."
 
-She responded: "That's all we ever do. Come home."
+She responded: "That's all we ever do. Come home." Then, a moment later: "Had breakthrough in therapy today. Finally said Michal's name without crying. Only took two months."
 
-Home. The word felt different now. Heavier. More complicated.
+Another text came in—Aaron: "Layla and I are official. Her grandmother was from Haifa. She asks hard questions about '48. I don't have answers."
+
+His mother called. He let it go to voicemail, then listened: "Your father's been reading about Jewish mysticism online. He ordered tefillin. I don't know what's happening to us. To all of us."
+
+Home. The word felt different now. Heavier. More complicated. Meanwhile, Rabbi Levi was back in Jerusalem, teaching other lost souls. Ethan imagined him in that same study, drawing the same diagrams for someone else—another searcher trying to make sense of October's darkness.
 
 Sunday morning, Michele handed him a package—recipe cards in faded handwriting.
 

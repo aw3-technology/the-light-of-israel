@@ -2,23 +2,23 @@
 
 Ethan Israel Stone approached the Kotel, and for the first time, every part of his name made sense.
 
-The alarm hadn't been necessary. He'd been awake since 4:30, watching Jerusalem's darkness through his hostel window. Around midnight, a message from Sera: "Change of plan. Dawn at the Wall. Trust me." When she knocked before dawn, he was already dressed, already surrendering to whatever this day would demand.
+The alarm hadn't been necessary. He'd been awake since 4:30, watching Jerusalem's darkness through his hostel window, the air conditioning cycling with a metallic rattle. The hostel sheets smelled of industrial detergent, scratchy against his skin. Outside, a muezzin's call drifted from the Muslim Quarter, ancient Arabic floating over stone. Around midnight, a message from Sera: "Change of plan. Dawn at the Wall. Trust me." When she knocked before dawn—three soft taps that echoed in the corridor—he was already dressed, already surrendering to whatever this day would demand.
 
 "Trust me," she said. "Dawn is when the wall listens."
 
-They walked through empty streets, footsteps echoing off limestone. The Old City before dawn was different—not the tourist maze of daylight but something ancient and patient.
+They walked through empty streets, their footsteps echoing off limestone walls still cool from the night. The air tasted of Jerusalem morning—dry dust, distant bread baking, the faintest trace of jasmine from hidden gardens. Stone stairs worn smooth by millions of feet made soft shuffling sounds under their shoes. The Old City before dawn was different—not the tourist maze of daylight but something ancient and patient. A cat's eyes flashed green in an alley. Somewhere, water dripped steadily, the sound amplified in the silence.
 
-The plaza opened before them. The Wall emerged from darkness like a ship from fog, massive Herodian stones glowing gold, each block larger than a person.
+The plaza opened before them. The Wall emerged from darkness like a ship from fog, massive Herodian stones glowing gold in the first hint of dawn, each block larger than a person. The air here felt different—thicker, charged, like before a thunderstorm but with no clouds. He could smell something sweet—was it incense? Old prayer books? Or just his imagination filling in what should be there?
 
 Ethan's breath caught. The sheer weight of presence, the way the stones seemed to lean forward as if listening.
 
-A handful of worshippers moved in the shadows—an old man wrapped in his grandfather's prayer shawl, a soldier still in uniform, a teenage boy swaying with concentration.
+A handful of worshippers moved in the shadows—an old man wrapped in his grandfather's prayer shawl that smelled of mothballs and decades, the wool worn thin at the edges. A soldier still in uniform, his M16 clicking softly against his hip as he davened. A teenage boy swaying with concentration, his whispered prayers mixing with the cooing of pigeons nesting in the wall's upper cracks. The sound of pages turning, soft as breathing.
 
 "It's smaller than I imagined," Ethan said.
 
 "Most of it is underground," Sera replied. "Like memory."
 
-At the fountain, water shocked cold. Ethan poured it over each hand three times, the ritual rising from somewhere deeper than conscious memory—or just mimicking what he'd seen in movies.
+At the fountain, water shocked cold against his sleep-warm hands, so cold it made him gasp. The metal cup was worn smooth by countless hands before his. He poured it over each hand three times, water splashing on ancient stones, darkening them momentarily. The ritual rising from somewhere deeper than conscious memory—or just mimicking what he'd seen in movies. His wet hands tingled in the cool morning air, droplets catching the first light.
 
 Sera handed him a white kippah. "You can keep this one."
 
@@ -28,9 +28,9 @@ Sera handed him a white kippah. "You can keep this one."
 
 They separated at the mechitza—Sera moving right, Ethan left.
 
-The stone was warm under his palm. Not sun-warm—dawn hadn't reached this section yet. Body temperature, as if the stone were alive. Or maybe he was projecting, desperate to feel something sacred in limestone that was just limestone.
+The stone was warm under his palm, warmer than the morning air should have made it. Not sun-warm—dawn hadn't reached this section yet. Body temperature, as if the stone were alive, breathing. The texture was smoother than he'd expected, polished by millions of hands, yet he could feel tiny ridges, ancient chisel marks, grains of Jerusalem limestone against his fingertips. A vibration—or was he trembling? The stone smelled of salt—tears? sweat?—and something older, like libraries or his grandmother's cedar chest. Or maybe he was projecting, desperate to feel something sacred in limestone that was just limestone.
 
-His hand moved without permission, reaching for paper and pen. Hebrew letters appeared under his fingers—letters he'd never learned to write but which looked right: הנני.
+His hand moved without permission, reaching for paper and pen from the small table. The paper was soft, already humid from the morning air. The pen scratched against it, ink bleeding slightly into the fibers. Hebrew letters appeared under his fingers—letters he'd never learned to write but which looked right: הנני. The ink smelled sharp, chemical, modern against the ancient stone.
 
 Hineni. Here I am.
 
@@ -38,15 +38,17 @@ The word Abraham used when God called. Moses. Samuel. Was he remembering Sunday 
 
 More words came in Hebrew he couldn't read but felt compelled to write. At the bottom, in English: "I am Ethan Israel Stone. I am here."
 
-Wind came from somewhere, catching his prayer note as he reached toward a crack, lifting it back to his feet. He tried again. The same wind—or was there wind at all? Just his nervous hand not pushing the paper deep enough?
+Wind came from somewhere—impossible in this sheltered corner—catching his prayer note as he reached toward a crack, lifting it back to his feet with a whisper like voices. The paper landed on his shoe, damp now from morning dew on the stones. He tried again, tasting dust kicked up by the sudden breeze, grit between his teeth. The same wind—or was there wind at all? Just his nervous hand trembling, not pushing the paper deep enough? His fingers were slick with sweat despite the cool morning.
 
 The third time, he whispered his full name and pressed the paper firmly into an ancient crack. It stayed.
 
 "You have Rivka's eyes."
 
-Ethan turned. An elderly man stood beside him, prayer shawl yellow with age.
+Ethan turned. An elderly man stood beside him, close enough that Ethan could smell him—old wool, coffee, the particular scent of age that wasn't unpleasant, just human. His prayer shawl was yellow with age, the fringes tangled, one corner torn and carefully mended with different thread.
 
 "Your grandmother. I davened beside her here, '68 to '86. She prayed for you by name—'Ethan Israel.' Said the wall would call you when you were ready."
+
+The man's voice was gravelly, accented—Polish? Russian? His breath smelled of mint tea. When he touched Ethan's shoulder, his hand was papery but warm, steadying.
 
 The man showed him a photograph: a young woman at this wall, her hand on these stones, her face like Ethan's but softer.
 

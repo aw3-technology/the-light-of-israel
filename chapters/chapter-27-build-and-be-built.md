@@ -1,6 +1,6 @@
 # Chapter 27: Build and Be Built
 
-Learning Hebrew at thirty-three felt like rewiring his brain, but Ethan Israel Stone's soul already knew the words.
+Learning Hebrew at thirty-three felt like archaeological excavation of self—each new word not learned but remembered, each grammatical structure not foreign but forgotten, my tongue struggling to pronounce what my soul had always known.
 
 July in Jerusalem, the heat different from Brooklyn summer—dry, ancient, pressing down like hands in blessing or burden depending on the day. Seven months since his return from the journey through exile, seven months of Sera's apartment becoming theirs, seven months of tourist visa ticking toward expiration while he navigated the byzantine process of becoming Israeli, of transforming return into remaining.
 
@@ -66,7 +66,25 @@ The words came out certain though nothing was certain, though he had six thousan
 
 Jewish enough. The phrase caught in his throat. His grandmother would have laughed. Or cried. Or both. Jewish enough for the Nazis to kill, now needing to prove Jewish enough for Israel to accept.
 
-That afternoon, while Sera worked—she counseled October 7th survivors, came home each day carrying their trauma like perfume that wouldn't wash off—Ethan went to the construction site he passed each morning. The foreman, Yossi, looked at his soft hands, his American clothes, his immigrant desperation.
+That afternoon, Ethan came home early to find Sera on the living room floor, hundreds of photographs spread around her like a paper timeline. She didn't look up when he entered, just kept arranging and rearranging photos in perfect chronological order.
+
+"What are you doing?" he asked softly.
+
+"Michal always said photos steal souls. I told her that was superstitious bullshit." Her voice was distant, focused on the task. "Now I'm trying to give her soul back, piece by piece. Like... like reassembly."
+
+Ethan noticed now—all the photos were of the same woman. Dark-haired, laughing in most of them. Young.
+
+Sera held up a photo of teenage Michal laughing at some long-ago beach. "I have seventeen years of her in here. If I put them in perfect order, maybe I can find the moment her story was supposed to continue. Maybe I can photograph the ending she deserved. Every life is a series of exposures—some overexposed in harsh light, some underexposed in shadow. October 7th was like someone burning the negatives before the film could be developed."
+
+"She was at Nova," Sera added quietly. "The festival. We were supposed to go together but I had a wedding to shoot. She went alone. Danced alone. Died alone while I was photographing someone else's happiness."
+
+The photos kept spreading, widening circles of memory. Ethan sat carefully at the edge, not disturbing the pattern.
+
+"This isn't your fault."
+
+"I know. But knowing and feeling are different languages." She finally looked up at him, eyes red but dry. "Sometimes I think that's why I fell for you. Another broken story needing completion. Someone else whose narrative got interrupted by October 7th."
+
+Later, while Sera returned to her counseling work—she counseled October 7th survivors, came home each day carrying their trauma like perfume that wouldn't wash off—Ethan went to the construction site he passed each morning. The foreman, Yossi, looked at his soft hands, his American clothes, his immigrant desperation.
 
 "You ever build anything?"
 
@@ -122,7 +140,11 @@ Sera made dinner, traditional Shabbat meal though it was Thursday, trying to sho
 
 The silence that followed had weight, had history, had his grandparents' fleeing and his parents' assimilation and his own return all compressed into the space between words.
 
-"You can't be serious," his father said.
+His mother reached into her purse, pulled out something wrapped in tissue paper. "I brought these." His grandmother's Shabbat candlesticks, the ones from Poland she'd mentioned in her voicemail months ago. "Your father found them in the attic. Along with her ketubah. And..." She hesitated. "Her diary. From 1948. When Israel..." She couldn't finish.
+
+"When Israel became real," his father said quietly. "She wrote about dancing in the streets of Brooklyn. Crying and dancing." He looked at his son. "I never knew she kept a diary."
+
+"You can't be serious," his father said, changing the subject back, uncomfortable with the emotion.
 
 "I've never been more serious."
 

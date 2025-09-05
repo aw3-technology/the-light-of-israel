@@ -54,11 +54,11 @@ The air inside—hops and sweat, aggressive cologne, lime.
 
 "Ethan!" Aaron stood for the brotherhood hug. "We're three rounds in, you need to catch up."
 
-Aaron Gold looked like success—tailored shirt, rimless glasses, maintained stubble. A thin gold chain caught the light at his throat, disappearing under his collar.
+Aaron Gold looked like success—tailored shirt, rimless glasses, maintained stubble. A thin gold chain caught the light at his throat, disappearing under his collar. Every culture had someone like Aaron—the one who'd made it while carrying invisible weight, success that looked perfect until you noticed how they touched their throat when no one was looking, checking if the hidden inheritance was still there.
 
 "Rough day?" Ethan asked, signaling the bartender. Name tag: Gabriel.
 
-"Every day's rough when you're defending people the system wants to disappear." The words came out practiced, automatic.
+"Every day's rough when you're defending people the system wants to disappear." The words came out practiced, automatic, like a closing argument he'd rehearsed so many times it had lost its conviction.
 
 "Right." Ethan ordered an Old Fashioned. Nineteen dollars paid out for whiskey and sugar. His jaw ached—he'd been clenching again without noticing.
 

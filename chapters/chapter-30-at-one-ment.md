@@ -76,6 +76,14 @@ He checked the twins. Placed hands on their heads, feeling blessing flow through
 
 They slept, unaware of everything.
 
+His phone, silent for twenty-five hours, suddenly flooded with messages.
+
+Aaron: "Spent Yom Kippur with Layla's family. They fasted with us. Her grandmother said, 'We all answer to the same God.' I don't know what to do with that."
+
+His mother: "We went to temple. Both of us. Your father cried during Yizkor when they mentioned the martyrs of October 7th. We're thinking of visiting again. Maybe longer this time."
+
+Sera looked at her own phone, then put it away. "My therapist says survivor's guilt never fully leaves. But today, during Ne'ilah, I felt Michal there. Not haunting. Just... present. Like she was saying it's okay to live."
+
 Outside, Jerusalem hummed back to life.
 
 Ethan Israel Stone, thirty-four, all fragments integrated.

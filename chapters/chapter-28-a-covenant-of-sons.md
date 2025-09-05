@@ -1,6 +1,6 @@
 # Chapter 28: A Covenant of Sons
 
-The twins arrived during a siren, and Ethan learned that birth here is never separate from survival.
+The twins arrived during a siren, and I learned that birth here is never separate from survival—every Jewish child born into both promise and peril, covenant and conflict, the eternal tension of chosen and choosing.
 
 They'd been deep into the Passover seder, Sera's family crowded around the table in their Jerusalem apartment, when she gasped during Dayenu. Her hand went to her enormous belly, wine spilling across the white tablecloth.
 
@@ -34,7 +34,17 @@ Ethan held them both, these impossible creatures who were somehow his, slick wit
 
 Sera was shaking—adrenaline, exhaustion, blood loss. "Let me see them," she whispered, and when they placed both boys on her chest, skin to skin, she made a sound Ethan had never heard before—pure animal recognition.
 
-His parents arrived twelve hours later, having taken the first flight they could get. Ethan watched his mother's face transform as she held her first grandson, years of careful distance collapsing into pure wonder.
+His parents arrived twelve hours later, having taken the first flight they could get. At Ben Gurion Airport, David Stone approached Israeli customs with his perfectly organized documents. The young Israeli officer looked at his passport: "Stone... what's your Hebrew name?"
+
+David froze. After forty years of assimilation, he whispered: "Avraham... Avraham ben Moshe."
+
+The officer smiled: "Welcome home, Avraham."
+
+David started crying right there in customs—fifty years of buried identity surfacing. Miriam took his hand: "I haven't heard that name since your bar mitzvah."
+
+"I haven't said it since then," David said through tears. "I thought I'd forgotten who I was."
+
+At the hospital, Ethan watched his mother's face transform as she held her first grandson, years of careful distance collapsing into pure wonder.
 
 "He looks like you did," she whispered, tracing the baby's features. "Exactly like you." Then, softer: "Maybe this is what mom was trying to tell me all those years."
 
