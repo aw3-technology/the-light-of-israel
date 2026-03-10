@@ -4,7 +4,7 @@ The dream came in Aramaic, and Ethan woke knowing he had to leave the Holy Land.
 
 He sat up in Sera's bed, sweat-soaked, gasping. Through the window, Jerusalem's pre-dawn darkness pressed against the glass. A siren wailed. Ambulance or police, constant soundtrack since the stabbing near Damascus Gate yesterday. Beside him, Sera stirred but didn't wake, her breath steady despite the Glock she now kept in the nightstand.
 
-The dream lingered. His grandmother, young, impossibly young, standing in ruins, pointing west. Behind her, shadows with yellow stars. "Find where we were lost," she'd said in Aramaic. And: "They're watching. They know you're here."
+The dream lingered. His grandmother, young, impossibly young, standing in ruins, pointing west. Behind her, shadows with yellow stars. "Find where we were lost," she'd said in Aramaic. But also: "They're watching. They know you're here."
 
 Ethan slipped out of bed onto the small balcony. November cold bit through his t-shirt. Below, a street sweeper pushed his cart, bristles scraping stone. His phone: 5:41 AM.
 
@@ -40,7 +40,7 @@ As Ethan spoke, the rabbi's fingers found cities on the map. Warsaw. Rome. Berli
 
 "Started? Yes. And you could stay, fight the bureaucracy, wait for lawyers." The rabbi's eyes were kind but firm. "Or you could follow the dream. Your grandmother pointed west for a reason."
 
-Four cities, the rabbi explained, pushing yellowed tickets across the desk. Athens, Rome, Berlin, Cairo. "Where we were lost," he said. "Where sparks still wait." A Lithuanian couple's cancelled tour — their son called up for reserves. "Their loss, your escape route."
+Four cities, the rabbi explained, pushing yellowed tickets across the desk. Athens, Rome, Berlin, Cairo. "Where we were lost," he said. "Where sparks still wait." A Lithuanian couple's cancelled tour. Their son had been called up for reserves. "Their loss, your escape route."
 
 "You have three days," Rabbi Levi said. "Your grandmother's birthday is November 30th. Make that your departure. Tell them you're touring Jewish heritage sites. Come back on a different visa, when things calm down."
 
@@ -60,61 +60,9 @@ Sera was packing when he returned. Not cooking. Her military duffle lay open on 
 
 "Tomorrow night." She finally faced him, eyes red. "So you leave for your exile, I leave for mine. At least yours has museums."
 
-"Sera, that's not—"
+"Sera—"
 
-"Not what?" She turned fully now, a folded uniform in her hands, and something in her face had shifted. Not sadness. Something harder. "Not fair? You want to talk about fair?"
-
-"I didn't choose this. The visa—"
-
-"You chose all of it." She dropped the uniform onto the bed. "You chose to come here after October 7th like it was a calling. You chose Rabbi Levi and his candles and his mystical maps. You chose Kabbalah like it was a semester abroad." Her voice climbed. "And now the semester's over and you're going to Athens. To Rome. To *Berlin*. While I go into tunnels."
-
-"That's not what this is."
-
-"Then what is it, Ethan? Because from where I'm standing, it looks exactly like spiritual tourism."
-
-The word hit him in the chest. Tourism.
-
-"I buried friends," she said. "I identified what was left of Yael from her tattoo because there wasn't enough face. And you come here and you study and you feel things and now you're leaving with a *mezuzah* and a nice story about exile."
-
-"You think I can't see what's happening here?"
-
-"You can see. That's the problem. You see everything. You feel everything. And then you get on a plane."
-
-"Because they're making me leave!" His voice broke louder than he intended. The neighbor's dog started barking through the wall. "You don't know what exile means. You were born here. You have the passport, the language—everything. You've never had to find out you're Jewish from the outside."
-
-"Don't lecture me about being Jewish."
-
-"Abraham left. Moses left. Your people have been leaving and returning for three thousand years and you're standing there calling me a tourist because I'm doing the same thing?"
-
-"Abraham didn't have a return ticket to JFK."
-
-"And I don't have a country that claims me!" He was shouting now. "I have a grandmother who died speaking a language nobody around her understood. I have a mother who hid every menorah in a closet for forty years. I came here because something in my blood told me to, and maybe I don't have the right. But don't tell me I'm leaving because it's easy."
-
-"You're leaving." Quieter now but no less sharp. "That's what Americans do. You leave."
-
-"And Israelis stay and suffer and call it identity."
-
-He regretted it instantly. Her face went blank in the way he'd learned meant she was deciding whether to cry or break something.
-
-Neither spoke. The muezzin's call finished. Traffic sounds from Jaffa Road. The neighbor's dog settled.
-
-Sera sat on the edge of the bed, next to the open duffle. Ethan stayed by the window. Six feet between them. Continental.
-
-"Your left boot is untied," she said, not looking at him.
-
-He looked down. It was. He bent and tied it, and somehow that small ordinary motion broke something loose.
-
-"I'm scared," she said. Still not looking. "The tunnels. I'm scared of the tunnels, Ethan."
-
-He crossed the six feet. She didn't reach for him, but she didn't pull away when he sat beside her. They didn't touch.
-
-"I know," he said.
-
-"And I'm angry at you for going where there aren't tunnels."
-
-"I know that too."
-
-Nothing was forgiven. Nothing was resolved. The air in the room had changed from explosive to merely heavy. They sat with it because there was nothing else to do.
+"Don't. Just... we have tonight. One night before everything changes."
 
 That night, they held each other like drowning people.
 
@@ -148,13 +96,13 @@ His mother called the next morning.
 
 Silence. Then: "Oh, sweetheart. Oh no."
 
-Rabbi Levi's study, night before departure. Maps gone. A single candle — a menorah reduced to its essence, one flame doing the work of nine.
+Rabbi Levi's study, night before departure. Maps gone. One candle.
 
-The rabbi was on the phone when Ethan arrived, speaking rapid Hebrew, his free hand pressing against his forehead. He held up a finger — *one minute*. The minute became five. Then ten. Ethan sat in the worn chair, listening to half a conversation about a soldier's son, a hospital, insurance forms.
+The rabbi was on the phone when Ethan arrived, speaking rapid Hebrew, his free hand pressing against his forehead. He held up a finger—*one minute*. The minute became five. Then ten. Ethan sat in the worn chair, listening to half a conversation about a soldier's son, a hospital, insurance forms.
 
 When the rabbi hung up, he looked ten years older. "Goldstein boy. Twenty-two. Lost both legs at the border." He stared at the phone like it had betrayed him. "His mother wants me to say something meaningful. I have nothing meaningful."
 
-He pressed a travel *mezuzah* into Ethan's hand, the metal worn smooth, a hairline crack across its casing.
+He pressed a travel *mezuzah* into Ethan's hand, the metal worn smooth.
 
 "I had a whole speech prepared," the rabbi said. "About exile and sparks. Very poetic." He waved it away. "Go see what happened to us. Come back. That's it."
 
@@ -164,7 +112,7 @@ He pressed a travel *mezuzah* into Ethan's hand, the metal worn smooth, a hairli
 
 Through the window, an ambulance siren. Then another.
 
-The last night with Sera, they lit candles. A Tuesday that felt like *Shabbat*. Sacred time carved from ordinary hours.
+The last night with Sera, they lit candles. Not Friday, but it felt like *Shabbat* anyway. Sacred time carved from ordinary Tuesday.
 
 "My unit—" she started in the darkness, then stopped.
 
@@ -202,10 +150,12 @@ In his seat, the engines starting, Ethan finally understood her Hebrew words. Th
 
 I love you.
 
-She'd never said it in English.
+She'd never said it in English. Saved it for goodbye.
 
 The plane lifted. Below, Israel became coast, became memory, became a debt he'd have to earn the right to repay.
 
-The Mediterranean spread below, the same sea Jews had been crossing for millennia. This time, Ethan wasn't fleeing. He was being sent.
+The Mediterranean spread below, the same sea Jews had been crossing for millennia. But this time, Ethan wasn't fleeing.
 
-In his pocket, the travel *mezuzah* grew warm against his fingers. His grandmother's pointing hand leading him west.
+He was being sent.
+
+In his pocket, the travel *mezuzah* Rabbi Levi had given him grew warm against his fingers. Each doorway he would cross, each city he would enter. His grandmother's pointing hand leading him west.

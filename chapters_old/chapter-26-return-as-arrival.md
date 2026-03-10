@@ -1,6 +1,6 @@
 # Chapter 26: Return as Arrival
 
-The plane dropped hard through December turbulence, and the overhead bins rattled like teeth. When wheels hit runway, half the passengers broke into applause. The other half sat silent, checking phones. Ethan found himself between, palms braced on the armrests. He might have made a terrible mistake.
+The plane dropped hard through December turbulence, and the overhead bins rattled like teeth. When wheels hit runway, half the passengers broke into applause. The other half sat silent, checking phones. Ethan found himself between, palms braced on the armrests, unsure which response was his. Return and repentance shared the same Hebrew root. He understood that now. He also understood he might have made a terrible mistake.
 
 Immigration moved with efficient hostility. The officer studied his stamps: Athens, Rome, Berlin, Warsaw, Cairo.
 
@@ -30,15 +30,13 @@ Their embrace was awkward, bodies forgetting rhythm. She pulled back first.
 
 "Another stabbing yesterday. In the market."
 
-The kiss tasted like distance.
+The kiss tasted like distance, like two people trying to remember why they'd promised things that December would have to keep.
 
 "How was your trip?" she asked in the car.
 
 Trip. Not exile. Not journey. Trip. Like he'd been to Cancún.
 
-Jerusalem rose from the hills. They drove in the careful quiet of people who'd forgotten how to be together, her hand on the gear shift, his watching the landscape he'd dreamed about from Berlin hotel rooms.
-
-At a traffic light near the city entrance, a boy tapped on Sera's window, selling packets of tissues and chewing gum. Twelve, maybe thirteen, school backpack still on. She shook her head, said something in Arabic — *la, shukran* — and the boy moved to the next car without breaking stride. He'd been doing this while Ethan was in Berlin agonizing over Stolpersteine. While Ethan was in Rome cataloguing his feelings about arches. This boy sold tissues at traffic lights and the city continued, and Ethan's forty-day exile was a luxury the boy had never been offered and would not have recognized as suffering.
+Jerusalem rose from the hills like a promise he wasn't sure he could keep. They drove in the careful quiet of people who'd forgotten how to be together, her hand on the gear shift, his watching the landscape he'd dreamed about from Berlin hotel rooms.
 
 "I met someone in Berlin," he said suddenly, and even as the words left him he wondered why he was telling her this.
 
@@ -64,7 +62,9 @@ Yossi emerged from the kitchen, holding a coffee and wearing yesterday's uniform
 
 "Returning," Sera echoed quietly. "Yes."
 
-Ethan unpacked in her room. The jar of earth sat heavy in his hands — sacred soil that looked, under Jerusalem's fluorescent kitchen light, like something scraped from a garden. In Poland, it had felt like carrying souls. Here, it felt like hoarding.
+Ethan unpacked in her room. The jar of earth from Treblinka sat heavy in his hands—sacred soil that looked, under Jerusalem's fluorescent kitchen light, like something scraped from a garden. In Poland, it had felt like carrying souls. Here, it felt like hoarding. His notebook fell open to a page: "The weight of history in cobblestones." Tourist poetry. Exactly.
+
+But then—a memory surfaced. Not from the camps or the Wall, but from the bus in Berlin. An old woman, maybe Turkish, maybe Lebanese, watching her grandson draw. She'd smiled at Ethan without words, that universal recognition of stranger, but not enemy. Small grace. Maybe the journey wasn't about collecting revelations. Maybe it was about learning to receive such gifts.
 
 "You carry them all now," Sera said, but it sounded like a question.
 
@@ -74,11 +74,11 @@ Ethan unpacked in her room. The jar of earth sat heavy in his hands — sacred s
 
 He braced himself.
 
-"I care about you. But you left for forty days. Had this whole journey. Without me. I stayed here, dealing with sirens and protests and — we're in different stories now."
+"I care about you. But you left for forty days. Had this whole—journey. Without me. I stayed here, dealing with sirens and protests and—we're in different stories now."
 
 "The same story. Different chapters."
 
-"Don't." Her voice went cold. "Don't wrap this in a metaphor like it's one of your spiritual discoveries. I'm talking about my life, Ethan. My actual life. While you were walking through history, I was walking through checkpoints. My friend Tamar — remember her from the cafe? — she was on the bus that got hit last week. Shrapnel in her shoulder. I held her hand in the ER while you were emailing me about Roman arches."
+"Don't." Her voice went cold. Not hurt—cold. "Don't wrap this in a metaphor like it's one of your spiritual discoveries. I'm talking about my life, Ethan. My actual life. While you were walking through history, I was walking through checkpoints. My friend Tamar—remember her from the café?—she was on the bus that got hit last week. Shrapnel in her shoulder. I held her hand in the ER while you were emailing me about Roman arches."
 
 "I didn't know—"
 
@@ -92,25 +92,27 @@ The number hit him like a slap. He opened his mouth to argue and couldn't.
 
 "And you come back with a bag of dirt from Poland and you want me to hold you while you cry about your grandmother's town. And I would. I would hold you. But who held me, Ethan? Who holds me?"
 
-Silence. The refrigerator hummed. Yossi's jacket hung by the door like an accusation.
+Silence. The refrigerator hummed. A crack in the kitchen tile had been filled with grout the wrong shade of gray, the repair more visible than the damage.
 
 "Maybe I should go," Ethan said.
 
 "Maybe you should." She wasn't crying. That was worse. "Maybe you should go find another mystical experience. Another Wall to touch. Another country to have feelings in."
 
-He stood. His suitcase was still by the door — he hadn't even fully unpacked. He picked it up. The handle felt familiar in the way running always felt familiar.
+He stood. His suitcase was still by the door—he hadn't even fully unpacked. He picked it up and the handle felt familiar in the way that running always felt familiar, the weight of luggage, the ease of departure.
 
 "That's what I thought," she said quietly, watching him grab it. "That's exactly what I thought you'd do."
 
-He set the suitcase down. They stared at each other across the kitchen. Outside, a siren started — not a rocket, just an ambulance — and Sera flinched. The flinch was small, involuntary, a twitch in her shoulders she tried to hide and couldn't. It lasted less than a second.
+He set the suitcase down. They stared at each other across the kitchen. The basil plant drooped between them on the sill. Outside, a siren started—not a rocket, just an ambulance—and Sera flinched. The flinch was small, involuntary, a twitch in her shoulders that she tried to hide and couldn't. It lasted less than a second.
 
-"I'm sorry," he said. "I'm sorry I didn't ask. I'm sorry I was so far inside my own head I forgot you were in a war zone while I was having revelations." He sat down on the kitchen floor, his back against the cabinet. "I don't know how to do this. I don't know how to be here and be enough."
+It broke him open.
+
+"I'm sorry," he said. "I'm sorry I didn't ask. I'm sorry I was so far inside my own head that I forgot you were in a war zone while I was having revelations." He sat down on the kitchen floor, legs folding under him, his back against the cabinet. "I don't know how to do this. I don't know how to be here and be enough."
 
 She didn't sit down with him. She leaned against the counter and looked at the ceiling. A long time passed. The ambulance siren faded.
 
-"I don't know if you can be enough," she finally said. "You need meaning, Ethan. You need everything to signify something. And I just need someone to be here when the siren goes off. Those might not be the same thing."
+"I don't know if you can be enough," she finally said. "That's what scares me. You need meaning, Ethan. You need everything to signify something. And I just need someone to be here when the siren goes off. Those might not be the same thing."
 
-They stayed like that for a long time — him on the floor, her against the counter, three feet apart and forty days apart.
+They stayed like that for a long time—him on the floor, her against the counter, three feet apart and forty days apart and a fundamental question between them that neither could answer: whether his hunger for transcendence and her need for simple presence could coexist in the same relationship, the same bed, the same life.
 
 "I'm not going to stop needing meaning," he said finally. "I can't. It's who I am now."
 
@@ -122,7 +124,7 @@ They stayed like that for a long time — him on the floor, her against the coun
 
 "I don't know. But I'm not picking up that suitcase."
 
-The next morning — and it was morning before either spoke again — they went to Rabbi Levi, but he was busy. Real crisis, someone's son missing in Gaza. His assistant squeezed them in for fifteen minutes.
+The next morning—and it was morning before either spoke again, the silence between them a living thing they both tended through the night—they went to Rabbi Levi, but he was busy. Real crisis, someone's son missing in Gaza. His assistant squeezed them in for fifteen minutes.
 
 "Ah, the wanderer returns." Rabbi Levi's phone buzzed constantly—three different ringtones. "And?"
 
@@ -134,15 +136,15 @@ Outside, the assistant handed them forms. "If you're serious about aliyah. Fair 
 
 He stared at the stack of forms. This was what he'd wanted, apparently.
 
-The Wall on Shabbat writhed with tourists and soldiers, red string vendors and teenage settlers.
+The Wall on Shabbat writhed with tourists and soldiers, red string vendors and teenage settlers. Different from that first night forty days ago, when solitude had made space for wonder.
 
 "Look," Sera said, pointing. "Your first Wall experience—see that kid with the iPhone? That was you, basically."
 
-Ethan watched the boy filming himself praying, performing devotion for social media.
+Ethan watched the boy filming himself praying, performing devotion for social media. He wondered if he'd looked that transparent.
 
-But then: an elderly man pressed a prayer book into Ethan's hands, smiled without agenda, moved on. The same kindness from October. Routine grace — offered to every confused visitor, every seeker playing at pilgrimage. More sacred for being routine.
+But then: an elderly man pressed a prayer book into Ethan's hands, smiled without agenda, moved on. The same kindness from October, only now Ethan recognized it as routine grace—offered to every confused visitor, every seeker playing at pilgrimage. Which made it more sacred, not less.
 
-That evening, fifth night of Hanukkah. Yossi had invited friends — loud Israelis who switched between languages, excluding Ethan from fluency rather than malice.
+That evening, fifth night of Hanukkah. Yossi had invited friends—loud Israelis who switched between languages, excluding Ethan not from malice but from fluency.
 
 "So you want to stay?" Yossi asked, switching to Hebrew after his third beer. The others leaned in—this was entertainment now.
 
@@ -150,15 +152,13 @@ That evening, fifth night of Hanukkah. Yossi had invited friends — loud Israel
 
 Someone laughed. "Considering. That's very American."
 
-Even his Hebrew sounded like tourism. Sera studied her hands.
+Even his Hebrew sounded like tourism. Sera studied her hands. That silence said everything.
 
 Later, Yossi found Ethan alone on the balcony, both of them smoking—a habit Ethan had picked up in Berlin and couldn't shake.
 
-"My grandfather," Yossi said quietly, "came from Casablanca in '67. Lost a leather business, three brothers who stayed behind." He dragged on his cigarette. "First year, he swept floors. Fifteen-hour days. Spoke no Hebrew."
+"My grandfather," Yossi said quietly, "came from Casablanca in '67. Lost a leather business, three brothers who stayed behind. First year, he swept floors. Spoke no Hebrew."
 
-The city lights flickered below them. "Know what he told me before he died? 'The journey ends when you start building.'"
-
-Building what, he thought. He could barely get past immigration.
+He stubbed out his cigarette. "Know what he told me before he died? 'The journey ends when you start building.'" A long pause. "I have visa applications for Canada on my kitchen table. Three months now, just sitting there." He lit another cigarette with shaking hands. "I love this country. But this country is eating my future. Security work pays nothing. My girlfriend wants children. I can't afford children in Jerusalem on what they pay me." He exhaled smoke into the dark. "Don't tell Sera. She'll try to talk me out of it, and she'd be right, and I'd still go."
 
 The call to his parents went sideways from the start.
 
@@ -184,7 +184,7 @@ He laughed despite himself. She did too—surprised by her own joke.
 
 "I know it's not." Her voice caught, briefly. Then, businesslike: "You'll need warm socks. Jerusalem gets cold in winter. People don't realize."
 
-Warm socks. Her way of saying what she meant.
+Warm socks. Her way of saying she wasn't ready to say what she meant.
 
 Later, Sera and he finally alone, Yossi's laughter echoing from the living room. The kitchen smelled like cumin and lemon from lunch, a forgotten pan cooling on the stove.
 
@@ -200,9 +200,9 @@ He hadn't slept since the plane. Forty hours now, or maybe more—the time zones
 
 But what if landing broke everything?
 
-She turned back to the laundry and he watched her hands move — folding, smoothing, stacking. The specific way she tucked the sleeve of a shirt before folding it in half. He'd forgotten that gesture in forty days and now it came back with a force that surprised him. Recognition. This woman's hands had become as familiar to him as his own, and he'd willingly walked away from them for forty days to go touch ancient stones.
+She turned back to the laundry and he watched her hands move—folding, smoothing, stacking. The specific way she tucked the sleeve of a shirt before folding it in half. He'd forgotten that gesture in forty days and now it came back with a force that surprised him—not desire exactly, but something more dangerous: recognition. The knowledge that this woman's hands had become as familiar to him as his own, and that he'd willingly walked away from them for forty days to go touch ancient stones.
 
-They made love that night with a kind of desperate carefulness. Her body strange and familiar at the same time — the mole below her left shoulder blade that he'd forgotten, the sound she made when he kissed her neck that he hadn't. His hands were rougher now, calloused from weeks of travel, and she noticed, her breath catching when his palm moved across her stomach. He could feel the tension she carried in her shoulders, months of sirens and checkpoints stored in the muscles of her back. Afterward, she traced the new lines around his eyes.
+They made love that night with desperate carefulness, her body strange and familiar at the same time. Afterward, she traced the new lines around his eyes.
 
 "You're different," she said. Not a complaint. An observation.
 
@@ -210,15 +210,19 @@ They made love that night with a kind of desperate carefulness. Her body strange
 
 "I don't know yet."
 
-She cried then — the exhaustion of holding too much alone for too long. He held her.
+She cried then—not sadness, but the exhaustion of holding too much alone for too long. He held her and felt useless and necessary and terrified all at once.
 
 "While you were in Rome, my unit got called up. Reserve duty. Three days on the Gaza border because intelligence said something was coming. Nothing came. Just heat and waiting and that particular army smell of fear and instant coffee." Her voice was matter-of-fact. "I'd get your emails about cathedrals and think: he gets to choose his meaning. Mine gets chosen for me."
+
+Choice versus conscription. Tourism versus citizenship. He'd been playing at devotion while she'd been living it.
 
 "Come with me next time."
 
 "There is no next time." She turned to face him fully. "You did the journey. Now comes living. And living here—it's hard, Ethan. Beautiful and hard. The same stabbing that breaks your heart also makes you call your mother to check she's safe. That's what love of country looks like. Not just the poems. Also the worry."
 
-His phone buzzed — work emails his replacement couldn't decode. That old life persisting like phantom pain. He could answer, slide back into consulting, pretend forty days never happened. The thought terrified him with its appeal.
+He didn't know if he was strong enough for grocery lines in Hebrew, for bureaucrats who would never care about his journey, for love that demanded presence instead of poetry.
+
+His phone buzzed—work emails his replacement couldn't decode. That old life persisting like phantom pain. He could answer, slide back into consulting, pretend forty days never happened. The thought terrified him with its appeal.
 
 "Can we try?" he asked. "Can we see what happens?"
 
@@ -250,14 +254,10 @@ Ethan laughed—a real laugh, the first in what felt like weeks. The sound surpr
 
 "You absolutely look like a cat. A confused American cat who just moved to the neighborhood and hasn't figured out the garbage schedule yet."
 
-He laughed harder, and she laughed harder, and the sound went on longer than the joke deserved. Both of them holding onto it because laughter was easier than everything they still had to figure out. For thirty seconds nothing had any spiritual significance at all.
-
-Later, walking alone while Sera napped, he passed the tissue boy's intersection again. Empty now, the light cycling green-yellow-red for no one. He thought about the jar of Polish earth sitting in the kitchen — sacred soil he'd carried across four countries, and what it would look like to a boy who sold gum at traffic lights. A man hauling dirt from one place to another. Ethan couldn't make the two stories fit together — his homecoming and the boy's daily grind happening in the same city, at the same intersection — and for the first time he suspected they weren't supposed to fit. That the book he was writing in his head, the one with the clean arc from exile to return, had a page missing that he didn't know how to write and maybe never would.
+He laughed harder, and she laughed harder, and the sound went on longer than the joke deserved, both of them holding onto it because laughter was easier than everything they still had to figure out, and because for thirty seconds nothing had any spiritual significance at all—it was just funny, just a cat on a railing and grapefruit juice on their hands and the December sun on their faces.
 
 That evening, Sera dozed beside him, her hand on his chest. The fifth Hanukkah candle had burned to wax. Tomorrow would be the sixth light, then the seventh, then the eighth. And after that, ordinary days.
 
-Yossi's off-key singing drifted from the shower. The washing machine hummed. A neighbor's baby cried. Jerusalem's soundtrack of the everyday holy.
+The washing machine hummed. A neighbor's baby cried.
 
-In the morning, he would look for work. Learn to drive on the right side of the road. Practice Hebrew with strangers who would correct his accent. He would not drive past the intersection where the boy sold tissues because he did not know which route to take, and because knowing would not change anything, and because that was exactly the kind of thought he needed to sit with rather than resolve.
-
-But tonight, this.
+In the morning, he would look for work. Practice Hebrew with strangers who would correct his accent. Build something he couldn't yet name.

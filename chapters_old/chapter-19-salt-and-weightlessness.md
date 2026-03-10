@@ -30,8 +30,6 @@ His eyes watered. The salt, maybe. He blinked it away.
 
 Time dissolved. They floated in water older than religion, older than names.
 
-Then his phone rang from the shore — the ringtone he'd set for his mother, cutting across the silence. The spell cracked. He scrambled upright, swallowed salt water, gagged on the bitterness. Sera steadied him. By the time he reached his towel, the call had gone to voicemail. He stood there dripping, the taste of the Dead Sea burning in his throat, and thought: *You can't even float for ten minutes without the old life reaching in.* The transcendence that had felt earned now felt borrowed, a tourist's approximation of surrender. He stood in the sun, dripping, and waited for the feeling to return. It didn't, exactly. Something close to it did, but with an edge of self-consciousness he couldn't shake.
-
 "Come," she finally said, leading him to shore where a Bedouin vendor sold bags of Dead Sea mud, black and dense and faintly sulfurous.
 
 She began with his back, her hands spreading the mud.
@@ -64,7 +62,7 @@ He broke there. Completely. It came from nowhere. One minute he was reading abou
 
 Sera held him. Awkwardly at first, then with more certainty. "Hey," she said, "hey, it's okay. First time I brought someone here, he threw up. You're doing better than that."
 
-"We're still here," she whispered. That was all.
+"We're still here," she whispered. "They're gone. Rome, the empire, all of it dust. But we're still here. That's the miracle. Not the dying but the continuing."
 
 They descended as the sun began its own descent, the light turning the desert gold, then amber, then a red that had no name.
 
@@ -76,19 +74,7 @@ She looked at him, surprised. "Shabbat's in two hours."
 
 "I know. I just—I need to write down what I'm feeling. Before I forget."
 
-At the Qumran visitor center, closed but parking lot empty, Ethan pulled out his notebook, the one Rabbi Levi had given him. He wrote quickly, urgently. Then stopped. Read what he'd written. It was terrible — purple, overwrought, the kind of thing someone would write in a memoir he'd mock in Brooklyn. *Today I floated in ancient waters and felt my burdens dissolve.* He crossed it out. Tried again. Crossed that out too. The experience had been real but the words for it were counterfeit, borrowed from someone else's spiritual vocabulary. He closed the notebook.
-
-"What?" Sera asked, watching him.
-
-"I can't make it sound like what it was. It keeps coming out like a yoga retreat brochure."
-
-"Maybe it doesn't need to be written down."
-
-"Then how do I keep it?"
-
-She shrugged. "You don't. That's the point."
-
-He wasn't sure she was right. He wasn't sure she was wrong. He put the notebook away with the feeling that the day's meaning was already leaking out through the words he couldn't find for it.
+At the Qumran visitor center, closed but parking lot empty, Ethan pulled out his notebook, the one Rabbi Levi had given him. He wrote quickly, urgently.
 
 But a restlessness was building in him. Not just the desire to record, but to act. He'd been passive for weeks. Receiving. Absorbing. Following Sera, following Rabbi Levi, following the itinerary of other people's wisdom. What had he actually decided? What had he initiated?
 
@@ -114,7 +100,7 @@ Sera's expression hardened. "You called her without telling me?"
 
 "Because if I'd told you first, you would have talked me out of it."
 
-The silence between them was new. The friction of two people discovering they wanted different things.
+The silence between them was new. Not the comfortable kind from the Dead Sea, but the friction of two people discovering they wanted different things.
 
 "This is what you do," she said quietly. "You decide things and then present them as facts. Like the trip to Tel Aviv. Like coming to Jerusalem. Like—" She stopped. "You're not passive, Ethan. You're sneaky about your decisions. There's a difference."
 
@@ -124,7 +110,7 @@ She was right. The realization stung.
 
 "Then go. But I'm not coming this time."
 
-He went on Thursday. Alone. Without Sera's knowledge of which roads to take, he got lost twice and arrived late. Sergeant Katz had already left for the day. He sat in the Kibbutz parking lot for two hours, unable to get past the new security checkpoint, writing in his notebook about absence and access and the limits of good intentions. The trip was a failure. But it was his failure.
+He went on Thursday. Alone. Without Sera's knowledge of which roads to take, he got lost twice and arrived late. Sergeant Katz had already left for the day. He sat in the Kibbutz parking lot for two hours, unable to get past the new security checkpoint, writing in his notebook about absence and access and the limits of good intentions. The trip was a failure. But it was his failure. His decision, his consequences, his story to carry.
 
 "What are you writing?" Sera asked later, when he returned sunburned and chastened.
 
@@ -136,15 +122,15 @@ His phone buzzed. Samira: "My third graders drew two Jerusalems today. One with 
 
 Both of them carried the sea's residue. Mineral traces that wouldn't wash away easily.
 
-Her hand found his across the gear shift. A necessary completion of a circuit building since that first *Shabbat*.
+Her hand found his across the gear shift. Not romantic but necessary, the completion of a circuit that had been building since that first *Shabbat*.
 
 At a red light, she turned to him. "You've got salt—" she started to say, then stopped, her finger tracing a line of dried salt from his cheek. "Everywhere, actually." Her hand lingered a moment too long.
 
 Jerusalem embraced them with Friday afternoon urgency. Her apartment was small but high, windows facing the Old City.
 
-The apartment was cramped in a way entirely hers. Books in three languages teetered in uneven stacks. A guitar in the corner covered in dust. "I keep meaning to play again," she said, noticing his glance. "Haven't touched it since... well. Some things you put down and can't pick back up."
+The apartment was cramped in a way that was entirely hers. Books in three languages teetered in uneven stacks. A guitar in the corner covered in dust. "I keep meaning to play again," she said, noticing his glance. "Haven't touched it since... well. Some things you put down and can't pick back up."
 
-Her camera equipment occupied the kitchen table. Contact sheets were pinned to a corkboard above the sink, tiny faces repeating in rows. The whole place smelled of darkroom chemicals and jasmine from a windowsill plant that was, against all odds, thriving.
+Her camera equipment occupied the kitchen table. Contact sheets were pinned to a corkboard above the sink, tiny faces repeating in rows. The whole place smelled of darkroom chemicals and the jasmine plant on the windowsill that was, against all odds, thriving.
 
 She lit candles while he watched, still unsure of his place in this ritual.
 
@@ -160,7 +146,7 @@ She examined her hands in the candlelight. "Still feels like the sea."
 
 As the candles steadied, she kissed him. Salt and wine and the taste of arrival. When they broke apart, she smiled. "Now it's *Shabbat*."
 
-Sirens announced the holy time across the city. An invitation dressed as warning.
+Sirens announced the holy time across the city. Not emergency but invitation.
 
 Outside, the muezzin's call wound through streets where Jewish families walked to synagogue, where the stones held all prayers equally.
 
@@ -174,18 +160,22 @@ He held the power button, watched the screen go dark. The first *Shabbat* he'd e
 
 "I wanted to feel it happen. The choosing."
 
+His soul was on. That was the only way to describe it: the sensation of being fully present, fully in his body that had floated and been held and was still floating.
+
 "Today was hard," he said.
 
-"Everything here is hard." She paused. "I should tell you something. My brother died. Two years ago. Not in the army. He took his life."
+"Everything here is hard. That's why Israelis are prickly. Too much history."
 
-Ethan set down his glass.
+"But you still float."
 
-"I don't need you to say anything," she said. "I just needed you to know before whatever this is goes further. Because I come with that."
+"What's the alternative?" She shrugged, then her face softened. "My grandmother used to say the Dead Sea holds what can't be held anywhere else."
 
-He nodded. The candles guttered in a draft neither of them moved to stop.
+The Jerusalem stone glowed gold in the candlelight. Outside, the muezzin's final call faded into *Shabbat* silence.
 
-"I take sertraline," he said. "Every morning. I've been depressed since I was twenty-two."
+Ethan looked at her across the table.
 
-She looked at him. "Good. We're both damaged. That's better than pretending."
+"To whatever this is," he said, raising his glass without prompting, claiming the moment for himself.
 
-Outside, a siren — ambulance, not rocket — cut through the *Shabbat* silence and faded toward the hospital. The candles steadied again. Neither of them reached for the wine.
+"To whatever this is," she echoed, and they drank.
+
+The candles flickered. Outside, Jerusalem settled into *Shabbat* quiet.

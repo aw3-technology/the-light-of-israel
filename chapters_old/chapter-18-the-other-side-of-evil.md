@@ -1,12 +1,14 @@
 # Chapter 18: The Other Side of Evil
 
-Earlier that afternoon, Ethan had lost himself on purpose in the Old City's narrow arteries. A woman carrying a stack of workbooks found him. "You're in the wrong quarter for looking that lost," she said. Samira taught third grade at an Arab school near Herod's Gate. She walked him two turns and a stairwell shortcut he'd have missed, pointing with her chin at lintels and inscriptions he would not have seen alone.
+Earlier that afternoon, Ethan had lost himself on purpose in the Old City's narrow arteries and been found by a woman carrying a stack of workbooks. "You're in the wrong quarter for looking that lost," she said, amused more than annoyed. Samira taught third grade at an Arab school near Herod's Gate. She walked him two turns and a stairwell shortcut he'd have missed, pointing with her chin at lintels and inscriptions he would not have seen alone.
 
 "You see stones that remember your Temple," she said, palm on a sun-warmed wall. "I see stones that remember my grandfather's house." She said it without accusation, like a teacher labeling two drawings of the same scene.
 
-She checked her phone — a parent had texted about a child's fever, another about a missing permission slip. "My students have a field trip Thursday. The zoo. You'd think it was simple." She tucked the phone away. "Three checkpoints between the school and the zoo. For the children this is normal. They pack their bags and their IDs. Eight years old with laminated IDs." She adjusted the workbooks under her arm. "My best student writes poems about birds. In class she's a poet. At the checkpoint she's a number on a list. Both things are her life and she doesn't see the contradiction because she's never known anything else."
+They passed a souvenir shop selling olive-wood crosses and miniature menorahs. Samira glanced at it. "My grandfather's spice shop was here. Saffron, cardamom, turmeric — you could smell it from the next street." She shrugged. "Now it sells keychains."
 
-At Damascus Gate they parted -- she to catch a bus, he to wander.
+She shifted her tote bag to the other shoulder — workbooks, she said, eighty third-graders' worth. "You know what it's like teaching Palestinian children in a city that celebrates their displacement? We study history and my students live it. Nour — she's eight — her family got an eviction notice last month. She asks me every morning if she'll still have a home when school ends. I don't have an answer. I just teach her long division."
+
+At Damascus Gate they parted, she to catch a bus, he to wander.
 
 Near a checkpoint, a teenage girl in a school sweater waited, notebooks hugged to her chest. When the turnstile clicked she stepped through, eyes straight ahead, ponytail swinging. No one spoke. The city inhaled, exhaled, kept moving.
 
@@ -66,7 +68,7 @@ Ethan stared at the Hebrew text. The letters swam. "This is just—philosophy. T
 
 "Yes. They are." The rabbi's voice was small. "Philosophy doesn't bring them back. And honestly, I don't know if it keeps us from despair. I tell myself it does. But some nights—" He stopped. "Some nights I take an Ambien and lie in the dark and nothing I've studied means anything."
 
-The door opened. Sera, with her own key. She looked between them, understood. Ethan's phone buzzed -- Aaron calling. He declined it, but not before seeing the text preview: "Met someone. Palestinian activist. You'd hate her. Or maybe you'd understand. Can't tell anymore."
+The door opened. Sera, with her own key. She looked between them, understood. Ethan's phone buzzed. Aaron calling. He declined it, but not before seeing the text preview: "Met someone. Palestinian activist. You'd hate her. Or maybe you'd understand. Can't tell anymore."
 
 She looked at the open book, the diagrams. "More mystical explanations?"
 
@@ -104,7 +106,7 @@ The muezzin's call began. Below, someone sang Shabbat melodies early.
 
 "Yes."
 
-"Good." He paused. "Stay angry. Don't let anyone talk you out of it."
+"Good." The rabbi moved to a cabinet. "Stay angry. Don't let anyone talk you out of it."
 
 "Connection? I want to punch a wall."
 
@@ -138,7 +140,7 @@ Rabbi Levi paused at his door. "Look, I don't understand any of this. Maybe it's
 
 Ethan walked home alone, *tefillin* in one pocket. Jerusalem at midnight. A soldier checking his phone, Arabic radio drifting from a taxi, someone practicing violin behind a shuttered window.
 
-In his apartment, he set the velvet bag on his kitchen table.
+In his apartment, he set the velvet bag on his kitchen table. Tomorrow he would try. Maybe it would help. Maybe it wouldn't.
 
 A *yahrzeit* candle flickered in the building across the street.
 
